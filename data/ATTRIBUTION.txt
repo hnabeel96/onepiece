@@ -1,0 +1,9 @@
+Chapter summaries in this folder come from the One Piece Wiki
+(https://onepiece.fandom.com), written by its contributors and licensed under
+CC-BY-SA 3.0 (https://creativecommons.org/licenses/by-sa/3.0/). Reformatted to plain text.
+
+SBS files are a topic index only (where each question appears and which wiki
+topics it links to). The Q&A text itself is Eiichiro Oda's and is not included.
+Author comments are excluded for the same reason.
+
+One Piece is (c) Eiichiro Oda / Shueisha. This is a fan research database.

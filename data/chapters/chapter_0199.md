@@ -1,0 +1,25 @@
+# Chapter 199: Hope!!
+
+Arc: Arabasta Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_199 (CC-BY-SA)
+
+## Cover page
+
+Hatchan's Sea-Floor Stroll, Vol. 15: "Reunion With Dear Old Friends".
+
+Despite apprehensions from Camie and Pappag, Hatchan embraces Macro and his gang as long-time comrades.
+
+## Short summary
+
+Luffy and Pell are able to catch Vivi who is falling down to her death. Retrieved by her friends, who arrives safely one by one, she can retrieve faith in herself. Luffy can then face Crocodile again, full of energy and with a new trump card on his back: a barrel full of water.
+
+## Long summary
+
+Luffy and Pell manage to catch Vivi in the air, who was falling to her death. Vivi tearfully tells Luffy that the main regiment soldiers were beaten, the central square will be blown up, and that she cannot save her country, while Luffy comforts her, telling her that her voice reached them just fine. Zoro and Nami, both injured from their fights, are seen running toward the plaza, Zoro carrying Nami despite his more serious injuries. Landing in front of the palace, Pell tells Luffy to be careful, and Luffy replies that he won't lose anymore, after eating a ton of meat and his blood is surging. Usopp, Chopper, Sanji, Zoro and Nami, all noticing that Luffy has returned, all arrive at the front of the palace, while Vivi expresses relief that they are all okay. Nami knocks Usopp to the ground for giving her so much trouble, asking him why would she think she would want a "toy for parties". Usopp tells Chopper to bury his body in the wilderness, while Sanji confronts Zoro for letting Nami get injured. Luffy, apologizing to his crew for losing, tells them that it's time to change everything, pulling himself to the palace rooftop to confront Crocodile.
+
+As Crocodile reminds Luffy that he cannot be touched, Luffy manages to land a punch on the Warlord, knocking a surprised Crocodile back while Luffy grabs him and uses Gomu Gomu no Buzzsaw. Cobra is surprised that Luffy could hit Crocodile when so many others couldn't, while Miss All Sunday is shown to be visibly impressed. Crocodile then realizes how Luffy is able to touch him, pointing out that the giant barrel Luffy is carrying on his back is full of water. Luffy recalls that in their first confrontation, he was able to grab Crocodile's arm when it was covered with water, and deduces that due to water being Crocodile's weakness, that is the reason why he stole Arabasta's rain. Squirting more water onto his fists, Luffy prepares to fight, telling Crocodile their fight is only just beginning.
+
+## Characters
+
+Pirate, Baroque Works, Animal Species, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Nami, Usopp, Sanji, Tony Tony Chopper, Arlong Pirates, Hatchan, Macro Pirates, Macro, Gyaro, Tansui, Sea Floor, Camie, Pappag, Arabasta, Nefertari Cobra, Nefertari Vivi, Pell, Crocodile, Nico Robin, Matsuge

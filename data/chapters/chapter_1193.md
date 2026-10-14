@@ -1,0 +1,44 @@
+# Chapter 1193: Still Practicing
+
+Arc: Elbaph Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_1193 (CC-BY-SA)
+
+## Cover page
+
+Cover Page Request: "King training raccoon dogs in the art of pantyhose wrestling" by PN Ebi (Romi).
+
+## Short summary
+
+Luffy and Loki's combined attack manages to deal significant damage against Imu, although Luffy runs out of stamina before he can deliver another attack. At the Branch Route, Gunko regains her consciousness. At the Owl Library, Biblo urges Robin and Saul to open a chest containing important items. Meanwhile, at the Western Village, the giants and Sanji continue the battle against the Zaza MMA and Killingham, respectively. On the other hand, Zoro deduces Sommers' steel heart to be his fatal weakness and attempts to impale him using Supreme King Haki. He isn't successful and realizes that he has to keep practicing.
+
+## Long summary
+
+Luffy and Loki's combined attack on Imu blasts him into Treasure Tree Adam, to the shock of everyone nearby (even Loki himself was surprised). Gaban cannot comprehend how Luffy is still so powerful despite being stabbed by Imu earlier, to the point the entire tree is shaking, something Hajrudin agrees he has never experienced before. Luffy knows that Imu will recover from this attack and says they need to hit him again before he gets back up, which Loki agrees with. As such, Loki begins to transform into his hybrid form while Luffy charges at Imu, but unfortunately for him, he ends up crashing to the ground, which Loki says is a result of him running out of stamina, so he advises Luffy sit the rest of the fight out while he handles the rest. Luffy does not want to change back to normal out of fear his injuries will return and render him immobile, and he begs himself to let him at least beat Imu before changing back.
+
+Back at the Branch Route, the Straw Hats feel the aftermath of Luffy and Loki's attack and wonder if they should go back him up, though some are wondering what Usopp's plan was when he split off from the rest. Gunko begins to stir as she lies on Brook's lap, and when she does Franky and Nami assume a battle stance in case she tries to fight them, though with her current state after being frozen, it does not seem likely. At the Owl Library, Chopper reveals to Robin and Saul that Biblo wants them to open a chest that contains letters and tools that has been passed down since Biblo's grandfather's time. Robin believes this is not the best time for it with the fighting going on outside, but Biblo hoots to Chopper and he translates that there is no better time.
+
+At the Western Village, the giants wonder if the current chaos is a result of Harald's decision to bend the knee to the World Government and teach their children not to fight, but Jarul counters that remaining a barbaric nation despised by others is no better. Suddenly, Dorry and Brogy interrupt them and tell everyone that putting the blame on someone is not going to reveal what started this tragedy befalling Elbaph, even adding that if the country cannot fight off a few "demons", then it was destined to collapse one day. As they join the battle against the Zaza MMA, they free a few children from its grasp and remind everyone that it is just like the creatures from before; it will not disappear unless the one who made it falls, and right now the Straw Hats and Loki are fighting them off as they speak, so their job right now is to keep the MMA at bay until the Straw Hats win, or their fight will have been for nothing. Killingham sees the giants rally under Sanji against his creation and calls it futile, but Sanji hits him rather hard afterwards saying it all depends on him.
+
+Back with Zoro and Sommers, the latter fires an explosion from Gram as he complains about how long Killingham is taking to abduct some children. He then asks Zoro if he observed what happened when he did so, claiming it is going to be his fate soon enough. Meanwhile, Zoro is surrounded by Sommers' invisible thorns, which he boasts are harden than iron, and if Zoro moves even a bit, he will flinch in pain, only to be impaled again, and the more he will try to escape, he will only hasten his demise. To Sommers' annoyance, however, Zoro completely ignored his taunt as he is too deep in thought about what he should do. Zoro knows that any damage the Knights of God take (including from Supreme King Haki) would eventually heal, and then he recalled his conversation with Loki back in the Underworld, as the giant told him that when he killed Harald, his father pointed at his heart for Loki to aim. Zoro also remembers when he saw Sommers' steel heart after he was beaten earlier, and concludes that the only way to kill Sommers is to stab his heart with Supreme King Haki. However, Zoro doesn't know how to use Supreme King Haki intentionally, much less how to infuse Supreme King Haki into his swords.
+
+Growing fed up with Zoro's inaction, Sommers jumps down to face Zoro as he explains that Gram converts the wrath of its wielder into power, and when he sees Zoro's face, he mistakenly assumes he is frustrated he cannot escape his invisible thorns, which he loves. Sommers then claims to have deactivate some of his thorns as an act of "mercy" and lunges towards Zoro to finish him off for good. Zoro instantly cuts through all of Sommers' thorns and attempts to stab him through the heart. However, he wasn't able to use Supreme King Haki, so his sword bounces off the steel heart. Sommers screams in shock and pain as Zoro laments that he didn't get it quite right. Zoro sarcastically apologizes and says that he's still practicing. Sommers finally realizes that Zoro is crazy and dangerous.
+
+## Notes & trivia
+
+## Chapter Notes
+
+* Luffy became exhausted after performing a combined attack with Loki and began feeling pain from previous injuries.
+* Gunko regained her consciousness.
+* At the Owl Library, Biblo urges Robin and Saul to open a chest containing letters and tools passed down for generations.
+* At the Western Village, the giants and Sanji continue their battle against the Zaza MMA and Killingham, respectively.
+* Zoro resumes his battle against Sommers.
+** Recalling Loki's words, Zoro deduces that a Supreme King Haki-fused attack into the Knights of God's steel heart is the only way to kill them.
+** Sommers revealed that his sword, the Gram, is capable of converting the user's wrath into explosive power.
+** Zoro breaks free from Sommers' thorns and stabs Sommers' heart. While the attack failed to penetrate his heart, it nevertheless significantly injures Sommers.
+
+## Characters
+
+## Characters
+
+Pirate, World Government, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Nami, Usopp, Sanji, Tony Tony Chopper, Nico Robin, Franky, Brook, Jinbe, New Giant Warrior Pirates, Hajrudin, Stansen, Road, Giant Warrior Pirates, Dorry, Brogy, Oimo, Kashii, Beasts Pirates, King, Elbaph, Harald, Loki, Ragnir, Jarul, Scopper Gaban, Jaguar D. Saul, Ange, Ripley, Olav, Mag, Bent, Colon, Ylva, Johanna, Bjorn, Biblo, First Twenty, Nerona Imu, Knights of God, Manmayer Gunko, Shepherd Sommers, Rimoshifu Killingham

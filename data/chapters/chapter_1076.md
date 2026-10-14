@@ -1,0 +1,49 @@
+# Chapter 1076: Old Friends
+
+Arc: Egghead Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_1076 (CC-BY-SA)
+
+## Cover page
+
+Color Spread: The Straw Hat Pirates at a tropical location.
+
+## Short summary
+
+Despite some tensions between both groups, Luffy reluctantly agrees to free Lucci and Kaku, allowing them to engage the Seraphim. Meanwhile, Vegapunk has been placed in confinement in the lab, surprised at the events occurring under his nose and wonders how the World Government found out about his Poneglyph research. Elsewhere, on Elbaph, the Red Hair Pirates greet the reunited Giant Warrior Pirates and later confront the Kid Pirates to demand their copies of the Road Poneglyph, challenging them to a battle for them.
+
+## Long summary
+
+Zoro tells Lucci and Kaku that he does not see a future where after they uncuff them, they would let them cuff them later. Kaku states that they will let them restrain them again, which seems to convince Luffy to help them out, despite Zoro claiming that Kaku is lying to them. S-Hawk then unleashes a powerful flying slash attack with his leg, causing Zoro to realize that the Devil Fruit power S-Hawk is using is the Supa Supa no Mi, used by former Baroque Works agent Daz Bonez. After moving out of the way, Kaku uses the fact that he has to save them again as reason for letting them help if it means escaping alive.
+
+Shaka asks the two agents what their mission is, and Lucci bluntly replies that their mission is to terminate Vegapunk and his Satellites, much to Kaku’s annoyance that he would give away that information so freely when he was trying to convince the enemy to set them free. Shaka asks if Stussy is on that hit list given her betrayal, which Lucci also confirms. All of a sudden, they hear Nami screaming, which Zoro realizes it means that the other Seraphim are on the loose. Ultimately, Luffy agrees to set Lucci and Kaku free and asks Shaka for the keys. Shaka gives Luffy the keys, saying that he will trust his judgment as long as the Stella escapes safely. Luffy turns to Lucci and asks him if he will not go after his friends once the Seraphim are dealt with. Zoro does not believe they will fall for a taunt like that, but Lucci does, telling Luffy that he wants to kill him first and then go after his friends. S-Bear then fires an Ursus Shock, but at that point, both CP0 agents have been freed. Luffy assumes Gear 4: Boundman and uses Gomu Gomu no Kong Gun while Lucci assumes his hybrid form and uses Rokushiki Ogi: Rokuogan to simultaneously attack S-Bear. Zoro and Kaku team up against S-Hawk, blowing him back with Rengoku Oni Giri and Rankyaku “Hakurai”, respectively.
+
+Meanwhile, deep within the lab itself, it is revealed that all of the CP5, CP7, and CP8 agents that had been sent to the island have all been imprisoned for the last two months. Apparently, when the agents finished their investigation of the island, they tried to leave but were attacked by the Sea Beast weapons, who forcefully brought them back. All of the other agents that followed suit ended up meeting the same fate trying to find their colleagues. The kicker was that they all assumed Dr. Vegapunk was responsible, but he is revealed to have been imprisoned with the rest of them. Vegapunk admits he had no idea any of this was happening, and finds it baffling that word of his research into the Poneglyphs was leaked to the World Government somehow. The Marines are then revealed to be deploying about 100 ships of all sizes from branch G-9 en-route to Egghead.
+
+In a small port, on a certain island, a kid asks Shanks if he can take him with him on his next journey. Shanks refuses, since the kid is a little hot-headed, much to his annoyance. Rockstar arrives and informs him that they are under attack, and if they should fight back. Shanks ultimately agrees, regretting that he let it get to this point due to him reconnecting with some old friends of his whom he believed to be dead. His friends turn out to be Dorry and Brogy, the former captains of the Giant Warrior Pirates who finally left Little Garden and returned to Elbaph, the island Shanks is currently on. The two giants happily agree to help him out, as Shanks asks Rockstar to send a message to their attacker, who is Eustass Kid; the message being “surrender the Road Poneglyph rubbing he has or risk a fight with him”.
+
+On the outskirts of the island, Kid realizes that practically every pirate ship they see belongs to big shots who all swore fealty to Shanks. Killer reveals that the last time they tried to fight him, it was a completely one-sided fight; Kid never even got a chance to see Shanks. This time, Killer fears that Kid might die in this next confrontation. Kid however, is not scared, believing he will die only if he loses the fight.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*Luffy and Zoro engage the two Seraphim.
+**S-Hawk has duplicate of the Supa Supa no Mi power.
+**Luffy frees Rob Lucci and Kaku.
+**Luffy and Lucci attack S-Bear while Zoro and Kaku attack S-Hawk.
+*Vegapunk has been brought to the same spot where the missing Cipher Pol agents are held prisoner.
+**Vegapunk is wondering how the World Government found out about his Poneglyph research.
+*The World Government has dispatched 100 ships to Egghead.
+*The Red Hair Pirates are on Elbaph.
+**The Giant Warrior Pirates have reunited on the island, including Dorry and Brogy.
+**Shanks is acquainted with both Dorry and Brogy. 
+*The Kid Pirates are at Elbaph's coast, and are confronted by the Red Hair Pirates.
+**Shanks sends a message to challenge the Kid Pirates to a battle in exchange for the Poneglyph etchings the Kid Pirates have.
+
+## Characters
+*Shanks' interaction with the giant boy in the bar is reminiscent of his interaction with Luffy in Chapter 1: a young boy begging to join the Red Hair Pirates but being rejected by Shanks before being comforted by the female bartender.
+
+## Characters
+
+Pirate, World Government, Marines, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Nami, Usopp, Sanji, Tony Tony Chopper, Nico Robin, Franky, Brook, Jinbe, Kid Pirates, Eustass Kid, Killer, Heat, Gig, Pomp, Mosh, Cross Guild, Daz Bonez, Red Hair Pirates, Shanks, Benn Beckman, Lucky Roux, Yasopp, Limejuice, Bonk Punch, Monster, Building Snake, Hongo, Gab, Rockstar, Giant Warrior Pirates, Dorry, Brogy, Oimo, Kashii, Oli, CP0, Rob Lucci, Kaku, SSG, Vegapunk, Vegapunk/Shaka, S-Hawk, S-Bear, Elbaph, Colon, Mato

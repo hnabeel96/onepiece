@@ -1,0 +1,51 @@
+# Chapter 1137: Introducing Shamrock
+
+Volume: 112  |  Arc: Elbaph Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_1137 (CC-BY-SA)
+
+## Cover page
+
+Oni Child Yamato's Golden Harvest Surrogate Pilgrimage, Vol. 23: "Infiltrate the sketchy hideout!!"
+
+## Short summary
+
+Luffy's group enters Aurust Castle, where Road explains about the battle between King Harald and Loki.
+
+In the Underworld, Gunko uses her Aro Aro no Mi abilities to inflict significant wounds on Loki, but the giant refuses to give in and join the Knights of God. Eventually, Loki and his animal companions are taken out and Gunko and her companion, Commander Figarland Shamrock, head out to make contact with Mary Geoise; Shamrock declares that Elbaph will be placed under the World Government's control.
+
+## Long summary
+
+Arriving at Aurust Castle, Road tells the Straw Hats that no one has set foot in the castle in the fourteen years since Harald's death, but the broken gate and lack of guards has him concerned. Zoro says it could not have been invaders since the gate was broken from the inside, but Luffy charges in anyway. Once inside, the Straw Hats are amazed by how huge the castle is, so much so that Nami figures walking through it is impossible, at least until Road starts carrying the three of them.
+
+While walking through the castle, the Straw Hats notice some more damage to the castle, but Road explains that those ruins were the result of Harald and Loki's fight, the level of damage caused he says was inevitable between the two of them. The four come across piles of giant skeletons, where Road tells the three that Loki killed over a hundred soldiers, with the only survivors being Loki himself and Jarul, and since then the castle has remained off-limits.
+
+Luffy notices one skull has large horns, which remind him of Oars, and Road tells him that some Giants had the blood of "Ancient Giants" coursing through them, though no pure-blooded ones exist anymore. They then see a portrait of King Harald, where Road calls him the best king they ever had because of his desire to connect Elbaph to the outside world. However, Road tells the crew that Harald also had ancient giant blood, but he chose to tear out his horns as he considered the ancient giants a relic of the "era of wars", which surprises the Straw Hats. Road then tells the three that the one person who hates Loki the most for killing the king is none other than Hajrudin himself, revealing him to be King Harald's other son.
+
+Nami is surprised to learn they are brothers, but Road clarifies that they are half-brothers, as Hajrudin was born to a giant woman who was not the queen. He also reveals that Hajrudin's mother was not given permission to be queen herself as she was born in another kingdom, and in Elbaph they consider the blood of other giants mixing with their own tainting, prompting Nami to remark on how discriminatory the giants are. Zoro asks Road why he serves someone with "dirtied blood", and Road thinks back to when he first met Hajrudin, who offered to be his friend when he saw he could make maps, as Road did not have any friends as a child due to his hobbies.
+
+Road tells the three that he considers Hajrudin an honest person, and even though he did not live in the castle due to his mixed heritage and his mother was despised by the others, Hajrudin endured it all and proudly proclaimed he would unite all of the giant tribes of the world and become the king of the giants, and Road wants to help him achieve that goal. That is when Luffy notices some giants laying on the ground.
+
+Down in the Underworld, Gunko, who is revealed to have eaten the Aro Aro no Mi, starts attacking Loki using arrows she generates from her clothes. Loki tells her that the only reason he is taking the beating is because he cannot move, but Gunko's partner tells him it would not make a difference even if he could. Gunko is in disbelief that a commoner like Loki would reject their offer of divination as her arrows move around Loki's face. Loki deduces that the arrows signify where Gunko's attacks are going to land as she asks once again if he will join them, but Loki stubbornly refuses, and Gunko's attacks hit him as he knew they would. Eventually, Loki passes out from his injuries as Gunko's partner tells her to stop.
+
+Taking off his hood, the man's name is revealed to be Figarland Shamrock, the son of Garling and a commander of the Knights of God. Shamrock tells Gunko to get in touch with Mary Geoise, as their plans are revealed to be bringing the giants of Elbaph under the thumb of the World Government by any means necessary.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*Luffy, Zoro and Nami are led to the late King Harald's castle by Road.
+**It is revealed that the castle has been abandoned since the battle between Harald, his guards, and Prince Loki.
+**It has also been revealed that Loki killed over a hundred guards.
+**The remains of the slain guards can still be found in the castle.
+*It is explained that pure-blooded ancient giants, such as Oars, no longer exist, however, some Giants still carry their blood.
+**Harald and Loki are among those horned giants with ancient giant blood in them.
+*Hajrudin is Loki's half-brother, from another women, who was not born in Elbaph, which is why he was ostracized by the other giants.
+*The person who accompanied Gunko is revealed to be Figarland Shamrock, Figarland Garling's son and commander of the Knights of God, who heavily resembles Shanks.
+*Gunko is revealed to be a member of the Manmayer Family.
+
+## Characters
+
+## Characters
+
+Pirate, World Government, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Nami, New Giant Warrior Pirates, Hajrudin, Stansen, Road, Goldberg, Gerd, Nash, Elbaph, Harald, Loki, Wano Country, Yamato, Kurozumi Tama, Knights of God, Figarland Shamrock, Manmayer Gunko, Cerberus (Sword)

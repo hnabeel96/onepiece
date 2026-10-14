@@ -1,0 +1,45 @@
+# Chapter 758: Just Keep Going
+
+Volume: 76  |  Arc: Dressrosa Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_758 (CC-BY-SA)
+
+## Cover page
+
+Solo Journey of Jinbe, Knight of the Sea Vol. 7 - "Now That's a Capsized Ship!".
+
+As Jinbe and the sea kitten continue their journey to find out what happened to the town, they encountered a capsized ship.
+
+## Short summary
+
+Diamante recovers from Kyros' attack and tries to prevent Luffy from getting past him, but fails when Law teleports himself and Luffy inside the palace gardens. Law then removes the bullets that were shot into him by Doflamingo cursing him for using lead bullets. The two however were being watched by Sugar who is planning to turn them into toys as revenge for the loss of her decade long work.
+
+At the plateau, Usopp was horrified by the fact that he forgot about Robin when she was turned into a toy and Viola uses her ability to tell him that Sugar is walking towards Luffy. Scared that he will lose his captain and friend, Usopp will attempt an impossible shot at Sugar from the plateau before the citizens stops him. With Viola's insight, he prepares to fire the special shot prepared with Kanjuro's help but at the last moment sees Luffy's aura and fires before the Dressrosa citizens caught him and everyone else with him. Viola watches as the shot successfully reaches Sugar where it takes the shape of Usopp's face which first defeated Sugar, scaring her again into unconsciousness. With the last obstacle gone, Luffy and Law finally reached Doflamingo himself.
+
+## Long summary
+
+Luffy leaves Diamante for Kyros to battle as he and Law prepare to head off to meet Doflamingo. Diamante says he won't let them, and Kyros responds that he is the Donquixote officer's opponent. While Kyros says this, Luffy talks to Rebecca, happy that she met her dad for the first time. Luffy prepares to head off, when Rebecca asks him if he really is going to defeat Doflamingo. Luffy responds by telling her his real name (Rebecca previously only knew him as Lucy) and affirms her question. Diamante then gets angry at Luffy and Law and stretches his sword to attack them, but Law uses Room and Shambles to make a hole in the palace wall and teleport him and Luffy inside the palace, much to Diamante's rage. Luffy is in awe of what Law just did, but the Shichibukai states that using that much power left a toll on his body, which was not in good condition due to Doflamingo shooting him with lead bullets. However, a Donquixote servant spots them and reports to Sugar, who is desperate to get revenge for the undoing of the Hobi Hobi curse which she put on thousands of people. She plans on touching Luffy and Law and turning them into toys, which will erase everyone's memory of the two famous pirates.
+
+On the Royal Plateau, Usopp tells his crew about the seriousness of Sugar back on the loose. He remembers how he forgot Robin when she was turned into a toy, and is desperate not to forget Luffy as well. He is prepared to do anything at any cost to protect his captain from Sugar, but Kanjuro asks him how he is going to do anything when he is so far away from the palace and especially since Luffy and Sugar are within the palace walls. Usopp replies that he has no other choice as he readies his Kabuto, and is ready to fulfill his role as the Straw Hat Pirates' sniper by providing support from afar. Kin'emon asks if there is any way they can help, and Riku tells Hack and Tank Lepanto to help him protect Usopp and himself from the bounty-seeking mob, who are getting closer and closer using Kanjuro's net, but also tells them not to hurt any of the people. Usopp prepares his shot with the help of Viola's powers, when the mob reaches the top of the plateau.
+
+The mob prepares to capture Riku, Viola, Kin'emon, and Usopp and take them to Doflamingo, and Kin'emon offers his assistance against them. Right then, Sugar approaches Luffy and Law, and the former wonders who she is. As Riku unsuccessfully tries to get the mob to stop, Viola guides Usopp towards Luffy, Law, and Sugar's location. The Kabuto aims for the lower part of the center palace window, and as Sugar draws closer and closer to Luffy and Law, Usopp takes aim, determined not to lose his captain. Not wanting to let Sugar get his way, Usopp prepares to fire his Great Black Kabuto, when suddenly he realizes with a shock that he can see Luffy, Law, and Sugar's auras. As the mob gets closer to him, Usopp finally fires his Bagworm Star. 
+
+The mob finally gets their hands on Usopp, but all he can think about is the shot's trajectory. Knowing there is a slight tailwind, Usopp put in two gunpowder boosters to help the shot go farther, and made sure that the outer wrappings would fall away so that his shot would definitely hit Sugar. However, he knew that even if it missed a little, it would still work as the shot was meant to induce trauma. This becomes clear when the shot is revealed to be a replica of the expression Usopp made that knocked out Sugar the first time. It works, and Sugar is once again scared into unconsciousness. This shocks the Donquixote servants and confuses Luffy and Law as Usopp's face projectile is absorbed into the wall and becomes a drawing, and it is revealed that the projectile was a drawing made by Kanjuro. Back at the King's Plateau, Viola congratulates a tied-up and beaten Usopp, and it is revealed that the mob managed to tie up all their targets, but were sent into shock by Viola's arrival. Viola confirms that Law and Luffy have managed to reach Doflamingo.
+
+At that moment, Luffy and Law stand face to face with Doflamingo and Trebol, with Bellamy unconscious on the ground. The Shichibukai asks them why they have come, and they both reply that they have come to beat him. Doflamingo appears to express disappointment at this, claiming that he had hoped to meet on friendlier terms.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*Usopp awakens his Observation Haki ability.
+*Usopp defeats Sugar a second time using similar methods.
+*Usopp, Riku Doldo III, Kin'emon, and Kanjuro are captured and tied up by Dressrosa civilians.
+*Luffy and Law reach Doflamingo.
+*Bellamy is unconscious on the ground at Doflamingo's feet.
+
+## Characters
+
+## Characters
+
+Pirate, Straw Hat Pirates, Monkey D. Luffy, Usopp, Heart Pirates, Trafalgar D. Water Law, Donquixote Pirates, Donquixote Doflamingo, Trebol, Diamante, Sugar, Bellamy, Sun Pirates, Jinbe, Dressrosa, Riku Doldo III, Kyros, Viola, Rebecca, Tank Lepanto, Wano Country, Kin'emon, Kurozumi Kanjuro, Revolutionary Army, Hack (Fish-Man)

@@ -1,0 +1,53 @@
+# Chapter 864: The Vinsmoke Massacre Plot
+
+Volume: 86  |  Arc: Whole Cake Island Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_864 (CC-BY-SA)
+
+## Cover page
+
+The Stories of the Self-Proclaimed Straw Hat Grand Fleet: Vol 1: The Beautiful Pirates sailing the sea beautifully.
+
+## Short summary
+
+After Brook shattered the photograph of Mother Carmel, Big Mom responds in shock that he was still alive, and that he knew of the photograph's importance. To the side, Pudding tries unsuccessfully to shoot Sanji, before Daifuku takes over the fight.
+
+As Caesar Clown and Brûlée prepare to enter the venue, Bege pretends to capture Luffy while worrying about Big Mom's failure to scream. Pedro then engages in a fight with Oven. 
+
+At their table, the Vinsmoke Family are being held at gunpoint by the Charlottes. Judge responds in shock and despair, but his children are unmoved (even amused). However, Big Mom's reactions begin to intensify as Capone spots Katakuri, whose pale expression tells him that Katakuri has foreseen a horrific future. Assured that this was an indication of their plan's imminent success, he tells the alliance to insert their earphones while preparing to execute his plan.
+
+## Long summary
+
+Luffy and Jinbe dodge as Big Mom swings Prometheus at them, and someone tells Big Mom to look over to the banquet table as Brook shatters the portrait of Mother Carmel. Luffy and Jinbe are jubilant and the Big Mom Pirates are shocked to see this, and they wonder how a sentient Luffy clone could be out. Brook then reveals he is not a clone as he rips off his Luffy mask, but the wedding guests think he pulled off his actual skin. Big Mom is bewildered to see Brook again, and slowly asks him if he knows about the importance of the portrait. The Big Mom Pirates become shocked and fearful at Big Mom's upcoming reaction, and Judge believes that the Straw Hats are doing this solely to get Sanji back. As a dazed Big Mom recalls her destroyed wedding cake, her crew mobilizes to defeat the Straw Hats before she goes crazy.
+
+Meanwhile, Pudding furiously attempts to shoot Sanji, trying to show him that she is his enemy who deceived him in order to kill him. However, Sanji dodges all of her shots and asks if she is deceiving herself as well, causing Pudding to briefly waver. Before she regains her composure, she is suddenly attacked, and Sanji pulls her out of the way. The attacker, Charlotte Daifuku, berates his younger sister for her failures as a giant genie emerges from his belt buckle due to his Hoya Hoya no Mi ability. Pudding promises to finish her job, but Daifuku says her time is up as he smacks her away. Sanji is shocked at Daifuku's action, and Drug Peclo realizes that the Straw Hats must be trying to save Sanji from his fate at Pudding's hands. Daifuku's genie attacks Sanji, and Sanji initially manages to counter it, but it blows him away with another powerful strike. In the Mirro-World, Brûlée begs Caesar to stop using her as he flies around with her on his back, but Caesar is intent on fulfilling his mission in order to get his heart back. As some of Big Mom's forces are kept busy by Luffy's animal duplicates, Bege pins down Luffy in order to keep his cover, and when he announces it to Big Mom, he is ordered to kill Luffy. Jinbe wonders when Big Mom is going to react to the portrait shattering, because he cannot hold back her forces for too much longer, and he tells Pedro not to block his opponent's attacks. However, Pedro blocks a punch from Charlotte Oven, but Oven heats up his sword with the power of the Netsu Netsu no Mi, causing Pedro to be unable to carry it. Oven recalls Pedro's first invasion of Totto Land, and wonders why he is back with so few years left to live, promising to not show him mercy and burn him to death.
+
+Nami, Chopper, and Carrot hang around inside the wedding cake, wondering why nothing has happened after three seconds. Brook's head is then cut off, but he remains alive as his head rolls toward Luffy. Judge then cries out for help, and the Straw Hats are shocked to see the Vinsmokes trapped at their table, noting that their plan is not going as intended. The Vinsmokes sit at their table, surrounded at gunpoint by several Big Mom Pirates and bound to their seats by Perospero's candy. Judge shouts that there should be honor among thieves, but his sons call his behavior silly as they remain nonchalant even as their lives are threatened. Reiju reflects that it is Judge's fault for turning his sons into barely human beings who feel nothing, even at the prospect of death. Perospero gleefully laughs at the upcoming massacre, and Judge starts to cry as he pleads for this to be a joke. He can barely handle the prospect of death after all the work he put into restoring the Germa Kingdom's power, but his pleas for Big Mom to say something fall on deaf ears as she is entirely preoccupied with Carmel and the wedding cake. Perospero says that Judge is lucky for Big Mom's rage to be focused on something else, and compares the family to a herd of cows about to be slaughtered, paying no mind to their cries.
+
+Meanwhile, Brook tells Luffy that they need to show Big Mom the broken Carmel portrait, as she is currently torn between it and the wedding cake in order to become truly enraged. However, Luffy notices Katakuri approaching them, and Bege tells Luffy to keep going with the plan while he confronts Katakuri. Bege notices that Katakuri's face has turned completely white, which means he has seen a horrific future. Bege tells Jinbe and Pedro to back Luffy up and put on their earplugs as Luffy grabs the shards of the portrait, and the Big Mom Pirates begin to get suspicious of Bege. Katakuri orders Bege to shoot Luffy, but Bege refuses. As Luffy prepares to show Big Mom the portrait shards, Bege says that while Katakuri can see a bit into the future, anyone has the power to change it.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*A mini-story of "The Stories of the Self-Proclaimed Straw Hat Grand Fleet" begins.
+**The Beautiful Pirates' ship is shown, and it waves the Straw Hat Pirates flag on the horse figure head.
+*Pudding tries to kill Sanji, but starts to waver.
+*Because of Pudding's failure, Charlotte Daifuku tries to finish off Sanji himself.
+**Daifuku ate the Hoya Hoya no Mi.
+**Daifuku is the Totto Land Minister of Beans.
+*Jinbe is confirmed to be able to use Armament Haki, making him the first known fish-man in the series to use Haki.
+*Pedro battles against Charlotte Oven.
+**Oven ate the Netsu Netsu no Mi.
+**Oven is the Totto Land Minister of Browned Food.
+*Big Mom finds out Brook is still alive.
+*Luffy sees Brook's ability to reassemble his body parts for the first time.
+*The Vinsmoke Family has been restrained.
+**Due to their lack of emotions, the brothers are unmoved by the thought of death.
+*Capone Bege initiates his assassination operation.
+
+## Characters
+
+## Characters
+
+Pirate, Straw Hat Pirates, Monkey D. Luffy, Nami, Sanji, Tony Tony Chopper, Brook, Sun Pirates, Jinbe, Fire Tank Pirates, Capone Bege, Vito, Gotti, Beautiful Pirates, Cavendish, Farul, Big Mom Pirates, Charlotte Linlin, Charlotte Katakuri, Charlotte Perospero, Charlotte Daifuku, Charlotte Oven, Charlotte Zuccotto, Charlotte Basskarte, Charlotte Dosmarche, Charlotte Noisette, Charlotte Compo, Charlotte Laurin, Charlotte Mont-d'Or, Charlotte High-Fat, Charlotte Tablet, Charlotte Saint-Marc, Charlotte Dacquoise, Charlotte Mobile, Charlotte Effilée, Charlotte Custard, Charlotte Brûlée, Charlotte Broyé, Charlotte Marnier, Charlotte Cinnamon, Charlotte Poire, Charlotte Pudding, Napoleon, Zeus, Prometheus, Zou, Pedro, Carrot, Germa Kingdom, Vinsmoke Judge, Vinsmoke Reiju, Vinsmoke Ichiji, Vinsmoke Niji, Vinsmoke Yonji, Underworld, Lu Feld, Drug Peclo, Morgans, Giberson, Umit, Carmel, Caesar Clown

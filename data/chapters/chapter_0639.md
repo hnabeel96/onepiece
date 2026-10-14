@@ -1,0 +1,42 @@
+# Chapter 639: Protect Everything
+
+Volume: 65  |  Arc: Fish-Man Island Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_639 (CC-BY-SA)
+
+## Cover page
+
+From the Decks of the World Vol. 23 - "Arabasta Kingdom - New Clothes for This Year's Levely"
+
+## Short summary
+
+Hody Jones takes his trident out of Decken's body and after a short fight, Decken is defeated. After that, Hody goes after Shirahoshi, slicing through Ryuboshi and Manboshi and reaching her with the uncomparable underwater speed, grabbing her hair. Luffy attacks Hody managing to make him release her. Zeo makes Wadatsumi believe that he has to fight for the New Fish-Man Pirates in Gyoncorde Plaza. Wadatsumi defeats Surume and then as he attacks Jinbe and gets pushed back, he manages to bring down Nami, which gives Sanji a reason to attack him. Hyouzou becomes stronger after eating too many Energy Steroids. He tries to attack Robin but Zoro jumps in front of him and stops his attack.
+
+## Long summary
+
+Hody pulls his trident out of Decken and Decken reveals he touched Hody with his left hand at the last minute and throws an axe at him. Hody tells Decken he betrayed him first, but destroying the island was a great idea. If Decken were to die, the effects of his ability would disappear. Hody then suggests turning the ship around and dealing with the Straw Hat Pirates. Decken says he does not care about them, since he is going to kill Hody first. He then lashes out with a kick, revealing blades hidden in his shoes. Hody catches the leg with his teeth and bites down on it. He then swings Decken around and uses him as a shield to intercept the axe thrown earlier. Hody laughs and says he has to kill Shirahoshi before the ship crashes.
+
+Ryuboshi and Manboshi see Decken defeated and realize Hody is coming after them. He somersaults past them, cutting them with the blade on his back in the process. Ryuboshi tells his sister to run. Before she can, Hody grabs her hair and stops her, saying even a mermaid cannot beat his speed. Luffy then attacks him with Gomu Gomu no Snake Shot, hitting him in the chest. Luffy pulls back his arm from his perch on Fukaboshi's back. Hody tells Luffy he has no chance of winning a fight in the deep sea, saying he cannot protect anything. Luffy says he spent the last two years training to do just that.
+
+Back at Gyoncorde Plaza, Wadatsumi has lost the will to fight, crying that his captain abandoned him. Zeo makes up a lie and tells him that he did not hear Decken's orders to take care of the plaza for him. Zeo throws him an Energy Steroid and Wadatsumi starts his rampage, brutally beating Surume. He then sets his sights on Jinbe. Jinbe blocks his fist with Nanasenmaigawara Mawashigeri, stopping the attack with his foot and hurting Wadatsumi's hand in the process. As Wadatsumi falls, everyone around him is blown away as he falls, including Nami. This angers Sanji and he kicks Wadatsumi in the head, confusing him as to who is attacking him now. Sanji tells him he will pay for hurting Nami. The matchup reads Oonyudo Wadatsumi vs. Sanji and Jinbe.
+
+Elsewhere in the plaza, Hyouzou is on a rampage, his appearance having changed after eating too many Energy Steroids, just like Hody's did, and drinking at the same time. He takes down several people with Chidoriashi Hash. Hyouzou then sets his sights on Robin and charges at her. Zoro appears and blocks the attack (while also cutting Hyouzou's sword with his own), saying he will be taking on Hyouzou, calling him a good warmup for the New World. The match up reads Zoro vs. Hyouzou.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*Igaram, Pell, Chaka, Terracotta, and Maidy are seen for the first time after the timeskip. Pell and Chaka are preparing for the upcoming Levely.
+*Decken has been defeated by Hody Jones. It is also revealed that if Decken dies, the effects of his ability will disappear.
+*Luffy names his first original non-gear related attack after the timeskip: Gomu Gomu no Snake Shot.
+*Wadatsumi defeats Surume after taking an Energy Steroid.
+*Jinbe shows his first Fish-Man Karate attack which involves his legs and feet.
+*Jinbe and Sanji fight against Wadatsumi.
+*Hyouzou changes in a similar manner as Hody, apparently after consuming many Energy Steroids as a snack with his alcohol.
+*Zoro clashes against Hyouzou.
+
+## Characters
+
+## Characters
+
+Pirates, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Nami, Usopp, Sanji, Nico Robin, Sun Pirates, Jinbe, New Fish-Man Pirates, Hody Jones, Zeo, Hyouzou, Flying Pirates, Vander Decken IX, Wadatsumi, Ryugu Palace, Fukaboshi, Ryuboshi, Manboshi, Shirahoshi, Fish-Man Island, Surume, Arabasta, Igaram, Chaka, Pell, Terracotta, Maidy, Kung-Fu Dugong

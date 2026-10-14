@@ -1,0 +1,27 @@
+# Chapter 87: It's Over!!
+
+Volume: 10  |  Arc: Arlong Park Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_87 (CC-BY-SA)
+
+## Cover page
+
+Diary of Koby-Meppo, Vol. 4: "Study, Study!!"
+
+Late at night, long after the rest of his unit (including Helmeppo) has fallen asleep, Koby continues his enlistment studies by candlelight.
+
+## Short summary
+
+After Sanji defeats Kuroobi, he and Zoro are confronted by Arlong as the work to free and revive Luffy continues. Meanwhile, Usopp plays dead to escape from Chew, but eventually grows disgusted with his cowardice and confronts Chew again. Chew overwhelms Usopp with his attacks, but Usopp manages to play tricks on him and successfully causes a bottle of rum to rupture on him. With Chew covered in alcohol, Usopp sets him ablaze with Kaen Boshi.
+
+## Long summary
+
+Sanji sends Kuroobi crashing into Arlong Park's main building, and Arlong looks on in shock and anger at Kuroobi and Hatchan lying in defeat. Sanji waves the two fish-men off as nothing special, and Arlong confronts him and Zoro in a rage, saying they are still far from winning. Zoro asks Sanji what he meant by his mixed report on Luffy's status, and Sanji replies that Luffy will not die, but he will need to go back down to the ocean floor to free their captain. However, Arlong will likely be standing in their way. Meanwhile, Nojiko looks on as she holds Luffy's head above water, shocked that Hatchan and Kuroobi were defeated. Genzo comes back up for air, cursing his inability to hold his breath long enough. Nojiko offers to switch places with him, and Genzo asks about the situation with the Straw Hats and the Arlong Pirates. Still surprised at what is going on, Nojiko states that there may actually be hope for all of them.
+
+Elsewhere, Usopp lies on the ground in a bloody mess. Thinking he killed the pirate with a single shot of his Mizudeppo, Chew walks back to Arlong Park, complaining about the trouble chasing Usopp had caused him and saying that Hatchan and Kuroobi should have dispatched the others by now. However, Usopp is actually fine, having used his special Ketchup Star to fool Chew. He does feel sorry for Nami about all the destruction the fish-men have caused, but decides to cut his losses and pretend that he lost to Chew in a hard-fought battle, packing dirt on his body to make his lie more believable. However, as he does this, he recalls the words of his crewmates and the Cocoyasi Village residents he met, remembering how determined they all were to stop Arlong and what they had told him about Nami's dedication to freeing the village. As a result, Usopp can no longer justify his decision, bitterly denouncing how pathetic he is. He then yells out to Chew, who turns around to confront him. Usopp reflects that he needed to leave his comfort zone behind when he left his village, knowing that the true joy of being a pirate can only come from putting one's life on the line and giving one's all every day. Knowing that he has no right to sail or laugh with his crewmates if he does not fight seriously, Usopp shoots a Kaen Boshi at Chew.
+
+However, Chew easily snuffs out the shot with his water abilities, and punches Usopp hard in the face. With Usopp's blood dripping from his fist, Chew says it would have been smarter if the sniper had continued to fake his death. Usopp initially seems to be giving up, and Chew stomps on his chest, but he suddenly pulls his hammer out of his bag and hits Chew's leg with it. Usopp then shoots Chew with a rubber band, giving him enough time to run and hide in the woods. As Chew looks around, a bottle of rum suddenly comes flying toward him, which he catches. However, the bottle suddenly ruptures as Usopp shoots it with Namari Boshi, covering Chew in rum and cutting him with the bottle shards. Chew gets extremely annoyed with Usopp's stunts, and sucks in water from a nearby pool in order to draw out the pirate from his hiding spot. Though he is hiding, Usopp is intent on continuing to fight, although he becomes very frightened when Chew fires a large blast of water that brings down many of the trees nearby. The exasperated Chew finds Usopp while the latter is looking at the destruction, and barrages him with Hyappatsu Mizudeppo. Despite being utterly overwhelmed, Usopp still promises the people he left behind at home to act like a real pirate, saying his pretend pirate days are over. Chew then kicks down the tree Usopp is hiding behind, drawing blood as he is caught by its sharp edges. Chew wonders what Usopp said was over, and Usopp replies that it was their fight, shooting a Kaen Boshi that ignites the alcohol covering Chew's body, setting him ablaze and defeating him.
+
+## Characters
+
+Pirate, Marines, Bounty Hunter, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Usopp, Sanji, Arlong Pirates, Arlong, Hatchan, Chew, Kuroobi, Nami, Marine Ranks, Koby, Helmeppo, Cocoyasi Village, Nojiko, Genzo, Yosaku, Johnny

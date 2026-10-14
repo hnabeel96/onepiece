@@ -1,0 +1,55 @@
+# Chapter 1125: What Death Means
+
+Volume: 111  |  Arc: Egghead Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_1125 (CC-BY-SA)
+
+## Cover page
+
+Oni Child Yamato's Golden Harvest Surrogate Pilgrimage, Vol. 13: "The rebuilding of Oden Castle & Foreman Minatomo's disappearance."
+
+## Short summary
+
+As CP0 makes their return, while Saturn has a meeting with the Vice Admirals to evaluate the results of their mission. York discovers the Cloud Machines are active, resulting in Punk Records being moved into the sky. At Mary Geoise, while the World Nobles are suffering from the food shortage, Garling is given Saturn's position in the Five Elders, while Saturn himself is killed by Imu as punishment for allowing Luffy's escape. The consciousness and parts of the three destroyed Satellites are placed into a new body for Edison, while Dragon recognizes the repercussions of Vegapunk's message and knows they have to make a move before the world starts fighting over land.
+
+## Long summary
+
+The Cipher Pol agents prepare to load up the Seraphim once they finish charging, but just as they are about to decide what to do with the Sea Beast Weapons and Pacifista, Lucci and Kaku return to their ship, but when one agent asks where Stussy is, Lucci says she was killed by him.
+
+Elsewhere, Saturn tells the nine Vice Admirals that they were able to acquire everything they came to get at Egghead: York, Punk Records, and the power station, all of which will secure them access to the Mother Flame. However, despite the results, he feels they had a critical misstep. The Vice Admirals believe he is talking about letting Luffy and Bonney escape and request permission to chase them to Elbaph. Saturn, however, denies this, stating that the failure he was referring to was allowing Dr. Vegapunk’s message to play, not to mention the Iron Giant aiding in the pirate’s escape, which Saturn finds ironic. It turns out, roughly 200 years ago, it was Saturn himself who ordered the robot to be spared and studied for the sake of bulking their military might. Doberman speaks up and asks Saturn if what Dr. Vegapunk said in his message is true if he considers it a failure it was played, but Saturn injures Doberman in response, prompting all of the other Vice Admirals to clamor to find a medic. On Egghead, York realizes that the Cloud Plant will not stop producing clouds. Deducing this to be the work of Edison, she shoots at the factory from afar, but it is too late; the clouds have lifted Punk Records high into the air, far out of the reach of York and the World Government.
+
+In Mary Geoise, the World Nobles are panicking over their dwindling food supply, not to mention they are outraged by Dr. Vegapunk’s message and Sakazuki’s inability to handle Kuma’s escape. As for the other Elders, they are surprised when Garling enters their room wearing a new outfit, similar to theirs. Garling tells them that he has been given new orders, which is revealed to be that he is now the new Warrior God of Science and Defense, and therefore, York will be answering to him. His words, however, worry the four of them.
+
+Sure enough, on Egghead, Saturn falls to his knees in pain as a black substance starts flowing out of his body, while the Vice Admirals start panicking over what to do to help him. All they can do, though, is watch in horror as he starts shriveling. Saturn quickly realizes this is Imu’s doing, as they are angry he let “Joy Boy” escape. Saturn begs for Imu’s mercy, claiming the power of the Hito Hito no Mi, Model: Nika was too unpredictable, but his pleas fall on deaf ears as a massive explosion comes from Saturn’s body, reducing him to a skeleton, to the shock of the Vice Admirals.
+
+On Punk Records, Edison communicates with the rest of the destroyed Satellites, who survived their bodies' destructions and now inhabit Edison's body. Shaka and Atlas lament they could not bring the Fabriophase with them due to York’s meddling, while Pythagoras states that York can still upload what she learns to Punk Records from afar. However, doing it this way ensures they can keep it safe and ready for when the world can have access. They will have to be careful from here on out since everyone believes them to be dead, and they will not be able to build anything without resources, but they decide to leave that to their partners. By that point, the combined Vegapunk finishes assembling his new body, which combines parts of Edison, Shaka, Atlas, and Pythagoras, and they get in contact with Weatheria.
+
+In the Kamabakka Kingdom, the Revolutionary Army discusses Dr. Vegapunk’s message. Sabo realizes that the reason why the first World Nobles chose to live atop the Red Line was because it is the highest point in the world, keeping them safe from the rising sea. Ivankov also realizes that Tequila Wolf, Vodka Wolf, Rum Wolf, and Bourbon Wolf were created for the same reason. As for Dragon, he says that people who heard Dr. Vegapunk’s message will act out of self-interest and not out of peace, and therefore, they need to win before people start fighting each other over land.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*Lucci tells his subordinates that he killed Stussy.
+*It is revealed that Saturn has been alive for at least over 200 years.
+**Saturn was the one responsible for impeding Emet's disposal 200 years ago, as he intended to repurpose it into a military asset for the World Government.
+*Mary Geoise's food shortage starts deeply affecting the World Nobles.
+*Figarland Garling is appointed as a new member of the Five Elders, replacing Saturn as the Warrior God of Science and Defense.
+**For allowing Luffy's escape, Saturn has his Immortality seemingly stripped away by Imu as punishment, leaving only his own lifeless skeleton behind.
+*Edison is revealed to have survived and steals away Punk Records from York through a copious amount of Island Clouds from the Cloud Plant.
+**York shoots down the connection between Punk Records and the Labophase to prevent the latter from drifting away as well.
+**Shaka, Pythagoras and Atlas' consciousness now inhabit Edison's body, which has been rebuilt with spare parts from the destroyed satellites. 
+**A room in Punk Records is shown to have spare parts for all of the satellites. Atlas suggests disposing of York's spare parts.
+**The combined Vegapunk contacts Haredas of Weatheria.
+**Despite losing Punk Records, York can still remotely access its contents according to Pythagoras.
+**According to Shaka, it will take around 500 years for Punk Records to be accessible by humanity.
+*The Revolutionary Army intends to make a move.
+**Ivankov reveals that there are three other mega-structures similar to Tequila Wolf: Vodka Wolf, Rum Wolf and Bourbon Wolf.
+**Dragon believes the world will soon enter in conflict over habitable land.
+*This is the last chapter of the Egghead Arc.
+
+## Characters
+
+## Characters
+
+World Government, Revolutionary Army, Nerona Imu, Five Elders, Jaygarcia Saturn, Marcus Mars, Topman Warcury, Ethanbaron V. Nusjuro, Shepherd Ju Peter, Figarland Garling, CP0, Rob Lucci, Kaku, Hattori, Marines, Doberman, Doll, Hound, Guillotine, Red King, Tosa, Pomsky, Bluegrass, Urban, SSG, Vegapunk/York, Egghead, Vegapunk/Edison, Vegapunk/Shaka, Vegapunk/Pythagoras, Vegapunk/Atlas, Weatheria, Haredas, Wano Country, Yamato, Minatomo (Wano), Monkey D. Dragon, Sabo, Emporio Ivankov, Karasu, Belo Betty, Morley, Lindbergh, Jiron, Ahiru, Ushiano, Gambo, Koala, Emet

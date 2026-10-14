@@ -1,0 +1,54 @@
+# Chapter 726: The Riku Family
+
+Volume: 73  |  Arc: Dressrosa Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_726 (CC-BY-SA)
+
+## Cover page
+
+Color Spread: the Straw Hat Pirates pose with their younger selves. They each have a number on their clothing, matching the order in which they joined the Straw Hats. Some text in the background says "We can live how we want".
+
+## Short summary
+
+The fighters who lost the previous blocks are dumped in the pit full of toys with the other fighters. After some conversation, Ricky reveals himself to be Riku Doldo III, the former king of Dressrosa and Rebecca's grandfather. Many of the fighters in the holding cell show their respect to the former king, and Doflamingo's role as an agitator and arms dealer in inter-kingdom conflict is discussed. Suddenly, a thread of goo from the ceiling snares Sai and drags him up a tunnel, where Trebol, by unseen means, turns him into a toy and releases him out into the public. 
+
+Luffy tries to get a better view of the screen while discussing the dark nature of Dressrosa with the prisoner-gladiators, when all of a sudden he encounters Bartolomeo. 
+
+In the flower fields, Gancho reveals to Usopp, Nico Robin and Franky the cruelty of the Donquixote Family from 800 years ago, and how the Dwarfs were slaved up until the rise of the Riku Family. The dwarfs all agree that Doflamingo's presence is a terrible thing for the country, and that an incident framed King Doldo as a villain so he is undeservedly hated by Dressrosa today. Finally, the Thunder Soldier reveals that, before he was a toy, he was Rebecca's father.
+
+## Long summary
+
+More of the losing contestants of Block C of the tournament are dumped into the pit, and the group of fighters ponders how to escape. Ricky is amazed that such a place exists underneath the kingdom. Tank notices something about Ricky and steps forth, before hesitantly asking if he's the former king of Dressrosa. Ricky, having no reason to hide his identity any longer, removes his helmet and confirms that he is indeed the former king, Riku Doldo III. Tank weeps in happiness once this is revealed, as he was a former solider within the Riku army, even having entered the tournament to keep a watch over Rebecca. Elizabello II is likewise happy to see him and hugs him forcefully, stating that Doldo used to help out his kingdom in time of need. Sai, Boo and Chinjao are less accommodating however, and they confront King Doldo with the knowledge that Doflamingo rose to power due to his actions, which lead to his prominence as a black market arms dealer who would supply weapons to the enemies of the Kingdom of Kano. Sai also states this is the reason why the Happo Navy are in Dressrosa, to find and cripple Doflamingo's weapon supply. Daguma likewise talks ill about Doldo, but Tank steps forth and defends his former king. The pair argue, with Lepanto stating the events concerning Doldo's fall and Doflamingo's rise are uncertain, but Doldo stops him and makes both of them back down. Most of the gladiators also reveal that they are former members of his army. A few of the broken toys unexpectedly arise from the pile and they, along with the former soldiers, bow to Doldo to the shock of everyone present. Hack reports to someone on a Den Den Mushi.
+
+Suddenly, a glob lowers onto Sai and snatches him into the ceiling, and before anyone can react he is dragged through a tunnel into a dark room. An unseen process occurs, including Trebol ordering him to a factory; at the end of which, Sai finds himself turned into a toy monkey without control over his body, compelled to follow Trebol's orders as he marches out of a door into the public.
+
+Outside the prison cells, Luffy continues to cheer for Rebecca but begins to have trouble viewing her. He gets up to get a better look, and as he does he voices his concerns for Dressrosa, stating he can not help but wonder if something is amiss about the country. The prisoner-gladiators agree, stating that due to Doflamingo's rule, he has hidden the true, ugly nature of the island from his inhabitants and that losers like them are treated like living trash and are hidden away. Luffy immediately draws a parallel in his head to the Grey Terminal of his hometown of Goa Kingdom. The gladiators give him a warning to be careful as he leaves. As soon as he turns a corner into a crowded area, he is spotted by Bartolomeo, who screams and cries in admiration on finding him.
+
+Back at the Flower Fields, Gancho explains the past of the Tontatta Kingdom. 900 years ago, the dwarves had come to Dressrosa to find resources for their people. The former rulers, the Donquixote Family, had promised to help them, but in truth they enslaved them and forced them to make jewels and trinkets for them alone, away from the public eye. Not even they are certain of the events of that time, as it occurred during the Void Century, but eventually at the end of the 100 years the Riku Family took over as the rulers of Dressrosa. On learning of the plight of Tontatta, the king pleaded for forgiveness and offered to help them. The kingdom flourished during those peaceful years, with the dwarves granted lease to take small items from the humans of the island in the guise of fairies in return for small acts of kindness and the planting of flowers across the kingdom - until Doflamingo, heir of the Donquixotes, came to the island and through treachery overthrew the Riku Family and regained the throne. The tribe is determined not to go back to those dark days and plans to fight with all they have. After being told this, Robin asks Thunder Soldier about Rebecca and why the people hate her. He reveals it was due to the actions of Riku Doldo, who believed he was doing the best he could for the country, but who was misled into doing something terrible. The truth was hidden from the common citizens, who were led to see him as a bad and unfit king and revile him. The soldier tried his best to protect his granddaughter, but ultimately she was caught and thrown in the coliseum. Usopp then asks who he really is, to which the soldier reveals that he is Rebecca's father.
+
+## Notes & trivia
+
+## Chapter Notes
+
+* The cover hosts the first appearance of Brook as a child in the manga.
+* Ricky reveals himself to be Riku Doldo III, the former king of Dressrosa and Rebecca's grandfather.
+* Tank Lepanto and many of the former soldiers, including several transformed toys, are still loyal to King Doldo.
+* Elizabello II knows Doldo and admires his rulership.
+* Doflamingo was responsible for supplying weapons to many warring countries after he became king.
+* The reason Sai, Boo and Chinjao joined the tournament was to put a stop to Doflamingo's arms dealing on the black market.
+* Hack reports to an unknown individual via Den Den Mushi.
+* Sai is mysteriously transformed into a toy monkey and hypnotized by Trebol.
+* Bartolomeo finds Luffy.
+* The dwarves were once slaves to the Donquixote Family, and were given freedom when the Riku Family began their rule.
+* The dwarves lack any knowledge of the Void Century in spite of their long and otherwise well-kept history.
+* Thunder Soldier is Rebecca's father.
+
+## Characters
+
+: first introduction
+
+4: real identity revealed
+
+## Characters
+
+Pirate, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Nami, Usopp, Sanji, Tony Tony Chopper, Nico Robin, Franky, Brook, Donquixote Pirates, Donquixote Doflamingo, Trebol, Barto Club, Bartolomeo, Beautiful Pirates, Cavendish, Dressrosa, Kyros, Riku Doldo III, Tank Lepanto, Flower Country, Chinjao, Sai, Boo, Tontatta Kingdom, Gancho, Leo, Bomba, Rampo, Flapper, Inhel, Cotton, Prodence Kingdom, Elizabello II, Dagama, Corrida Colosseum, Rebecca, Abdullah, Jeet, Blue Gilly, Hack (Fish-Man), Kelly Funk, Ideo, Hajrudin

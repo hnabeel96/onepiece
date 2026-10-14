@@ -1,0 +1,29 @@
+# Chapter 259: Pirate Zoro vs. Warrior Braham
+
+Volume: 28  |  Arc: Skypiea Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_259 (CC-BY-SA)
+
+## Cover page
+
+Wapol's Omnivorous Hurrah, Vol. 21: "The Arriviste Wapol, Incorporated".
+
+Wapol's business reaches the peak of success: as the centerpiece of a brand-new '.
+
+## Short summary
+
+Zoro gets into a fight with a Shandia warrior, Braham. The battle goes by quickly, and Zoro finishes Braham off with a Pound Cannon. Gedatsu meets Chopper, and they prepare to battle. Finally, Enel appears on the Going Merry, and electrocutes Sanji, explaining he is "part of the game" now.
+
+## Long summary
+
+A tense standoff is underway between Roronoa Zoro and Braham, as the Shandia and God's Army continue to wage war against each other in the surrounding area. Braham suddenly launches into the air, and flips behind Zoro. Zoro is confused at how he was able to jump like that with no preparation, and he begins to remember Usopp explaining different kinds of wavers. He also notes that the lights from Braham's guns makes it difficult to pinpoint his position. Braham fires a barrage of bullets, but to his surprise Zoro evades while coming directly for him. Zoro prepares the "Tora Gari", and Braham makes note of his now drawn third sword. He escapes the technique by jumping to the milky road above him. Zoro follows him by running up a nearby tree and jumping towards the Shandia. While he's in midair closing in, Braham belittles the swordsman for his ignorance of wavers and dials. Holding up a small shell, he asks Zoro if he knows what it is before throwing it directly at him. It leaves a trail of cloud behind it as it reaches him, and Braham instantly closes the distance between the two, revealing it is a milky dial. Caught off guard, Zoro is knocked down to the milky road below as Braham asserts that randomly hopping around does not make him a sky combatant. An eel emerges from the road below to devour Zoro, but he slices it in half.
+
+Standing atop the defeated eel, Zoro muses that he could probably eat it if he cooked it. This temporary lapse of focus gives Braham an opening, and he wastes no time firing another barrage of bullets. This time he gets Zoro in the leg, before he manages to scurry away behind a tree for cover. Making note of his leg injury, Zoro decides that he has to take the guns out of the equation. Emerging from his cover with his goggles on, he tells Braham that his guns are now useless against him. Braham calls his bluff however, and knows that they aren't sunglasses. He continues by mentioning Zoro's disapproval of his guns and the leg injury that he sustained, promising that he'll finish the swordsman now. Removing the goggles, Zoro responds that it is just scratch, though mentally noting that he needs more training for allowing himself to get shot while admiring an eel. Braham fires at Zoro again, and he evades by jumping to the forest floor below. He grimaces in pain from the landing, but fights the urge to yell out his agony as he continues to dodge the bullets. When he finally stops shooting, Braham asks the swordsman if he's trying to run away. Holding up just one sword in front of him, Zoro explains that sight, sound, smell, taste, touch, and thought; the 6 senses, can be good, bad, or neutral (3 variations of each sense, 6x3 = 18). Furthermore, each of these can be pure, or tainted (2 variations of each, 18x2 = 36). These are the 36 earthly desires. Zoro tells the Shandian that he may have a pistol, but Zoro has a cannon aimed at him, which exceeds his weapon in both range and power. Throwing forward another Milky Dial to reach Zoro, Braham wonders if he's gone insane, and asks him where the cannon is. As he closes in, Zoro tells him to open his eyes wide, he's about to show him. Braham tells the swordsman to joke all he wants, and as he gets closer, Zoro unleashes an extremely powerful flying slash: the 36 pound cannon of the one-sword style (One Sword Style: Sanjuroku Pound Ho). Braham is sliced clean across the chest, and falls to the ground unconscious. As Zoro re-equips his bag, he tells Braham that this was nothing personal. The Shandia wanted to eliminate him however, and he's not the kind of person to just wait around for someone to kill him. He concludes that he plans on leaving the jungle very much alive.
+
+Elsewhere in the forest, the Priest "Sky Boss" Gedatsu is finishing off a group of the Shandia. Chopper unknowingly walks right by the Priest sobbing, too fixated on the fact that he's lost and doesn't know if he'll ever see the crew again. He wonders if he's doomed to die, and if so will he go to heaven, but comically asks himself if he's in heaven already. Noticing that he's come across ruins, he gets excited that everyone may already be there. All the while, Gedatsu wonders what a raccoon is doing there (the Straw Hats don't know what the Priests look like, and vice versa).
+
+Aboard the Going Merry, Nami and Usopp are extremely distraught, as Sanji appears to have been burned to a crisp. Gan Fall is distressed, and Usopp comments that he can't hear a heartbeat. Nami's eyes grow wide in fear, as Enel's laugh is heard. Enel is revealed to be sitting on the ship, and comments that Sanji was a fool for attempting to attack him. Gan Fall asks why he is here, and Enel replies that is a rather cold greeting for someone he hasn't seen in six years.
+
+## Characters
+
+Pirate, Sky Island, Straw Hat Pirates, Roronoa Zoro, Nami, Usopp, Sanji, Tony Tony Chopper, Wapol, God's Army, Enel, Gedatsu, Shandia, Braham, Skypiea, Gan Fall

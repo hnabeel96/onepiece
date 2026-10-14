@@ -1,0 +1,49 @@
+# Chapter 1170: Contrary
+
+Arc: Elbaph Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_1170 (CC-BY-SA)
+
+## Cover page
+
+Cover Page Request: "Jinbe as a station worker for the Eel Railroad giving passengers eel bentos for lunch" by PN 420 Land.
+
+The passengers are also shown as younger versions of the first seven Straw Hats.
+
+## Short summary
+
+Harald reveals nobody could eat Elbaph's legendary Devil Fruit because Ragnir did not choose anyone. Gaban and Shanks continue trying to stop Harald. Gaban reveals the Knights of God tried to take Shanks back several times. Harald continues causing destruction. Ragnir is revealed to have "consumed" a Squirrel-type Zoan Devil Fruit. Ragnir allows Loki to eat the Devil Fruit. Loki transforms and severely injures Harald, temporarily bringing him back to his senses. Loki tearfully unleashes a powerful lightning attack on Harald, shattering him to pieces.
+
+## Long summary
+
+Ragnir crashes into a pillar after Loki dodges it and he demands to know who threw it at him as he returns to eat the Devil Fruit in the chest, only to hear squeaking sounds coming from Ragnir. Suddenly, Ragnir causes the entire floor to begin collapsing from its weight, though Loki manages to avoid falling.
+
+Back with the guards and Harald, the latter proclaimed that Loki’s efforts to acquire the legendary Devil Fruit will fail because no one has actually been able to eat it due to Ragnir, as it is the guardian of the fruit and it attacks anyone it sees as unworthy of eating it. However, Harald believed that with his current strength as a Knight of God, he would be able to submit Ragnir. Just then he is attacked by Gaban and Shanks, the former noticing that the wounds they both inflicted onto him are causing him a great deal of pain and are recovering more slowly. Therefore, if they deliver enough consecutive hits, they can take Harald down. Gaban then tells Shanks that the one thing Knights of God are weak to are Supreme King Haki, as back then, the Knights constantly kept chasing after the Roger Pirates to take Shanks back, but he would attack them with Supreme King Haki attacks and eventually they would give up and leave. Shanks tells Gaban that he wants to save Harald, but Gaban solemnly says that Loki is their only hope of stopping him after hearing what Shanks said about the knights.
+
+Loki tries to force Ragnir to move but it refuses, so the two fight and Ragnir ends up destroying Loki’s hammer. After that, Ragnir transforms into a squirrel with the hammer on its head, reeling in pain after that attack. Ragnir decides to let Loki eat the fruit, and he does, acquiring incredible power, and just in time as Shanks and Gaban were struggling to fight Harald as he has Supreme King Haki as well. Loki confronts Harald in his transformed state and defeats him. As he channels his power through Ragnir, Harald regains his senses and acknowledges that Loki could also use Supreme King Haki as his son.
+
+With only a little bit of time left before losing control, Harald once again asks Loki to finish him as he sees himself beyond saving. Loki says that Harald was just under control, but Harald clarifies that the covenant was more like influencing his thoughts, as he felt like a god during the fight. He tells Loki that he has what it takes to lead Elbaph and asks if he can get along better with Hajrudin, but Loki calls him the worst for making him kill him like this. Harald then tells Loki that he wanted to thank him about Ida, revealing that he knew why Loki burned down Brewers Village, and though he knew it would not bring her back, he was moved by how much Loki loved her.
+
+As the covenant starts to take over, Loki tells Harald he won’t forgive him for making him do this, but Harald simply says he loves Loki too. Loki then unleashes a powerful attack on Harald with Ragnir that shatters him to pieces, leaving Loki distraught as he remembers Harald’s words to him about how the most important thing is securing their people’s future.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*Harald explains nobody was able to consume Elbaph's legendary Devil Fruit because Ragnir did not choose them. 
+*Gaban and Shanks keep trying to stop Harald with the assistance of the Aurust Castle giant guards.
+*Gaban reveals the Knights of God tried to take Shanks back several times, but the Roger Pirates simply beat them up.
+*Loki breaks his own hammer trying to stop Ragnir.
+*Loki is confirmed to have Supreme King Haki.
+*Ragnir has "consumed" a Squirrel-based Zoan Devil Fruit, and allows Loki to eat Elbaph's legendary Devil Fruit, which is revealed to be a Zoan-type.
+*Loki's transformation is still in silhouette, but he fights Harald and severely injures him.
+*Harald temporarily comes back to his senses and admits there is no undoing his actions.
+*Harald reveals he knows why Loki destroyed Brewers Village.
+*Loki tells Harald he will never forgive him, to which Harald replies he loves him too.
+*Loki tearfully uses Ragnir to unleash a massive lightning attack infused with Supreme King Haki at Harald that shatters him to pieces.
+
+## Characters
+
+## Characters
+
+Pirate, World Government, Elbaph, Harald, Loki, Ragnir, Jarul, Scopper Gaban, Red Hair Pirates, Shanks, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Nami, Usopp, Sanji, Tony Tony Chopper, Nico Robin, Jinbe, Knights of God, Shepherd Sommers

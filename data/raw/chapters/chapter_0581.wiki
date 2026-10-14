@@ -1,0 +1,123 @@
+{{Chapter Box
+| title             = Creeping Future
+| jname             = 忍びよる未来
+| rname             = Shinobiyoru Mirai
+| ename             = Creeping Future
+}}
+
+'''Chapter 581''' is titled "Creeping Future".
+
+==Cover Page==
+[[Buggy]] and [[Shanks]] enjoy eating and drinking at an [[Foods#Oden|oden]] stall run by a gorilla.
+
+==Short Summary==
+The news of [[Edward Newgate|Whitebeard]]'s death spreads around the [[world]]. The [[Super Rookie]]s are shown making their way through the rough ocean. In the meantime, it is revealed that more [[Impel Down|Level 6]] criminals have escaped, and that [[Donquixote Doflamingo|Doflamingo]] was ordered to eliminate [[Gecko Moria]].
+
+==Long Summary==
+[[Edward Newgate|Whitebeard]]'s death is chimed around the [[world]], leaving people to be glad that the great [[pirate]] had succumbed. Others turn to the path of piracy, ambitious about finding [[One Piece]] after Whitebeard confirmed its existence. Whitebeard's territorial islands are attacked, for example by [[Chadros Higelyges|Brownbeard]]'s [[Brownbeard Pirates|men]] who slashes the [[Jolly Roger|flag]].
+
+Back at [[Marineford]], the [[Super Rookie]]s (except [[Monkey D. Luffy|Luffy]], [[Trafalgar D. Water Law|Law]] and [[Roronoa Zoro|Zoro]]) make their way through the rough [[Blue Sea|ocean]]. [[Urouge]] and [[Scratchmen Apoo|Apoo]] seem afraid for the New Age, and [[Jewelry Bonney|Bonney]] is angry at an unspecified "[[Vegapunk|him]]". [[Basil Hawkins]] tries to figure out why Luffy's chances of surviving are never 0%. Then, [[Eustass Kid|Kid]] is on his [[Victoria Punk|ship]], pledging about the [[New World]] and the remaining [[Four Emperors]]: Red-Haired [[Shanks]], [[Kaidou]], and [[Charlotte Linlin|Big Mom]]. Then, back at the outer seas, Law's [[Polar Tang|submarine]] has emerged and is followed by a [[Marine Ships|Marine battleship]]. [[Bepo]] finds out that [[Boa Hancock]] chased the pirates, only worried about Luffy. Meanwhile, Law comes out of the surgery room, wiping blood off his hands. He says he did everything he could and Luffy is unbelievably damaged, and on the brink of death. Suddenly, the battleship has flood over with people from Newkama Land and [[Emporio Ivankov]]. Ivankov and Law talk about Law's relationship with Luffy. Meanwhile the [[Heart Pirates]] see Bepo's weak will against the Pirate Empress. Back at the ruins of Marineford, [[Sengoku]] is informed about the situation in [[Impel Down]].
+
+Sengoku is told about the ways [[Marshall D. Teach|Blackbeard]] worked, telling the Level 6 prisoners to kill each other and the winners will join the [[Blackbeard Pirates]]. He also suspects that more Level 6 prisoners might have escaped when he is told that there are missing prisoners. Sengoku tells [[Brannew]] that they should distribute wanted posters immediately. Brannew then tells Sengoku of the [[World Government|government]]'s order to keep the [[Impel Down Great Escape Incident|incident]] quiet and Sengoku becomes infuriated. Then, explosions fill the backstreets of Marineford. [[Donquixote Doflamingo|Doflamingo]] received orders to get rid of [[Gecko Moria|Moria]]. Moria coughs up blood after being attacked by [[Pacifista]] under the command of Doflamingo. Moria asks Doflamingo if it was Sengoku's order to which Doflamingo responds "Try higher!".
+
+==Quick References==
+===Chapter Notes===
+*All of the [[Worst Generation|Supernovas]]' [[ship]]s are revealed, but it is not clear exactly which ship belongs to which [[pirate]].
+*The nickname of the last [[Four Emperors]], [[Charlotte Linlin|Big Mom]], is revealed by [[Eustass Kid]].
+*A pirate named [[Chadros Higelyges|Brownbeard]] is revealed.
+*It is revealed that several Level 6 prisoners were also freed but names are unknown.
+*For the first time, [[Sengoku]] is seen questioning an order from the [[World Government]].
+*[[Donquixote Doflamingo|Doflamingo]] is ordered to kill [[Gecko Moria|Moria]].
+*This is the first chapter of the [[Post-War Arc]].
+
+===Errors===
+*In one panel where [[Marshall D. Teach|Blackbeard]] orders the Level 6 prisoners to fight to the death for their freedom he is seen with all his teeth.
+
+===Characters===
+{| class="CharTable"
+!colspan="2"| [[Pirate]]s
+! [[Seven Warlords of the Sea]]
+! [[Marines]]
+! Other
+|-
+|
+;[[Red Hair Pirates]]
+*[[Shanks]] (cover page)
+----
+;[[Buggy and Alvida Alliance]]
+*[[Buggy]] (cover page)
+----
+;[[Super Rookie]]s
+*[[X Drake]]
+*[[Capone Bege]]
+*[[Scratchmen Apoo]]
+*[[Urouge]]
+----
+;[[Bonney Pirates]]
+*[[Jewelry Bonney]]
+*[[Gyogyo]]
+----
+;[[Kuja Pirates]]
+*[[Salome]]
+----
+;[[Hawkins Pirates]]
+*[[Basil Hawkins]]
+*[[Faust]]
+|
+;[[Heart Pirates]]
+*[[Trafalgar D. Water Law|Trafalgar Law]]
+*[[Bepo]]
+*[[Penguin]]
+*[[Shachi]]
+----
+;[[Straw Hat Pirates]]
+*[[Monkey D. Luffy]] (K.O.)
+----
+;[[Blackbeard Pirates]]
+*[[Marshall D. Teach]] (flashback)
+*[[Van Augur]] (flashback)
+*[[Jesus Burgess]] (flashback)
+*[[Laffitte]] (flashback)
+*[[Doc Q]] (flashback)
+*[[Stronger]] (flashback)
+*[[Shiryu]] (flashback)
+----
+;[[Brownbeard Pirates]]
+*[[Chadros Higelyges|Brownbeard]]
+----
+;[[Kid Pirates]]
+*[[Eustass Kid]]
+*[[Killer]]
+*[[Heat]]
+*[[Wire]]
+|
+;Current
+*[[Boa Hancock]]
+*[[Donquixote Doflamingo]]
+----
+;Former
+*[[Jinbe]]
+*[[Gecko Moria]]
+|
+;[[Marine Ranks#Fleet Admiral|Fleet Admiral]]
+*[[Sengoku]]
+----
+;[[Marine Ranks#Lieutenant Commander|Lieutenant Commander]]
+*[[Brannew]]
+----
+;Others
+*[[Pacifista]] army
+|
+;[[Revolutionary Army]]
+*[[Emporio Ivankov]]
+----
+;[[Impel Down|Impel Down Prisoners]]
+*[[Dobby Ibadonbo]] (flashback)
+|}
+
+
+==Site Navigation==
+{{Post-War Arc}}
+[[ca:Capítol 581]]
+[[es:Capítulo 581]]
+[[it:Capitolo 581]]

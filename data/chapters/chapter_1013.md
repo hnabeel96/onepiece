@@ -1,0 +1,50 @@
+# Chapter 1013: Anarchy In The B.M.
+
+Volume: 100  |  Arc: Wano Country Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_1013 (CC-BY-SA)
+
+## Cover page
+
+Cover Page Request: "Sanji envisioning how he'll cook up a shark that looks like Zoro" by PN Ebi
+
+## Short summary
+
+Ulti manages to withstand Nami's attacks and grab her, but before Nami can be pulverized, Big Mom combines Prometheus, Napoleon, and Hera to fire a powerful laser that knocks Ulti unconscious. Zeus then approaches Big Mom, but she tells him his services are no longer needed and tells Hera to consume his soul and grow stronger. Big Mom then attacks Nami, Usopp, and Tama as they flee from her, but Kid arrives and intercepts her, telling the Straw Hats to leave the Emperor to him.
+
+Meanwhile, Kaidou has defeated Luffy once again and has knocked the unconscious pirate clean off of Onigashima towards the sea, but the Emperor is left with regret that he did not ensure Luffy had died and thus take away the alliance's hope in him.
+
+## Long summary
+
+Usopp tells Nami that they should get away, as Ulti will get up soon and they have no chance of handling either her or Big Mom. Nami responds that Ulti will chase them either way, and it is important that the enemy pirate gets what is coming to her. As Ulti gets up, Nami attacks her with Tornado Tempo, but the Shinuchi easily dodges and grabs Nami by the arms, preparing to pulverize her skull once and for all with a headbutt. However, Big Mom then merges Hera, Prometheus, and Napoleon and uses them to fire a powerful laser at Ulti in an attack she calls Maser Ho. The shot easily pierces through Ulti's body and knocks her unconscious, leaving the Beasts Pirates onlookers in shock.
+
+Usopp and Nami take advantage of this to run away with Tama, telling her they have no choice but to leave the unconscious Komachiyo behind for now. Nami then sees Zeus peeking out from behind a corner, and wonders who Hera is. Prometheus and Napoleon talk with Hera about how they form a great team and Prometheus asks Hera to be his girlfriend, but Hera brushes them off and rejects Prometheus' advances. Zeus starts to cry in worry upon seeing his fellow special homies talking with Hera, and when he sees Nami, he tries to approach her, only for Nami to coldly ignore him. Big Mom then calls out to Zeus, and he apologizes for being late and tries to see if Hera is simply an addition to their group. However, Big Mom tells Zeus that he has been replaced, with Prometheus and Napoleon chastising him for almost letting Big Mom die earlier as well as his many other mistakes in the past. Big Mom then tells Hera to go and eat Zeus and become stronger by absorbing his soul, and as Hera bites into him, a panicked Zeus apologizes to Big Mom and promises to leave her alone if she lets him go. However, Big Mom responds that this would be stealing the piece of her soul she gave him, and that the best thing Zeus could do for her is to let Hera eat him.
+
+Big Mom then plucks Tama out of Usopp's grasp to keep her safe as she goes to attack the Straw Hat duo. Zeus then desperately calls out to Nami and begs her to forgive him for defecting back to Big Mom, which he admits was out of cowardice. Nami refuses to forgive Zeus, and he accepts this, but says he will make it up to her by going against Big Mom before he dies. Zeus then charges himself up with storm energy as he charges toward Big Mom, but quickly runs out of energy as Big Mom grabs him without issue. Big Mom then sucks out much of his soul and gives the remainder of his body, now essentially a soulless husk, for Hera to finish off. Nami unleashes some Black Balls for Zeus to eat so he can escape, but Zeus is incapable of consuming them. Hera then fully consumes him and also bites into the Clima-Tact, causing her power to grow immensely. Usopp is able to get Tama back, and as the trio runs from Big Mom, she readies a flame-powered Napoleon and asks if she will have to kill Tama as well for leaving her. However, Kid then arrives and intercepts Napoleon with a giant metal arm. He then successfully forces Napoleon back and grabs Big Mom's head to slam her into the ground with Punk Gibson. As Big Mom quickly gets back up and shakes off the impact, Kid tells the Straw Hats to leave the Emperor to him, much to their delight.
+
+On the Skull Dome roof, Kaidou stands alone as he remarks that Luffy let his new power go to his head. However, as the unconscious Luffy falls from Onigashima, Kaidou is actually regretful as he notes that due to his failure to fully finish the pirate off, his allies will still maintain their hope and belief in him.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*Ulti recovers from Nami's attack and prepares to headbutt her.
+**Big Mom combines her Homies to attack Ulti, piercing her body, and knocking her out.
+***Hera is fully shown.
+**Zeus has reached the area and is saddened about being replaced.
+*Big Mom takes Tama away and prepares to attack Usopp and Nami.
+**Zeus tries to save Nami, but is stopped by Big Mom.
+**Nami tries to strengthen Zeus by feeding him Black Balls but Big Mom drains Zeus' soul fragment before he can eat the balls.
+***Hera eats both Zeus and the balls.
+**Big Mom's actions encourage Tama to go back to Usopp and Nami, and the three attempt to escape.
+**Big Mom, who is deeply hurt by Tama abandoning her, tries to attack the group but is stopped by Kid.
+*Kaidou has defeated Luffy once more. 
+**Luffy has been struck entirely off of Onigashima, and is shown unconscious falling to the sea.
+
+## Characters
+*The title of this chapter is in reference to the song "Anarchy in the U.K." by the Sex Pistols.
+**The initials in the title refer to Big Mom.
+
+## Characters
+
+Pirates, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Nami, Usopp, Sanji, Kid Pirates, Eustass Kid, Beasts Pirates, Kaidou, Ulti, Big Mom Pirates, Charlotte Linlin, Napoleon, Zeus, Prometheus, Hera, Wano Country, Tama, Komachiyo

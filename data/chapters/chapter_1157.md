@@ -1,0 +1,49 @@
+# Chapter 1157: Legendary Bar
+
+Arc: Elbaph Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_1157 (CC-BY-SA)
+
+## Cover page
+
+Oni Child Yamato's Golden Harvest Surrogate Pilgrimage, Vol: 39: "He fought against Kaidou to protect his village, but perished without leaving a body behind"
+
+## Short summary
+
+As the Rocks Pirates continue wreaking havoc on the seas, their notoriety only gets higher despite having been together for only two years. Rocks continues trying to recruit Harald to join his crew but Harald keeps turning him down in order to make Elbaph a member of the World Government, despite running into complications. Shakuyaku quits as the captain of the Kuja Pirates, which shocks the entire world. Shakuyaku then arrives on Hachinosu and sets up a bar on the island, with many of the pirates, even members of the Rocks Pirates, being enamored by her, and they allow her to stay. The Five Elders declare they are willing to allow Elbaph to be a member nation on one condition: the warriors of Elbaph must kill Rocks.
+
+## Long summary
+
+One of the places the Rocks Pirates hit was the International Philanthropy Federation. As they were escaping with the loot, the high priest begged them not to take their treasure, claiming it was donated for the sake of hungry children. Linlin, however, retorts that if that was true, the money would have been handed over by this point. Therefore, the entire place is a scam to horde treasure. Ochoku was contacted by some of the others down below and he tells Shiki to take care of it. Instead, Shiki throws a bomb down hoping it would kill some of them so the survivors can have a bigger cut. The high priest manages to seal the gates and trap the pirates, but just as Linlin was preparing to break the gates down, Newgate uses his Devil Fruit powers to upheave the entire place. Once free, Kaidou admits he is jealous of Newgate's powers, so Newgate advises that Kaidou take his time and figure out the Devil Fruit he wants most if he’s serious.
+
+Kyo demands to know who it was that tried to leave them for dead, and after Shiki lands next to him, he figures it was him, prompting a fight between the two. Rocks scolds them for their foolishness just as he sees the Marines have arrived, with Newgate wondering if someone tipped them off they were here since they came so soon. Instead of ordering his crew to flee, Rocks orders they hit back against the Marines and take everything they have. The narration reveals that in the two years since the crew's founding, the Rocks Pirates had committed sixteen raids, sunk seventy-six ships, burnt fourteen ports to the ground, leveled five towns, brought one kingdom to ruin, violated an article of World Law three times, and had twenty-five crimes conveniently covered up; simply put, even with the future Pirate King Roger out at sea, this time period was often considered the "Era of Rocks".
+
+Meanwhile, Harald's attempt to repay his debt to the country of Enishi for helping Elbaph during their time of famine encountered trouble when the people were taken prisoner by the World Government, as by their admission, the country is unaffiliated, and therefore they have no rights. Harald refused to accept this and tried to help, but one of the agents tells him if he helps them it will severely harm his chances of getting Elbaph allied with the government before callously shooting one of the prisoners. Harald becomes enraged and attacks the ship, and the newspaper paints Harald as a villain who attacked an innocent ship under the pretense of forging an alliance with the World Government.
+
+At Ida's bar, Harald and Rocks meet for a drink, with Rocks saying he expected the government to lie and make him look bad, and Harald and the rest of Elbaph should just join him in taking them down as Rocks cannot stand seeing his friend bow to them anymore. Harald once again refuses, swearing he will get Elbaph aligned with the World Government legitimately one day, but Rocks asks if by shaving his head Harald can get them to cooperate. Rocks' words reminds Harald that Garp laughed at him too, and upon hearing his name, Rocks muses that Garp would have made an excellent pirate because he hates the top brass. Harald admits the World Government has some bad seeds because it is so huge, but he considers the Marines a fine army, and if he can get more members recruited like John Giant, he believes they can truly make a difference in the world, but Rocks simply says giants in the Marines is a terrifying thought. Rocks tries to get Ida to talk some sense into Harald, but she simply says that if Harald were her son, she would tell him to pick better friends, to his chagrin.
+
+At Marine Headquarters, the then-Admiral Kong explains to Garp, Sengoku, and Tsuru why the World Government refuses to coexist with giants (according to them), but Garp considers it ridiculous and says the giants' incredible strength is exactly what the Marines need. Sengoku calls Harald an honest man who's trying to atone for his history's past, while Tsuru brings up rumors that Rocks is scouting him. Kong, however, says there is too much bad blood from the past that is keeping things from changing. Garp tells Kong to make Elbaph a member nation, but Kong says he is unable to do anything about it.
+
+Forty-two years before the present, news began spreading that Shakuyaku had left the Kuja Pirates, which devastates several people who were hoping to see her at least once out at sea. Gloriosa, who had joined the Rocks Pirates by that point, wonders why Shakuyaku would do something, and Linlin asks if it is because she fell for a man and chose to chase him, musing that love might be the end of the Kuja one day. Gloriosa, however, retorts that someone like Linlin, who has given birth to several children by this point, would never understand the anguish of love, but Gloriosa does not think she is the type to get Love Sickness. One day, Shakuyaku is brought to Hachinosu by Tritoma, revealing to the lovestruck pirates that she has chosen to hide here for awhile and if they can protect her during that time, which they all happily agree to. When the Rocks Pirates return to Hachinosu, they see that Shakuyaku, now being called "Shakky", has opened up her legendary "Rip-Off Bar". All of the Rocks Pirates were instantly swayed by her and agreed to let her stay, and in time, Shakky became known as Hachinosu's "treasure"... one worthy of being stolen by another.
+
+As for Harald, the Five Elders decide to allow Elbaph to join the World Government on one condition: they kill Rocks themselves.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*The Rocks Pirates loot the International Philanthropy Federation and destroy the Marines sent to stop them, adding to their growing infamy since the crew's formation two years ago.
+*Harald attacks a World Government battleship abducting the residents of Enishi, to whom he owes a debt, leading to further complications in his attempts to have Elbaph join the World Government.
+*Rocks continuously tries to convince Harald to join his crew, but Harald keeps refusing.
+*Garp, Sengoku and Tsuru try to convince Kong to recruit more giants into the Marines but the World Government refuses due to Elbaph's past reputation.
+*Shakuyaku quits as captain of the Kuja Pirates, shocking the entire world.
+*Shakuyaku arrives on Hachinosu and sets up a bar, and the Rocks Pirates allow her to stay and regard her as Hachinosu's treasure.
+*The Five Elders declare Elbaph will be allowed to join the World Government on the condition that they kill Rocks.
+
+## Characters
+*Similar to Chapter 1098, a few of the first pages of this chapter appear to be unfinished in the Weekly Shonen Jump 2025 issue 38 release.
+**This chapter was redone by the time of Volume 114 release.
+
+## Characters
+
+Pirate, World Government, Rocks Pirates, Rocks D. Xebec, Edward Newgate, Shiki, Buckingham Stussy, Marlon, Ochoku, Ganzui, Charlotte Linlin, Kaidou, John, Streusen, Kyo, Barbel, Gloriosa, Prometheus, Zeus, Five Elders, Jaygarcia Saturn, Marcus Mars, Topman Warcury, Ethanbaron V. Nusjuro, Marines, Kong, Monkey D. Garp, Sengoku, Tsuru, John Giant, Elbaph, Harald, Ida, Hajrudin, Loki, Mato, Hachinosu, Shakuyaku, Charlotte Katakuri, Charlotte Daifuku, Charlotte Oven, Wano Country, Yamato, Kikunojo, Cho, Ulti, Page One

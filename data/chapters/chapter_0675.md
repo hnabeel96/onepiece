@@ -1,0 +1,57 @@
+# Chapter 675: I Call It "Shinokuni"
+
+Arc: Punk Hazard Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_675 (CC-BY-SA)
+
+## Cover page
+
+Caribou's Kehihihihi in the New World Vol. 2 - "Don't Run Away, Mermaids~~!!"
+
+Caribou resumes his mermaid kidnapping spree on Fish-Man Island.
+
+## Short summary
+
+Caesar Clown and the children disembark from the Flying Gas Balloon, and enter the research laboratory. The children are told by Caesar that their candy that they've been craving for is located in the Biscuits Room, and they all hurry there eagerly except Mocha, who somehow resists the addictive drug. She tries to escape and screams out to Nami and Usopp for help.
+
+In the laboratory, Caesar meets with Monet and Vergo, ready to start the experiment. He reveals that he knows all of Law's plans thanks to Monet's abilities, and thanks Law for naïvely giving him his heart as part of their contract. Caesar resumes his broadcast to the brokers, explaining that by eating the special bait he prepared, Smiley will become Shinokuni; a stronger poisonous gas weapon than it was four years ago. Smiley continues to chase after Sanji, Zoro, Brook, and Kin'emon, before spotting a giant sweet in the distance. Ignoring Caesar's order, it consumes it in a single gulp.
+
+## Long summary
+
+Caesar Clown and the children are seen disembarking from the Flying Gas Balloon, surprising the nearby Marines who question what the ship is. Entering the research laboratory through an upper entrance, Caesar reminds the children are that the lab is their home and their candy is in Biscuits Room. Ordering his subordinates to lock the doors and to make sure they do not escape again, all of the children hurry inside eagerly, with the exception of Mocha, who upon entering begins to resist the addictive drug and remembers her frightening memories of the Lab. Some of the satyrs try to calm her down, but she finally remembers Nami and Usopp who were telling all the children not to follow Caesar and trying to save them. Realizing exactly what had happened, she begins to try and escape again, crying out for Nami and Usopp to help her.
+
+Far in the distance, back at the Straw Hats' make-shift hide out, Nami eventually regains consciousness, marveling at how Sanji's strong body allowed her to survive Caesar's attack. Noticing Usopp beginning to awaken nearby, she moves to assist him. Confusing her with the real Sanji, Usopp let's slip his disappointment in it actually being Nami causing her to become rather abrasive.
+
+Back in the laboratory, Caesar meets up with Monet and Vergo, the latter of the two talking about how they had just been drinking coffee with some cookies, only to quickly remember that there wasn't any cookies to be had. Asking Caesar when is he going to start the experiment, the mad scientist replies by asking Monet to collect some pictures, and tells Vergo to do a better job at keeping the Marines at bay, admitting that the arrival of Smoker and his men had caused him to become nervous.
+
+Moving towards the cage, Caesar then reveals that he knows all of Law's plans due to Monet's tracking Law with her abilities, and thanks Law for naïvely giving him his heart in exchange for Monet's heart as part of their contract. Responding to Caesar's condescending gloat by insulting his intellectual abilities, Caesar becomes infuriated and grabs Law's heart (which had been being held out by Vergo), and squeezed it, inflicting pain upon the Shichibukai. Luffy, impressed and shocked at how he can still survive despite his heart no longer being inside his body, is cut off by Smoker who demands to know where his heart was currently being held. Holding it out before him, Caesar gloatingly mocks him about it.
+
+Receiving a call from his subordinates, Caesar then resumes his broadcast to the brokers through a Den Den Mushi, explaining the nature of his pet/weapon Smiley and the history of the island. Pinpointing the one flaw of the weapon from four years ago, he then elaborates and explains that he had since eliminated said flaw, and by feeding Smiley with a special bait he prepared, the poisonous axolotl would become an improved weapon called Shinokuni; being an even stronger poisonous gas weapon than it was before.
+
+Outside in the winter region, Smiley is shown to still be chasing after Sanji, Zoro, Brook, and Kin'emon, who marvel at its still growing size. They notice a giant sweet in the distance with a big screen behind it and something underneath. Pulling the sweet across the plains, several of Caesar's subordinates and Vegapunk's dragon are then told by Caesar to escape before Smiley caught up to them. Realizing their sled was no longer usable, and the dragon having freed itself, the men quickly run away with the Straw Hats and Kin'emon trailing shortly behind. Reaching the sweet, Smiley briefly pauses after seeing Caesar on the display. Attempting to show his taming of the monster, Caesar begun issuing orders for the slime only to be ignored, with the monster quickly devouring the large sweet.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*The children return with Caesar Clown to the research facility and go back to the Biscuits Room for the addictive candy.
+*Mocha's fear of the facility combined with the hallucinogenic effects of her withdrawal counteract each other and she tries to escape from the research facility.
+*Nami and Usopp survived Caesar's attack.
+*It is revealed that Law and Caesar made a deal. By using his ability, Law gave up his heart for Monet's in order to make himself weaker so Caesar will allow him to stay on Punk Hazard.
+*Caesar states that Monet is able to transform.
+*By gripping Law's heart, Vergo and Caesar are able to inflict pain on Law.
+*Caesar resumes the video Den Den Mushi broadcast to brokers in various parts of the New World.
+*It is shown that there is another dragon belonging to Vegapunk.
+*All of Smiley's parts are heading to the center of the Ice Lands and once they become whole again, the experiment will start.
+*Caesar explains that Smiley is made of H2S gas, which means it is a bomb made of poisonous gas.
+*Caesar states that Smiley has one "issue" which is if anyone gets poisoned by it, they will be weakened, but they still can escape to a safer place.
+**However, by giving Smiley a special bait, the poisonous gas will develop, removing the one "issue" it has, turning it into a perfect weapon of mass destruction, which will be named Shinokuni.
+*Sanji, Brook, Zoro, and Kin'emon are once again seen running away from Smiley.
+*Smiley quickly eats the bait, ignoring Caesar's order to wait.
+*The silhouettes of four unknown brokers are seen.
+
+## Characters
+
+## Characters
+
+Pirate, Marines, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Nami, Usopp, Sanji, Nico Robin, Franky, Brook, Seven Warlords of the Sea, Trafalgar D. Water Law, Caribou Pirates, Caribou, G-5, Vergo, Smoker, Tashigi, Punk Hazard, Caesar Clown, Monet, Smiley, Wano Country, Kin'emon, Sind, Mocha, Doran, Uzu, Konbu, Biyo, Ally, Dragon Number Twenty-One

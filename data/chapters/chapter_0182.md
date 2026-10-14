@@ -1,0 +1,25 @@
+# Chapter 182: Roar
+
+Volume: 20  |  Arc: Arabasta Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_182 (CC-BY-SA)
+
+## Cover page
+
+Hatchan's Sea-Floor Stroll, Vol. 1: "Jailbreak".
+
+From a Marine ship bound for some unknown place, a six-armed figure leaps overboard, into the endless sea.
+
+## Short summary
+
+Vivi attempts to stop Koza from leading his men into Alubarna, but an undercover Baroque Works agent blocks the two with cannon fire. The rebels are unable to see Vivi, and they charge into Alubarna, causing the battle to begin. Usopp then comes to take Vivi to Alubarna, but Karoo realizes it is not the real Usopp and carries Vivi away; Usopp then turns into Mr. 2 Bon Kurei, and the agent pursues the princess.
+
+## Long summary
+
+With Crocodile's orders to not let Vivi and Koza see each other ringing in the minds of the Baroque Works agents, Koza leads the rebels to Alubarna to battle. The impact of more than two million rebels charging causes the cannonballs in Alubarna's fortifications to shake, and right outside Alubarna stand Vivi and Karoo, with Karoo standing steadfastly by his master despite the possibility of them being trampled. Vivi sees Koza's rebels approaching in the distance, and Koza unsheathes his sword as he orders his troops to head through the South Gate so they can bring down the other gates from the inside. As they draw closer to her, Vivi shouts at the rebels to stop, saying this fight is a setup. This piques Koza's attention, but a blast of cannon fire erupts between him and Vivi. He asks his men if they saw a silhouette in front of them, but they do not care, thinking that the forces in Alubarna have already started shooting at them. Vivi is bewildered by the cannon shot, and in Alubarna, Chaka shouts at the soldier who fired before being given the order. The soldier apologizes and claims it was an accident, but in reality is an undercover Baroque Works agent who intentionally did it.
+
+The rebels continue charging undeterred through the sand cloud created by the blast, and Vivi continues shouting in desperation. Koza seems to hear her, but decides that it is just his imagination as he charges right beside Vivi without seeing her. Vivi is shocked to see Koza going past her, and turns around and continues calling out to him, only to be struck by the thousands of oncoming soldiers riding on their camels, and Karoo desperately tries to save her. The rebels draw closer to Alubarna, and Chaka gives the order to fire the cannons as the royal infantry comes out to meet the rebels in battle. Meanwhile, Vivi nurses her wounds, having been saved from being trampled by Karoo, who took the brunt of the damage. Vivi is depressed by their failure, but knows there is still a chance to stop the battle so long as she can get to the site of the current clash, reminding herself of learning from the Straw Hat Pirates to never give up. Suddenly, Usopp comes to Vivi on horseback, telling her to get on. However, right at this moment, the real Usopp is with Matsuge in Alubarna, sheepishly telling Sanji after their ducks had come to him for help that Mr. 2 Bon Kurei defeated them in two seconds. With Mr. 2 nowhere in sight, Sanji realizes that Vivi must be in trouble, and outside Alubarna, the fake Usopp tells Vivi to leave Karoo behind so they can get going. Vivi is bewildered that Usopp did not refer to Karoo by his name, remembering the camaraderie the two had shown before. She then tells Usopp to prove himself, and he shows the cloth on his left arm. However, Vivi immediately knows that he is an impostor, and Karoo picks her up and runs away as fast as possible. Turning back into his real self, Mr. 2 wonders how they knew he was a fake, having heard from Crocodile about the Straw Hats having a cloth on their arms. He then prepares to pursue Vivi and Karoo, saying they will not get away.
+
+## Characters
+
+Pirate, Baroque Works, Animal Species, Straw Hat Pirates, Usopp, Sanji, Arlong Pirates, Hatchan, Arabasta, Nefertari Cobra, Nefertari Vivi, Chaka, Koza, Erik, Farafra, Kebi, Crocodile, Bentham, Karoo, Matsuge

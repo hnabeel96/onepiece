@@ -1,0 +1,28 @@
+# Chapter 6: The First
+
+Arc: Romance Dawn Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_6 (CC-BY-SA)
+
+## Short summary
+
+Luffy finally manages to free Zoro, and the two take out all of Morgan's soldiers. Luffy fights with Morgan, but is forced to stop when Helmeppo threatens to shoot Koby. While Luffy saves Koby by taking out Helmeppo, Morgan takes the chance to attempt to kill him, but is stopped by Zoro.
+
+## Long summary
+
+Morgan tells his men that Luffy must have eaten a Devil Fruit and that he is not a normal human. Realizing guns will not work; the Marines attack Luffy while he is trying to untie Zoro. Koby awakens after fainting when Luffy was shot at to see the Marines charging at Zoro and Luffy. Luffy manages to untie Zoro and hands him his swords.
+
+After freeing himself, all the charging Marines find their swords are locked by Zoro's three swords. Zoro threatens to kill anyone who moves and the Marines cry with fear. Zoro tells Luffy he has already declared he will join him after this, as the Marines will declare him a criminal either way. He lays down the conditions for him to join Luffy, warning him that his plans have better not interfere with his own dream of becoming the greatest swordsman.
+
+Morgan calls out to his men to fight them and Luffy tells Zoro to duck. Luffy knocks all the Marines who currently have their swords locked against Zoro's swords. The Marines complain that they cannot defeat the pair. Morgan orders his men to hold their guns to their heads for disobeying him. Luffy proclaims that he is the Marines' worst enemy and dares Morgan to attack him. The fight presumes, and Morgan cuts a fence in half with his axe-hand.
+
+Morgan proves to have high endurance as neither man manages to knock the other to the ground. As Morgan is knocked around by Luffy, Helmeppo holds a gun to Koby's head and threatens to kill him. Koby tells Luffy to continue, but Luffy ignores him and lands a punch on Helmeppo. Morgan takes advantage of this to attack Luffy, but is defeated by Zoro.
+
+## Notes & trivia
+
+*This is the second chapter without a specific Cover Page (the first being Chapter 4 and the third being Chapter 1024).
+*This chapter begins the (as-yet incomplete) motif of titling select chapters after the Straw Hat Pirates' joining order. This motif will next occur with  in Chapter 68.
+
+## Characters
+
+Pirate, Marines, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Captain (Marine Rank), Morgan, Shells Town, Helmeppo, Koby

@@ -1,0 +1,35 @@
+# Chapter 382: Demon Lair
+
+Volume: 40  |  Arc: Enies Lobby Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_382 (CC-BY-SA)
+
+## Cover page
+
+Miss Goldenweek's "Operation: Meet Baroque Works", Vol. 18: "The Figure Fleeing Kyuka Island".
+
+One Baroque Works fugitive has no qualms about leaving Miss Valentine to her fate: Mr. 3, who has somehow also wound up on Kyuka Island, but even now races for his ship.
+
+## Short summary
+
+The Straw Hat Pirates charge in further while Spandam kicks and hurts Robin and Franky. Blueno notices that the snail phone's receiver is off the hook. After being dismissed by Spandam, he goes to check on things outside and meets Luffy.
+
+## Long summary
+
+An agent on the island hears an odd noise. A Marine tells him something is coming. The noise turns out to be Sodom and Gomorrah plowing through the foot soldiers. Another Marine recognizes them as the pirates who broke through the main gate. Sanji tells the king bulls to take them to Luffy.
+
+In the island's administration tower, Spandam is talking to a tied up Franky, saying that he would not have had to suffer if he knew Franky was alive and in possession of the Pluton blueprints. He says it would have been too easy to capture him using the sins of his past. He also comments on how annoying Iceburg was. Spandam reveals how after Tom's death, Iceburg united the major shipyards of Water 7 under one name, allied with the World Government and became a World Government purveyor. He then became president of Galley-La Company and mayor of Water 7. His position made him indispensable to the point that not even CP9 could lay a hand on him. Franky then remembers talking to Iceburg about him agreeing to build government ships, saying he would never forgive him for doing it. Franky then understood why Iceburg allied with the World Government. Spandam comments on how smart Iceburg was, but that now the winds of change were blowing in his direction.
+
+Then, just as he was about to start a reinforcement plan, Spandam received some good news from Aokiji, that Nico Robin was on her way to Water 7. Spandam goes on to say that after the receiving the information he had a cup of coffee and incorporated his access to the Buster Call into the plan. He then comments how the two keys to reviving the Ancient Weapons (Franky and Robin) were right in front of him. He then says that the power to take over any nation will soon be in his grasp. Robin then asks why Aokiji would trust Spandam with the Buster Call. Spandam, taken aback, punches Robin not to question him, calling her an insolent woman, and the abominable blood from the "Devil's Land", Ohara. He goes on to say that the value of Robin's existence would be nothing if it weren't for him, telling her to be thankful. He then tells Robin that she will suffer so much pain that she will wish for death countless times. He will beat her, use her, and cast her off into the sea, saying her existence is that sinful. He also says that the people who tried to take her back are there too, the Straw Hat Pirates. He calls Luffy garbage compared to the ten thousand Marines on the island, saying Luffy will be sent to Impel Down. Robin gets angry, saying that it was not part of the deal. She only agreed to cooperate with them so long as the Straw Hats could escape safely. Spandam called her desperate and then asked Lucci to recite the exact deal she had made with CP9. Lucci states "The six members of the Straw Hat crew, minus Robin, shall depart from Water 7 in peace". Spandam said that they left Water 7 to come there, meaning the contract was upheld. Robin was shocked that Spandam would violate their agreement using such a technicality. Franky says that there is nothing she can do against them, as they have botched sense of justice. Spandam kicks Franky out of anger, saying there was no point in keeping a promise with criminals in the first place and he and Robin give themselves too much credit. Spandam says they tricked the pirates and caught them, which was considered an acceptable method used by the Marines. Robin calls him a coward and Spandam says he will choose an acceptable demise for her, and that she and Franky can die together, as they are both powerless before justice.
+
+Luffy is still plowing through the Marines and government agents. One soldier even comments to his commander how scary Luffy is. Luffy then sees a dead end, but that he would still get Robin out safely.
+
+Back with CP9, Blueno asks Fukurou if the Straw Hat Pirates had shown up. Fukurou replies that they received word of it earlier and that Spandam was so distracted by the news that it was embarrassing but they only lost five people. Blueno then notices that the Den Den Mushi's transceiver is off the hook. Spandam orders for Robin to be chained up. He ordered for Franky to go to Impel Down and for Robin to go to the Marines Headquarters and to take them through the Gates of Justice as soon as the convoy was ready. He then tells the members of CP9 to go back to their rooms and rest. Spandam says CP9 will certainly be recognized for this and they would toast the turn of events on the ship. Rob Lucci then tells Spandam that is not in the mood for a toast and has no interest in status or authority. Lucci says that their brand of justice exists for the World Government and that the government recognizes Spandam as the leader of CP9 and it is their duty to complete their missions perfectly. However, Lucci goes on to say that he does not necessarily have to support Spandam's ideals. Spandam then asks Lucci what he wants. Lucci transforms into his animal-human hybrid form and answers blood, saying if he is there, even death is justifiable.
+
+As Rob Lucci and the others leave to go to their rooms, Spandam thinks about how much Lucci gives him chills, and that this surely must be the government's only assassin group, and with individuals as promising as them, Spandam feels like he cannot lose to anyone.
+
+In front of the courthouse, the soldiers report losing sight of Luffy. The guards are ordered to search for him. As it turns out, Luffy is on the roof of the drawbridge building, looking at the courthouse building, realizing there is no way to cross over to it. An Air Door opens in front of Luffy, and Blueno steps out. Luffy recognizes him as "the cow guy that was with the pidgeon guy". Blueno comments on how their intelligence division really messed up the information. Luffy asked how Blueno got there, saying his door was cool, and asking if he was a magician. Blueno remarks how a man breaking in all the way to the front steps of the government was unheard of. He then asks Luffy how long he plans on resisting. Luffy answers until the day he dies.
+
+## Characters
+
+Pirate, World Government, Bounty Hunter, Baroque Works, Shipwright, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Nami, Sanji, Tony Tony Chopper, Nico Robin, CP9, Spandam, Funkfreed, Rob Lucci, Hattori, Kaku, Kalifa, Blueno, Kumadori, Jabra, Fukurou, Franky Family, Franky, Mozu and Kiwi, Zambai, Kiev, Sodom, Gomorrah, Officer Agent, Galdino, Galley-La Company, Iceburg, Water 7, Yokozuna

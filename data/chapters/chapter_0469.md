@@ -1,0 +1,33 @@
+# Chapter 469: Show Yourselves, Straw Hat Crew!!!
+
+Arc: Thriller Bark Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_469 (CC-BY-SA)
+
+## Cover page
+
+Enel's Great Space Operations, Vol. 34: "Charge Complete!! Thanks to the Destroyer".
+
+Enel is more bemused than ever: his electric shocks have revived all the Automata in the city, and Spacey and his three comrades.
+
+## Short summary
+
+Hogback regains the control of Cindry and makes her attack Robin and Chopper. Robin stops Cindry as Hogback tries to escape. Robin and Chopper try to finish off Hogback, but Oars interrupts them. Oars destroys some building which Usopp and Sanji were in. Sanji loses Nami, who is kidnapped by Absalom once again. Oars provokes the Straw Hats to come out and fight him.
+
+## Long summary
+
+Hogback is outraged that Cindry has stopped following his orders and is crying, taking the opportunity to remind her how zombies live solely to follow the will of their masters. Cindry reaffirms that her current actions are involuntary, causing Chopper and Robin to note that the original owner of her body is still putting up resistance despite having died 10 years ago. Cindry regains a degree of control and states her intention to defeat the Straw Hats, pleasing Hogback, who plans to use her as a distraction for his escape. Robin expresses regret at now having to hurt Cindry, but nonetheless uses "Doce Fleur" to immobilize her. Hogback attempts to escape, noticing the mansion shaking again in the process and wondering if it is Oars. Chopper tackles him down, causing Hogback to curse him and call him a monster. Chopper retorts that his captain doesn't care about such things, and has all kinds of different people under his command because of this. He thus does not need to resort to corpses who have no will of their own to do his bidding. Chopper calls on Robin, who uses "Pierna Fleur" to prop him and Hogback high into the air. As Chopper prepares to suplex him, Hogback pleads that slamming him from this height will kill him, and that the world will thus lose a brain as valuable as his. Chopper states he does not care, as what's in the heads of Hogback and his colleagues stinks worse than the zombies. 
+
+In the Special Freezer Room, Luffy comes face-to-face with his zombie for the first time, noting that Oars is much bigger than any giant he's ever seen. Gecko Moria is delighted that Oars and Luffy's shadow seem to have finally synchronized, and asks the special zombie who his master is. When Oars affirms that it is Moria, Luffy angrily tells the new owner of his shadow not to take orders from the Warlord. Oars ignores Luffy's command, but takes notice of his Straw Hat. Moria gives Oars his first mission: to defeat the Straw Hat Pirates. He implores Oars to use the full extent of his power, not worrying about killing them. The beast agrees, and quickly remembers Luffy and his Straw Hat. Moria takes the opportunity to leave Luffy to his fate, who tries in vain to stop the creature from using "Gomu Gomu No Kane". Oars' headbutt completely destroys the wall, consequently destroying the room that Robin, Chopper, Hogback, and Cindry are in as well. Unable to complete his "Robicho Suplex" due to the floor collapsing, Chopper transforms into Walk Point and safely drops to Robin's location. As they take note of Luffy's zombie, Hogback and Cindry fall down to the lower levels of the mansion. A huge boulder lands on Hogback, preventing him from moving. He calls out to Cindry to help him, who once again states that she is unable to move as she looks up at Chopper. As Hogback hurls insults at her for refusing his commands, she gives Chopper a big smile. This catches Chopper and Robin's attention, but they are unable to make anything of it before Oars steps through the floor again, destroying it. 
+
+While running in the nearby corridor outside of Perona's room, Usopp notices that the shaking of the mansion is much more violent than it was before. Before he gets any time to mull it over, Oars crashes through the ceiling, causing him to run even faster. 
+
+Nearby in the church, Sanji notices the shaking as well whilst carrying an incapacitated Nami. Oars leg soon comes crashing through the ceiling, and Sanji wonders if this is in fact Luffy's zombie. He tells a still unconscious Nami that they need to run, but she instantly vanishes from his arms. After a sly remark from an unseen entity, Sanji deduces that Absalom is still present, and demands he show himself. Absalom retorts that it appears Oars is finally under their control, and he once again has his bride. Sanji fruitlessly tries to get him to give Nami back, before he is left to deal with Oars. 
+
+Oars fully breaks out of the mast tower, with Zoro, Franky, and Brook noticing from atop the ruins of Hogback's mansion. Franky and Zoro spot Sanji at Oars' feet, who is still looking for Nami. Elsewhere, Luffy has picked up on Moria's trail and is chasing him through one of the corridors of the mansion. Moria asks if he intends to chase him forever. Luffy acknowledges that Oars is quite a threat as well, but realizes that he must defeat Moria in order to return everyone's shadows. Back at the Church, Absalom reveals himself and remarks on the strength of his sleeping pills while holding Nami. He reveals that intends to continue his wedding to an unconscious Nami. 
+
+The special zombies have gathered around an incapacitated Perona, noting that she is foaming at the mouth and they need to get her out of the collapsing mansion. The zombies resolve to escape from the mansion, and fight to avenge Perona. Chopper and Robin catch up to Usopp in Perona's Wonder Garden, where he updates the pair that Luffy's zombie seems to be searching for them specifically. Oars loudly exclaims for the Straw Hat Pirates to show themselves, prompting different responses from the crew. Sanji and Usopp ponder if the zombie truly intends to fight them, while Robin seems assured that he's been given orders. Chopper is worried about their captain's well-being, and Franky wonders just how they can bring down Oars. Zoro on the other hand, notes that things are starting to get interesting.
+
+## Characters
+
+Pirate, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Nami, Usopp, Sanji, Tony Tony Chopper, Nico Robin, Franky, Thriller Bark Pirates, Gecko Moria, Hogback, Absalom, Perona, Oars, Victoria Cindry, Cerberus, MocDonald, Florian Triangle, Brook, Moon, Enel, Spacey, Macro (Automaton), Galaxy, Cosmo

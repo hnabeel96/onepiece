@@ -1,0 +1,44 @@
+# Chapter 681: Luffy vs. Master
+
+Volume: 69  |  Arc: Punk Hazard Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_681 (CC-BY-SA)
+
+## Cover page
+
+Caribou's Kehihihihi in the New World Vol. 7 - "Arrival at the Ruined Marine Branch G-5"
+
+Jinbe and Caribou have arrived at the G-5 Marine base.
+
+## Short summary
+
+Luffy begins to fight with Caesar, while Monet looks on. Smoker leaves them and sets out to find Vergo. Caesar uses his ability to create an explosion and then remove the oxygen from the surrounding area, forcing Luffy to fight from a distance. He prepares to attack with a hardened Jet Gatling, but Monet produces a wall to shield Caesar. She holds Luffy back while Caesar escapes, saying that Joker will kill her if she lets anything happen to him.
+
+In the connecting passage between the A and B-blocks, the B-block door closes whiles the A-block door slowly opens, allowing Shinokuni to enter the passage. Sanji and Vergo trade blows, and Vergo kicks hard enough to fracture Sanji's right leg. In the D-block, one of Caesar's subordinates announces over a broadcast that Law has entered the SAD Manufacturing Room. Law walks through the area with a smile on his face, while Caesar, Vergo and Monet realize what he is planning.
+
+## Long summary
+
+As Caesar reels from the punch, Smoker remembers that before Law freed him, he ordered Smoker not to touch Caesar since he still has his heart. Smoker leaves to go find Vergo. As Luffy begins the second round of their battle, Caesar demands to know why Luffy is trying to capture him which he explains is part of Law's plan. Caesar admonishes him, warning Law cannot be trusted but Luffy retorts that's for him to decide. The two fight with Luffy landing a few solid hits. Caesar tries to suck the oxygen out of him but Luffy manages to get out of range of the powers and attack from a distance. Caesar reveals he has other methods of attack such as a flaming sword. Luffy manages to avoid him and prepares to finish him with a Jet Gatling. However Monet uses some kind of power to make a wall and protect Caesar. On her suggestion, Caesar abandons the battle and leaves to try to locate Law, though promises he has a way to make guinea pigs out of Luffy and his friends. Luffy tries to go after him but Monet gets in his way, claiming "Joker"(Doflamingo) will kill her if something happens to Caesar prompting Luffy to question Doflamigo's motivations.
+
+At the passage connecting A and B buildings, Sanji and Vergo begin fighting, with Sanji landing a "Flange Strike" sending Vergo hurtling into a wall. Seemingly unfazed by the kick Vergo prepares for a counter, and Sanji remarks on Vergo "hardening like steel". Vergo attacks with one of Vergo's left kicks fracturing Sanji's right leg while Sanji blocks. Vergo attacks with another left kick as Sanji narrowly ducks avoiding the blow. As the two continue, Sanji yells for the Marines to run away to the B Building as the room begins to go into lockdown and the gas is let in from the A Building.
+
+An emergency broadcast is heard from the D Building that Law has invaded the SAD production room much to the dismay of Caesar and Vergo, with the latter stating this was what Law was after ever since he became a Shichibukai and that whatever he is planning will make a mess of the New World.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*Luffy briefly fights Caesar Clown, but he manages to escape after Monet confronts Luffy.
+*Monet reveals an ability to create barriers made of snow.
+*Caesar unveils some new attacks, including a fire sword.
+*Monet reveals that Joker will kill her if she lets something happen to Caesar.
+*The back door of the passage between Buildings A and B is opened, letting Shinokuni in. The G-5 Marines run away, while Sanji and Vergo keep fighting.
+*Sanji has fractured his right leg, but still continues to fight against Vergo.
+*Law's alliance with the Straw Hat Pirates as well as joining the Shichibukai is apparently all part of a personal agenda he has.
+*Caesar, Monet, and Vergo finally figure out what Law is planning.
+
+## Characters
+
+## Characters
+
+Pirate, Shichibukai, Marines, Straw Hat Pirates, Monkey D. Luffy, Sanji, Franky, Caribou Pirates, Caribou, Trafalgar D. Water Law, Donquixote Doflamingo, Jinbe, G-5, Vergo, Smoker, Tashigi, Punk Hazard, Caesar Clown, Monet

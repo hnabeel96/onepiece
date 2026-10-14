@@ -1,0 +1,48 @@
+# Chapter 1160: The God Valley Incident
+
+Arc: Elbaph Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_1160 (CC-BY-SA)
+
+## Cover page
+
+Oni Child Yamato's Golden Harvest Surrogate Pilgrimage, Vol. 42: "The shrine to Oden and his companions overlooking the Flower Capital"
+
+## Short summary
+
+After members of the Davy Family are revealed, the World Nobles begin the Native Hunting Competition to hunt down their targets throughout God Valley. The competition is disrupted by the arrival of the Rocks Pirates, Roger Pirates, and several other pirate ships. During the chaos, Dragon attempts to get Shanks and Shamrock off of God Valley. The Knights of God begin to take action and prepare for battle. While the Marines are being attacked, Garp and his fleet arrive to take on the pirates.
+
+## Long summary
+
+It turns out there were several other members of the Davy clan residing on God Valley aside from Teach, and once they were presented to the World Nobles, they all started yelling hateful things about them, claiming that they are the most despised of all people and that they are connected to the Buccaneers. They all started to throw weapons at them only for the announcer to tell everyone to hold their fire or they will get penalized. Saturn commended Garling for discovering the Davy clan on the island, which is why he recommended it as the staging ground for the tournament, but he merely called it an act of fate. Elsewhere, Shanks and Shamrock's mother told Dragon that she wants him to make sure her children are raised as kindhearted people, and not let Garling corrupt them. As she dies, Dragon swears he will find her children and save them and takes off. The event finally begins and all of the targets start running, hoping they can survive for three weeks and escape for their lives.
+
+Once the World Nobles start their hunt, it is shown that no one, not even infants or children, were spared from their depravity. On top of that, the entire event was televised to Mary Geoise, where the other World Nobles watching cheered on the rest of their ilk and making bets, with one of them mentioning Gunko as the pet devoted "Blade of God" as she strikes down several people with her powers. Sommers, meanwhile, chased a boy up into a tree and left his thorns beneath it for him to fall on. The boy's father sees him and tries to rescue him, only for both to be impaled on the thorns, to Sommers' enjoyment.
+
+Dragon witnesses the dead bodies of the hunted people and gets sick, but he knows that if he defies the World Nobles then his entire platoon will be slaughtered in retaliation. However, he sees a World Noble preparing to shoot Kuma while he was listening to Ivankov's speech, and when he saw they still had hope, he ended up tranquilizing the noble, to his own personal worry. Just then, the Rocks Pirates finally make landfall.
+
+Rocks tells his crew that until they rescue Shakky and claim the Devil Fruits and other treasure, they should not infight until they divvy up the rewards evenly. Barbel points out that they cannot split up Shakky because she is a person, so Shiki says that she will fall in love with whoever rescues her first. John says she will fall for who gets the most treasure, but Linlin says that no matter how much chaos they cause, she will not pay attention to them. Humorously, Newgate says he wants to rescue her as a friend, but would not be opposed to her falling for him, to Buckin's annoyance, while Gloriosa ponders if Roger would be grateful to her if she rescued Shakky. Streusen mentions that Ochoku chose to stay on Hachinosu and wonders if Shakky will ban him from her bar for life for his cowardice, and Kaidou simply asks if Linlin will get him a good Devil Fruit.
+
+As the Rocks Pirates start rampaging, the World Nobles start fleeing in terror as Garling laments that the game has ended early because of them. As the Roger Pirates are announced to have arrived, Dragon manages to find the twins in the chaos and starts running off with them. Once the Roger Pirates make landfall, Roger tells everyone that he is going to rescue Shakky and no one else will have a shot, so they should just take the treasure, only to be ignored and trampled. The Knights of God take the stage to protect the World Nobles while the Marines are ordered to pull back. Just then, Garp arrives on the scene and starts blasting away other pirates who heard the news, while the Marines cheer him on.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*Before the Native Hunting Competition begins, members of the Davy Family are presented to the World Nobles.
+*Dragon agrees to save Shanks and Shamrock at their mother's request.
+**In the ensuing chaos, Dragon manages to run away with Shanks and Shamrock in his arms.
+*The Bavette Family is first mentioned.
+*During the competition, Dragon tranquilizes a World Noble who tried to shoot an unsuspecting Kuma.
+*The Rocks Pirates arrive at God Valley and split up to save Shakuyaku and acquire the treasure.
+**Streusen confirms that Ochoku stayed behind at Hachinosu.
+*The Roger Pirates make landfall as well.
+**Though Roger wants to save Shakuyaku by himself, he is trampled by his own overeager crew.
+*Garling mobilizes all the Knights of God to fight the pirates.
+*More and more pirate crews arrive at the island, overwhelming the Marines.
+*Garp arrives as well to save his troops, immediately attracting the attention of Roger and Rocks.
+
+## Characters
+
+## Characters
+
+Pirate, World Government, Rocks Pirates, Rocks D. Xebec, Edward Newgate, Shiki, Buckingham Stussy, John, Charlotte Linlin, Napoleon, Streusen, Barbel, Kaidou, Kyo, Gloriosa, Roger Pirates, Gol D. Roger, Silvers Rayleigh, Scopper Gaban, Donquino, Petermoo, Jacksonbanner, MAX Marx, Taro, Mr. Momora, Rangram, Mugren, Five Elders, Jaygarcia Saturn, Knights of God, Figarland Garling, Shepherd Sommers, Satchels Maffey, Manmayer Gunko, Marines, Monkey D. Garp, Bogard, Monkey D. Dragon, Slavery, Bartholomew Kuma, Emporio Ivankov, Hachinosu, Shakuyaku, God Valley, Eris, Marshall D. Teach, Magnolia, Figarland Shamrock, Shanks, Wano Country, Yamato

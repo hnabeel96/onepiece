@@ -1,0 +1,59 @@
+# Chapter 1165: Reverberations
+
+Arc: Elbaph Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_1165 (CC-BY-SA)
+
+## Cover page
+
+Cover Page Request: "Bepo sleeping peacefully using Zeus as a pillow" by PN Match and Takeshi.
+
+## Short summary
+
+The remaining Rocks Pirates and Roger Pirates make their escape from God Valley. Garp and Roger team up to fight Rocks, initially struggling to bypass his defenses. When the Marines evacuate, Imu orders for all records of God Valley to be kept secret. Garp and Roger decide that only a critical mass of Supreme King Haki will be enough to deal damage, so they launch their combined attacks against Rocks, defeating him.
+
+## Long summary
+
+After confirming they both heard the same thing somehow, Garp and Roger begin fighting the demonized Rocks, fully acknowledging that Rocks' actions are contradicting his tearful expression. All three unleash powerful Haki attacks but neither Garp nor Roger are able to land any lasting damage on Rocks, as he easily blows them away into what is left of the island's mountains, while at the same time splitting the skies above. Kyo orders some men to help him steal Rocks ship and escape the island, knowing that Rocks will not return. Shiki also confirms that today marks the end of the Rocks Pirates.
+
+Both Garp and Roger order their men to leave without them once they all are safely on board their respective ships, promising to return no matter what. As they throw off their coats, Garp and Roger both lament over how things did not go exactly as planned for the both of them, as Garp wanted to arrest both Roger and Rocks while Roger just wanted Shakky and some treasure, but now with Rocks rampaging like this, the two had no choice but to work together to take him down. Garp dodges Rocks' sword strike while Roger knocks him into the wall of the mountain. As Garp grabs Rocks' foot, he asks if there is any way to turn him back to normal as he flings him away, while Roger yells to Rocks to wake up.
+
+Gloriosa decides to hitch a ride with the Roger Pirates while elsewhere, Linlin tells Kaidou that he owes her the rest of his life for stealing the Uo Uo no Mi, Model: Seiryu from her, but Kaidou rejects this, saying he simply got to it first. Kaidou announces his plan to establish a crew where violence is everything, but Linlin declares he will never surpass her. Before they parted ways, Linlin assured Kaidou she will collect what he owes, with Kaidou retorting he will be waiting to crush her then. Newgate, meanwhile, meets a man named Polo Gram, who tells Newgate he is a big fan of his and offers he team up with him if he has no other ship to get on, but Newgate brushes him off. As for Dragon, he ends up holding his squad captain at gunpoint demanding he let some civilians on board, even going so far as to execute anyone who disagrees with him. Once everyone is on board Roger's ship, though, Rayleigh and Gaban head back for their captain, while Imu, still possessing Saturn, leaves God Valley demanding that they treat the island as having never existed in the first place.
+
+Following this day, which became known as the "God Valley Incident", everything regarding the event, from the people who participated in the Native Hunting Competition, to the location of the island, to even the number of casualties, was completely erased by Marine Base G-11 and CP6, and the incident was labeled "S-Level Top Secret Classification". As Roger and Garp's battle with Rocks continued, God Valley's other mountain crumbles, and Roger asks Garp if he knew anything about Imu, whose vile existence goes against what the World Government stands for in his opinion, to which Garp agrees with. Roger tells Garp that if he wants to quit the Marines, he will welcome him on his ship, but Garp refuses, saying he needs to protect the weaker Marines.
+
+Roger then tells Garp that Armament Haki can counteract Devil Fruit powers, and during this whole fight, he has been using Supreme King Haki, which makes him think he has been damaging Rocks. Garp confirms this but states Rocks countered with his own Supreme King Haki, which canceled each other out. As such, Roger believes that the only way to defeat Rocks is to increase the "mass" of Supreme King Haki they both emit, or they will never be able to beat him in a battle of attrition. Of course, Roger knows doing something like that will deplete them of their stamina, with the real possibility they might die, but Garp knows that if they do not do this, they will die anyway. As they stand up, Garp yells to Rocks that he does not know what happened to him nor does he believe anything he says will console him, but what he does know is how frustrated he feels over his lack of control. Roger and Garp then unleash extremely powerful attacks that finally defeat Rocks.
+
+The narration reveals that the World Government did their best to cover the incident completely, but Rocks' demise and the existence of the volatile crew he formed cast unforgettable echoes onto the world, that would shape it into what is is today.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*Garp and Roger fight off the Demonized Rocks.
+**The sheer amount of Haki released by the combatants is destroying what is left of God Valley.
+**Both Garp and Roger tell their respective subordinates and crews to leave the island immediately and without them.
+**Roger and Garp declare a truce until Rocks is defeated.
+*Shiki officially declares that the Rocks Pirates are disbanded.
+*As the Roger Pirates escape, Gloriosa asks Scopper Gaban if she can tag along.
+*Linlin tells Kaidou that his theft of the Uo Uo no Mi, Model: Seiryu puts him in her debt for life, but Kaidou merely dares her to come and collect it.
+**Jaded, Kaidou declares his intention to start a crew where only power and brutality matter.
+**Streusen urges Linlin to leave with the remaining treasure.
+*The disbanded Rocks Pirates gather their treasures and start fleeing from God Valley.
+*While leaving, Newgate encounters another Pirate named Polo Gram, who declares his intention to form a crew alongside Newgate.
+**Gram strongly resembles an older Marco.
+*Gill Bastar is revealed to be a previous holder of the Horo Horo no Mi.
+*Dragon forces the Marines at gunpoint to help evacuate the surviving civilians.
+*Imu, still possessing Saturn as they evacuate, orders all records on God Valley to be destroyed.
+**The Narrator informs that all the records contained by CP6 and G-11, including the names of the inhabitants, the location of the island and its size, and the casualties numbers were all purged.
+*As Garp and Roger start losing their battle, Garp expresses his disgust for the World Government itself.
+**Roger invites Garp to join his crew, but Garp refuses as, without him, nobody would protect the Marines themselves.
+***Garp confirms that Supreme King Haki "infusion" application can be used to increase defense in addition to boost the physical power of attacks.
+**Rayleigh and Gaban leave the Oro Jackson and run towards Roger's location.
+*Garp and Roger focus all their remaining Haki into one powerful attack that manages to defeat Rocks.
+
+## Characters
+
+## Characters
+
+Pirate, World Government, Rocks Pirates, Rocks D. Xebec, Edward Newgate, Shiki, Buckingham Stussy, Ganzui, Charlotte Linlin, Napoleon, Streusen, Kaidou, Kyo, Gloriosa, Gill Bastar, Straw Hat Pirates, Zeus, Roger Pirates, Gol D. Roger, Silvers Rayleigh, Scopper Gaban, Blumarine, MAX Marx, Taro, Doringo, Mr. Momora, Yamon, Polo Pirates, Polo Gram, Heart Pirates, Trafalgar D. Water Law, Bepo, Nerona Imu, Five Elders, Jaygarcia Saturn, Marines, Monkey D. Garp, Monkey D. Dragon, Hachinosu, Shakuyaku, Mokomo Dukedom, Yomo

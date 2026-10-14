@@ -1,0 +1,62 @@
+# Chapter 1069: All Things Are Brought Into This World With Hope
+
+Volume: 106  |  Arc: Egghead Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_1069 (CC-BY-SA)
+
+## Cover page
+
+Germa 66's Ahh... An Emotionless Excursion, Vol. 26: "Loan Shark King Lu Feld's charitable research lab for peace, MADS"
+
+A flashback reveals the MADS laboratory and its sponsor Lu Feld.
+
+## Short summary
+
+As CP0 and Luffy's group face each other, at Marine Headquarters, Sakazuki learns of the situation and orders CP0 not to engage them until backup arrives, while Rob Lucci reveals his new awakened form. Vegapunk joins Sanji's group at Labophase. As they watch the battle between Lucci and Luffy, who is using Gear 5, Vegapunk reveals to Sanji's group some of the truths about Devil Fruits in general, and Luffy's Devil Fruit—the Hito Hito no Mi, Model: Nika—in particular. Sentomaru arrives to command the Seraphim against CP0, forcing Lucci to take him out so CP0 could regain control over the Seraphim.
+
+## Long summary
+
+All of the researchers start fleeing after witnessing Atlas fall to Rob Lucci, whom Chopper remembers. Lucci's attack makes Jinbe realize that CP0 came to kill Dr. Vegapunk, but Luffy asks Lucci why he is here. Lucci points out that Egghead is still under World Government jurisdiction, and Chopper tells Luffy that they need to go. Kaku expresses his annoyance at encountering the Straw Hat Pirates again and Jewelry Bonney, but he tells Lucci that since Luffy is considered an Emperor now, he cannot engage him in combat without permission, something Stussy agrees with, and Luffy instead has his presence reported to headquarters.
+
+After Luffy leaves Bonney in Jinbe's care, he runs over to the downed Atlas in shock and asks Chopper to tend to her, which he does, but he later states that Franky may be better suited to handling the likes of her. Lucci tells Luffy to stay out of Government affairs, but Luffy tells him that Atlas was kind to him and to his group.
+
+At Marine Headquarters, Sakazuki is told that the Straw Hat Pirates are on Egghead, causing him to wonder if Vegapunk called them because he had anticipated that they had been coming for him. He learns that Kizaru is already enroute to Egghead and he orders that Lucci not engage the Straw Hat Pirates at any cost. Unfortunately for him, Lucci, having grown fearful of Luffy's power, does indeed start fighting Luffy. Everyone tries to take cover from their duel as Vegapunk's other Satellites and the Straw Hat Pirates watch the fight from Labophase. They notice that Lucci looks different now, and Shaka says that Lucci has awakened his Devil Fruit, and sometimes it can drastically rob the user of their personality, which is the reason why Lucci refused to wait until getting permission to engage Luffy.
+
+Dr. Vegapunk then appears behind his Satellites and the Straw Hats, and he asks the crew if they know what Luffy's new form is called, as he too had gone into his awakened form. Nami says she does not know and assumes it is just part of the Gomu Gomu no Mi, but Vegapunk tells her that the name does not exist in the Ancient Devil Fruit Encyclopedia, much to her shock. As they watch, Vegapunk tells the crew that Luffy's appearance resembles an ancient god, which Sanji finds incredulous to believe. Vegapunk, however, continues saying that the god is the "Warrior of Liberation", the one who is always playful and who makes others smile: the Sun God Nika. Nami admits she has never heard the name before, which Vegapunk says is because it was erased from history, but according to him, if the people yearn for it, then its existence will never disappear.
+
+Vegapunk says that "the desires of all things are born in the world," and that Devil Fruits are in the same boat. He tells the group that Devil Fruits are the embodiment of what people wish they could become, and the reason why the sea, which he calls the "mother of all nature," makes Devil Fruit users unable to swim is because it considers these wishes to transcend the world people wish to live in as "abnormalities". His theory leaves the Straw Hat crew completely stunned.
+
+During Vegapunk's speech, Luffy and Lucci were fighting one another in their awakened states, with the fight being very similar to Luffy's fight with Kaidou. As they fight though, Sentomaru arrives and asks Vegapunk what he is supposed to do since he believes CP0 is supposed to be their allies. Vegapunk explains that they have come to kill him and asks if he can drive them away from Egghead, which Sentomaru does not like the idea of since that would make him a traitor too. Vegapunk then reminds Sentomaru that in the past, he rescued Sentomaru from poverty, so he should decide what to do for himself. Ultimately, Sentomaru agrees to fight back against CP0.
+
+When Sentomaru arrives with S-Shark, S-Snake, and S-Hawk, CP0 see him and Kaku tries to order S-Bear to take him down, but Stussy says that is impossible. She is proven correct when Sentomaru takes control of S-Bear and has it attack CP0. Stussy says that the rank of authority the Seraphim follow is very different from the Pacifistas: The Five Elders have the highest authoritative chip, Vegapunk and his Satellites having the second, Sentomaru the third, and at the bottom whoever else. Additionally, not even the Five Elders can command the Seraphim over a Den Den Mushi. Kaku adds that Seraphim are a huge asset to the World Government which means they cannot destroy the cyborgs, and he curses Lucci for seemingly not thinking this through.
+
+Luffy uses an attack called Gomu Gomu no Mogura Pistol that causes him to stretch his fist into the ground and redirect it up to Lucci's chest to hurt him. Sentomaru orders S-Snake to guide the Straw Hat Pirates to the Frontier Dome using "Vacuum Rocket" and orders S-Hawk and S-Shark to hold off CP0. Chopper and Jinbe notice the Seraphim and Jinbe is surprised to see that the former Seven Warlords of the Sea were cloned. Luffy sees Sentomaru who asks if he is seriously going to take Vegapunk off the island, which Luffy confirms he will. Just then, Lucci stabs Sentomaru with Shugan and he falls, with Lucci saying that all they need to do is take down the "control tower" to get the Seraphim under their control.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*Luffy notices Atlas unconscious and clashes with Lucci.
+**Luffy hands over Bonney to Jinbe.
+**Jinbe and Chopper evacuate from the battleground, carrying Atlas and Bonney with them respectively.
+**Lucci's Devil Fruit has awakened, granting him a new form similar to Luffy's Gear 5 form.
+**According to Shaka, awakened Zoans usually lose control of their minds, with Lucci being considered an exceptional case due to averting this.
+*Sakazuki learns of the Straw Hat Pirates' presence on Egghead and gives the orders for Lucci's group not to engage the Straw Hats until reinforcements led by Kizaru arrives.
+**He also learns that Vegapunk may be on the Straw Hats' side. 
+*Vegapunk goes to the Labophase to reunite with his other satellites, who are with Sanji's group.
+**Vegapunk and Sanji's group observe Luffy and Lucci's battle.
+**Vegapunk stated that the name of the Gomu Gomu no Mi had never been recorded anywhere in the ancient Devil Fruit Encyclopedia, but he did note that Gear 5 resembles the Mythical figure Nika.
+**Vegapunk explains to the group his theory regarding the origin of the Devil Fruits.
+***According to Vegapunk, Devil Fruits are all born out of the desires of humans. It is because of this "unnatural evolution" that nature itself (the sea) rejects them.
+*Sentomaru arrives in Egghead along with S-Hawk and S-Snake, with S-Shark joining him as well.
+**Sentomaru orders S-Bear to attack CP0, encountering Luffy in the process as well.
+**Sentomaru reluctantly agrees to fight against CP0.
+**According to Stussy, the Five Elders, Vegapunk, and Sentomaru are the only holders of the authority over the Seraphim, superseding even CP0's "control chips". Likewise, the Seraphim can only be commanded directly rather than via Den Den Mushi.
+**While being distracted by the chatter, Lucci knocks Sentomaru unconscious, so CP0 can regain control over the Seraphim.
+
+## Characters
+*The panels showing Luffy and Lucci's clash is mirrored from their previous fight from Chapter 409.
+
+## Characters
+
+Pirate, Marines, World Government, Straw Hat Pirates, Monkey D. Luffy, Nami, Usopp, Sanji, Tony Tony Chopper, Nico Robin, Franky, Jinbe, Bonney Pirates, Jewelry Bonney, Sakazuki, Sentomaru, SSG, Vegapunk, Vegapunk/Shaka, Vegapunk/Pythagoras, Vegapunk/Atlas, S-Bear, S-Hawk, S-Shark, S-Snake, CP0, Rob Lucci, Hattori, Kaku, Stussy, Underworld, Lu Feld

@@ -1,0 +1,53 @@
+# Chapter 1077: Should Have Noticed Sooner
+
+Volume: 107  |  Arc: Egghead Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_1077 (CC-BY-SA)
+
+## Cover page
+
+Germa 66's Ahh... An Emotionless Excursion, Vol. 32: "Actually, I think our real problem is Vegapunk"
+
+Back in the present, Judge and Caesar cease fighting and recognize Vegapunk as their real enemy.
+
+## Short summary
+
+As Sentomaru urges the Fabriophase residents to flee, inside Labophase, Zoro realizes that the Seraphim have King's Lunarian abilities and warns the rest of the group. Shaka then leaves having an idea where Vegapunk could be. Elsewhere, Sanji joins Nami's group in fighting against S-Shark, and S-Snake turning Usopp's group into stone. Just as Shaka finds Vegapunk and the missing Cipher Pol agents, he is shot in the head by an unknown assailant, which kills him.
+
+## Long summary
+
+Sentomaru orders that everyone on Egghead flee the island. When they ask him why, Sentomaru tells everyone about Ohara, which was completely destroyed because they defied the World Government by studying Poneglyphs. If the World Government is deadly serious about killing Dr. Vegapunk, it is because they have weighed all of the potential scientific consequences and have chosen to eliminate him anyway. As such, he is very certain something even worse than that day will occur on Egghead. In his mind, he desperately asks Luffy to hurry up and leave the island with Vegapunk.
+
+While in the Command Room, Luffy, Lucci, Zoro, and Kaku are struggling to do any lasting damage to S-Bear and S-Hawk. It then occurs to Zoro that the two Seraphim resemble King the Conflagration, from the Beasts Pirates. Shaka is surprised to learn that Kaidou had a Lunarian in his crew but Zoro tells him that he did not know what exactly he was. Shaka realizes King is Arber, who fled Punk Hazard with Kaidou. Shaka confirms that the Seraphim were made using King's Lineage Factor, prompting Zoro to tell Luffy, Lucci, and Kaku to watch out for the flames on the Seraphim's backs because when they go out, they get faster but lose their defense. He apologizes to everyone for not seeing the connection before, especially since King's defining characteristics are his dark skin, black wings, white hair, and fire, much to the other three's clear annoyance that he did not. At that point, Shaka leaves the room, telling Luffy he has an idea as to where Vegapunk is.
+
+In Building A, Nami's group has crossed paths with S-Shark, who has knocked Brook's head off his body and heavily damaged Edison. As a result, Nami decides to fight back against the Seraphim, even if it looks like Jinbe. She summons Zeus and has him use Raitei to electrocute S-Shark from the inside, which seems to hurt him, while she sobs and apologizes to Jinbe. Unfortunately, S-Shark dives into the ground just as Brook reattaches his head to his neck. He warns Nami to watch out, but S-Shark emerges and grabs her, but just as Brook is about to retaliate, Sanji charges in and sends S-Shark flying in a rage, determined to beat the Seraphim to a pulp for hurting Nami.
+
+In Building C, Lilith is furious that S-Snake petrified York, so she shoots her with her Bubble Gun. It grazes her shoulder but causes her to fall over, and Lilith says it is because the bubble was made from the energy of the sea, and since S-Snake has blood synthesized from an existing Devil Fruit user, she can fall prey to the sea. Franky tries to subdue her but because S-Snake was just grazed, she gets back up quickly and knocks Franky away. She fires a laser at Usopp and Lilith, but Franky traps her under a large bubble. However, S-Snake pleads that she is suffering, causing Franky to drop his guard long enough for S-Snake to break free and petrify part of his body with Perfume Femur. Lilith fires several bubbles at her, but she dodges them all and charms both her and Usopp before turning them into stone with Mero Mero Mellow.
+
+Underground, Shaka finds all of the Cipher Pol agents and Dr. Vegapunk contained in a lab that was previously used for Devil Fruit research. Shaka is left perplexed by this revelation as Vegapunk asks him who is currently with him. Shaka turns around to see who he is talking about, only to be shot in the head, much to everyone's horror. Shaka collapses as Vegapunk hears footsteps, with a look of horror etched onto his face.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*Sentomaru talks to the Fabriophase residents and orders them to leave believing a similar event to the Ohara Incident is coming.
+*Luffy, Lucci, Zoro, and Kaku continue fighting S-Bear and S-Hawk.
+**Zoro notices that the Seraphim has King's Lunarian abilities and tells the group the weakness he discovered during his duel in Wano.
+***Shaka reveals that the Seraphim have King's Lineage Factor.
+**During the fight, Shaka leaves, having an idea where Vegapunk is.
+*Nami, Brook, and Edison continue fighting S-Shark.
+**Brook and Edison have been defeated, and Nami unleashes Zeus.
+**Sanji joins the battle.
+***His eyebrow is reflected again to resembled that of his siblings.
+*Lilith, Usopp, Franky, and Pythagoras continue fighting S-Snake.
+**Lilith's bubble gun weakens S-Snake, due to the bubbles containing sea energy.
+***Lilith reveals that Green Blood still grants its user the standard Devil Fruit weaknesses.
+**S-Snake successfully turns Franky, Lilith, and Usopp into stone, with only Franky being partly transformed.
+*Shaka finds Vegapunk and the missing Cipher Pol agents imprisoned.
+**While speaking with Vegapunk, Shaka is shot by an unknown assailant.
+
+## Characters
+
+## Characters
+
+Pirate, World Government, Marines, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Nami, Usopp, Sanji, Nico Robin, Franky, Brook, Zeus, Beasts Pirates, King, CP0, Rob Lucci, Kaku, Sentomaru, Kuzan, Jaguar D. Saul, SSG, Vegapunk, Vegapunk/Shaka, Vegapunk/Lilith, Vegapunk/Edison, Vegapunk/Pythagoras, S-Snake, S-Hawk, S-Shark, S-Bear, Ohara, Clou D. Clover, Nico Olvia, Rint, Zadie, Roche, Busshiri, Germa Kingdom, Vinsmoke Judge, Vinsmoke Reiju, Vinsmoke Ichiji, Caesar Clown

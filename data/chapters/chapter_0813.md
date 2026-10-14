@@ -1,0 +1,51 @@
+# Chapter 813: Tea Party Invitation
+
+Arc: Zou Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_813 (CC-BY-SA)
+
+## Cover page
+
+From the Decks of the World: The 500,000,000 Man Arc Vol. 7: Twin Cape: Laboon's having a whale of a time.
+
+## Short summary
+
+The Curly Hat Pirates inside Bege's castle react with shock at the news of Sanji's upcoming wedding. Sanji asks Bege who was behind the wedding, and Bege reveals that it was Sanji's family. Nami, Brook and Chopper reflect on the little they know about Sanji's past, and wonder about who Sanji's family could be. 
+
+Sanji refuses to attend the wedding, but Bege threatens the other Straw Hats, and Vito whispers something to Sanji that convinces him to write a note. After Sanji gives the note to Nami, he frees the other Straw Hats from Bege's body and takes Caesar hostage at gunpoint. With Nekomamushi also arriving at the scene, Bege agrees to Sanji's demands and leaves Zou with Sanji and Caesar still inside his body castle.
+
+As the Straw Hats call after Sanji, Sanji's note falls onto the ground; it simply states that he was going to meet a woman, and that he would be back.
+
+## Long summary
+
+Nami and Chopper are astonished that Sanji is set to be married, and Bege hands the invitation to Sanji. Sanji's cigarette drops onto the ground and begins to smolder, as he asks why this was happening now; Bege responds that he does not know (or care) about Sanji's family issues. Brook recognizes the Vinsmoke name, saying that it gives him chills. Bege notices that the fire caused by Sanji's cigarette is growing, and quickly stomps it out.
+
+Sanji asks Bege who was behind his engagement, and Bege replies that it was Sanji's family. Nami recalls that, back in Jaya, Sanji stated that he was born in North Blue; Brook responds (with Nami concurring) that this was significant because one must undertake the atypical journey of crossing the Red Line in order to get from North Blue to East Blue. Caesar further reveals that "Charlotte" is the family name of Big Mom, and that if Sanji marries into the Charlotte Family, the entire Straw Hat crew would become de facto underlings of the Big Mom Pirates. Sanji rejects this suggestion on the spot, refusing to either marry a woman he had never met before, or to jeopardize Luffy's dream of becoming Pirate King. 
+
+In response, Bege animates the objects within his castle, tying Sanji to his chair with the tablecloth, creating two cannons to point at the Straw Hats, and briefly sinking Nami into the floor. He tells Sanji that he is not offering him a choice, and that no one can escape Big Mom's tea parties when invited. Vito affirms this, describing Big Mom's invitations as a summons orders. Vito then shares something with Sanji, who becomes angry upon hearing it. Bege reminds everyone present of Big Mom's influence as an Emperor, and tells them that the only way to survive in the New World was to obey the Emperor's orders. Sanji requests a pen and paper from Bege, who assumes that he intends to write a note for Luffy.
+
+Sanji gives the note to Nami, Chopper, and Brook, telling them to give it to Luffy and the others. He tells them that he never intended to hide things from them, as he never expected to have to deal with his past again. Despite their protestations, Sanji resolves to sort out his problems alone, and, after sensing a powerful presence outside, he throws his three crewmates out of Bege's fortress. Caesar protests that Sanji did not free him, but soon has bigger problems as Sanji grabs a gun from one of the Fire Tank Pirates and holds the scientist hostage at gunpoint. Sanji tells Bege that he knows the Fire Tank Pirates wouldn't dare harm him because he was being backed by someone powerful - powerful enough to change his bounty condition of capture to "Only Alive", and powerful enough to arrange this wedding. Sanji threatens to shoot Caesar in the head if the Fire Tank Pirates go after the other Straw Hats, and instead agrees to leave Zou with them in order to confront his family. Bege agrees to Sanji's conditions, despite his crew's protests, and reveals that an additional problem has arrived. 
+
+Outside, a still-injured Nekomamushi looms behind Bege and asks him what happened to Pekoms. Bege lies that he and Pekoms had been attacked by one of Jack's remaining crew members, while the other Straw Hats yell to Sanji through the doorway on Bege's chest. Sanji, smiling, tells them that this was his problem and that he would return, before Bege transforms his legs into tank treads and races away. Wanda asks the Straw Hats if the minks should pursue Bege, but Brook instructs her not to as Sanji had no intention of returning.
+
+During the commotion, Sanji's note slips out from among Nami's chains, and falls onto the ground. The contents of the note are finally revealed; it simply states that he was going to meet a woman, and that he would return.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*Brook is apparently familiar with the Vinsmoke Family, and his response suggests that they have a fearsome reputation. 
+*According to Caesar, if one of the Straw Hats becomes related by marriage to Big Mom (in this case, Sanji), the Straw Hat Pirates will automatically become subordinate to the Big Mom Pirates.
+*Sanji's connection to the Vinsmoke Family confirms that he had some means in the past to leave his home in North Blue, cross the Red Line, and arrive in East Blue.
+*Vito, the advisor of the Fire Tank Pirates, whispers something to Sanji that makes him more willing to go along with the Fire Tank Pirates.
+*Sanji threw Nami, Chopper, and Brook out of Bege’s castle before Nekomamushi forced Bege to retreat with Sanji and Caesar.
+*Sanji assumes that the person who made the Marines and World Government write "Only Alive" on his bounty poster is the same person who arranged the wedding.
+*Bege leaves Pekoms behind when he runs away from Nekomamushi.
+*The note that Sanji had left for the Straw Hats (mentioned in Chapter 807) is shown.
+**This is the second time Sanji has left the crew a note after leaving alone to go after someone. The first time was at the Blue Station in Water 7, when he snuck aboard the Puffing Tom and left an overly conspicuous message for Nami, which insulted anyone else who tried to read it.
+
+## Characters
+
+## Characters
+
+Pirate, Straw Hat Pirates, Nami, Usopp, Sanji, Tony Tony Chopper, Brook, Donquixote Pirates, Caesar Clown, Big Mom Pirates, Charlotte Linlin, Napoleon, Pekoms, Fire Tank Pirates, Capone Bege, Vito, Zou, Nekomamushi, Wanda, Twin Cape, Crocus, Laboon

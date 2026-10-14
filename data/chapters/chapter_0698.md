@@ -1,0 +1,57 @@
+# Chapter 698: Doflamingo Appears
+
+Volume: 70  |  Arc: Punk Hazard Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_698 (CC-BY-SA)
+
+## Cover page
+
+Caribou's Kehihihihi in the New World Vol. 20 - "Off to the Harbor".
+
+The old lady sends Caribou off to the port.
+
+## Short summary
+
+The Straw Hat Pirates, along with their allies and prisoner are heading out to Dressrosa on the Thousand Sunny when they are informed of Luffy's goal to defeat all of the Four Emperors and the plan by Trafalgar Law to reduce Kaidou's power in the New World by destroying Doflamingo's SMILE factory. Regardless of the dangers involving an army of SMILE users and a potential encounter with Kaidou himself, Kin'emon along with his son Momonosuke are coming along with the Straw Hats as one of Kin'emon's comrades is being held prisoner in Dressrosa.
+
+Back on Punk Hazard, Smoker allows the G-5 Marines and Brownbeard to retrieve their comrades from their petrified states. One of Smoker's men questions if they should arrest the headless bodies of Doflamingo's subordinates. However, the heads suddenly come flying back to their bodies and the men are viciously attacked by Doflamingo himself. Doflamingo stands in front of Smoker and demands the location of the Straw Hats, but Smoker tells him he has no idea where they are going and call him by his alias "Joker". Seeing that his alias is exposed, Doflamingo struck a deadly blow to Smoker's face severely injuring him. He then attempts to deliver the killing blow but is interrupted by the arrival of Kuzan, the former Admiral.
+
+## Long summary
+
+The G-5 Marines are on Punk Hazard again, trying to save their comrades. They notice that the protective gear developed by Vegapunk is resistant to the toxic gas, and comment on how Caesar Clown lied to his subordinates that it was useless. Then they try finding their comrades and breaking the poisonous shell created by Shinokuni.
+
+Meanwhile, Brownbeard thanks Smoker for allowing him to go back and save his crewmates, saying that he will not forget the Vice Admiral's name, and that he will definitely return to get arrested.
+
+While the remaining G-5 Marines are commenting on how the headless bodies of Baby 5 and Buffalo are creepy, their heads come flying, which attach themselves to their bodies. Afterwards, Doflamingo himself appears and uses Haoshoku Haki to knock out the Marines. After they retaliate against the Warlord for attacking them, he reveals his string-manipulating powers, and defeats them. He then demands Smoker the location of Law and the Straw Hats, but Smoker sarcastically replies by saying that he does not know. Enraged, Doflamingo attacks Smoker.
+
+The Straw Hats are on a sea slope, which Luffy exclaims that it is fun. Law tells the Straw Hats that it is commonly seen, though Usopp yells otherwise. Franky explains to Brook that the "little lamb" is actually Mini Merry II. Kin'emon is surprised to know that the next destination is Dressrosa, claiming that one of his comrades is being kept prisoner there. Luffy then informs his crew about their plan to take down the Four Emperors; Zoro says that it is great, while Usopp once again yells otherwise. Sanji warns Law about how his and Luffy's idea of an alliance are completely different.
+
+Caesar Clown then berates the crew for provoking Doflamingo and Kaidou, and angrily claims that they should die for it. Sanji kicks him to shut up, and Chopper says that he should do it after he's done treating the scientist.
+
+Law informs the Straw Hats about Doflamingo and Kaidou, and their plan as well. Usopp, Nami, and Chopper are terrified at Law's explanation of Kaidou having over 500 Zoan Devil Fruit users, and Zoro tells them to shut up. Afterwards, Chopper praises Caesar for his work on SAD, much to Usopp's objection, but soon loses interest after Law clarifies that it was Vegapunk who discovered the application of bloodline elements.
+
+Back on Punk Hazard, the G-5 Marines beg Doflamingo not to kill Smoker, tearfully claiming that he is the only one who would bother to take care of them. The Shichibukai tells them not to worry, as he will kill all of them, as well as Law and the Straw Hats. While attempting to deal the final blow to Smoker, former Admiral Kuzan appears, who says the vice admiral is his friend.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*The G-5 Marines and former prisoners learn that Caesar's gas does not kill its victims for half a day, giving them time to save their comrades.
+*Smoker temporarily lets Brownbeard go free so that he can save his crew from Caesar's gas.
+*Buffalo and Baby 5's heads get reattached to their bodies.
+*Doflamingo arrives on Punk Hazard looking for Trafalgar Law and the Straw Hat Pirates, and attacks Smoker and the Marines.
+*Doflamingo's abilities of manipulating strings, Armament Haki, and Supreme King Haki are revealed.
+*Law reveals his plan to bring down Kaidou to the other Straw Hats.
+*It is revealed that Kaidou has over five hundred SMILE users in his crew, but the fruits are risky due to being artificial.
+*Law mentions that Caesar created SAD by making practical application of the "lineage factors" discovered by Vegapunk.
+*Law and the Straw Hats start making their way to Dressrosa, to destroy the factory where the SMILEs are being created.
+*Usopp can be seen working on Nami's Sorcery Clima-Tact.
+*Kin'emon has a comrade being held captive at Dressrosa.
+*Doflamingo nearly kills Smoker, but is stopped by Kuzan, who also just arrived.
+*Kuzan is revealed to be the mysterious figure whose silhouette was shown in Chapter 695.
+
+## Characters
+
+## Characters
+
+Pirates, Marines, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Nami, Usopp, Sanji, Tony Tony Chopper, Nico Robin, Franky, Brook, Heart Pirates, Trafalgar D. Water Law, Donquixote Pirates, Donquixote Doflamingo, Baby 5, Buffalo, Blackbeard Pirates, Kuzan, Caribou Pirates, Caribou, G-5, Smoker, Punk Hazard, Caesar Clown, Brownbeard, Wano Country, Kin'emon, Kouzuki Momonosuke, Baburu

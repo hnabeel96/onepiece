@@ -1,0 +1,61 @@
+# Chapter 1067: Punk Records
+
+Volume: 106  |  Arc: Egghead Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_1067 (CC-BY-SA)
+
+## Cover page
+
+Germa 66's Ahh... An Emotionless Excursion, Vol. 24: "What's your name again?! Judge vs. Caesar!!"
+
+Judge and Caesar Clown start fighting each other.
+
+## Short summary
+
+When Bonney is surprised by Vegapunk's current appearance, the doctor reveals he ate the Nomi Nomi no Mi which grants him infinite knowledge and that the area known as Punk Records is where it is stored. As Vegapunk explains about his satellites, Bonney attempts to exact revenge but the weapon backfires on her. After talking to Luffy about Momonosuke's Devil Fruit, Vegapunk reveals the ancient giant robot attacked Mary Geoise 200 years ago. As Shaka explains to Sanji's group of how that robot's power source is unknown and cannot be reproduced, Vegapunk reveals to Luffy he has something to give to Bonney and asks Luffy to take him away from Egghead.
+
+When word about the arrival of CP0 is received, and they decide to eliminate Bonney as well once learning of her presence. Shaka then decides to prepare for battle. Meanwhile, at Momoiro Island, Kuma oddly starts to run away from the Revolutionary Army.
+
+## Long summary
+
+Bonney asks Dr. Vegapunk what happened to his head, considering how its formerly enormous size last time they had seen each other. Vegapunk simply says that he cut it, a statement that leaves her flabbergasted that he can compare his head to simple hair. Vegapunk explains that he ate the Nomi Nomi no Mi, a Paramecia Devil Fruit that allows him to store every tiny detail of knowledge, which causes his brain to grow continuously with all the new information. Granted, he was already born a genius, the Devil Fruit simply expanded upon that.
+
+Chopper is left in awe over Vegapunk's claim that his brain is still growing, even separated from his head, while Luffy asks if he became stupid after cutting it, which irritates Vegapunk. He explains that the apple attached to his head is an antenna, and it transmits information to the rest of his brain, which is contained in the backside of the giant egg on the island, which is dubbed “Punk Records”. Vegapunk also explains that each of the satellites are clones of him, each one containing an exact copy of one of his personalities, all increasing the amount of work he can do, and that once a day, he syncs their experiences and knowledge through Punk Records, which Jinbe believes is because they all share the same brain as him.
+
+Vegapunk says that Punk Records is very much like a giant library, in that people around the world can access his brain and help themselves to his incredible knowledge. He also believes if mankind can continuously update Punk Records, he could create a sea of knowledge far beyond his brain, with which he can share with all of the world. Chopper gushes over Vegapunk’s accomplishments, while Jinbe questions if he would encounter issues with ideology, which Vegapunk says should not be too focused on if one wishes to advance the field of science. Bonney, however, becomes livid, telling Vegapunk that he is still the same as when last they met: a man who is willing to sacrifice everything for the sake of science, like her father, Bartholomew Kuma. She draws the beam saber she picked up earlier on Vegapunk despite his claim that it is a failed product. She demands he turn Kuma back to normal as Jinbe tries to calm her down by reminding her how many enemies she will create if she kills the smartest man alive. Vegapunk then tells Bonney that the reason why the beam saber is a failed product is because it keeps attracting insects, and as if on cue, several of them swarm towards her, causing her to faint from shock.
+
+Chopper tries to check on her as Vegapunk admits Bonney has every reason to want him dead, but he shifts topics to that of his Artificial Devil Fruit, as he had heard rumors that there was another dragon in Wano other than Kaidou. Luffy confirms this as Vegapunk tells him that he considers it a failed experiment, even though he spent twenty years researching Kaidou’s Lineage Factor. Luffy, however, states that the Devil Fruit is not a failure because it allowed Momonosuke the same capabilities as Kaidou himself. Vegapunk, however, reveals that he considers it a failure because the dragon’s color is pink, in contrast to Kaidou's azure, causing Jinbe to call him a die-hard perfectionist.
+
+Luffy asks Vegapunk if he can move the large robot they found, as he thinks he built it, but Vegapunk tells him he did not. He also reveals that it once attacked Mary Geoise 200 years ago, and was built more than 900 years ago. Vegapunk himself does not know why it was built, but he knows that it was not able to destroy Mary Geoise because it ran out of power. The researchers of the time were left wondering where it came from and what its objective was, but the World Government ordered it to be destroyed. The researchers, however, hid it to continue studying it across the generations.
+
+On the Labophase, it is revealed that the thing Shaka wanted to show the Straw Hats was the ancient robot itself, and that they saw and heard everything the real Vegapunk said. Robin remarks that 200 years ago was when Fish-Men discrimination started, and Shaka tells everyone that they built the large robot Lilith was piloting earlier, Vegaforce-01, based on everything they have learned from the ancient robot. His only problem is being unable to replicate its power source. For the moment though, the crew is relieved to see that Luffy is okay. Back with the original Vegapunk, the former admits he hurt Bonney, which Luffy agrees with, but he says there is something he wishes to give to her. He then asks Luffy if he can help him escape Egghead.
+
+Off the coast of the island, CP0 arrives and asks to be allowed to harbor. Stussy says that Jewelry Bonney is on Egghead as well, to whom Rob Lucci calls her an eyesore who has escaped multiple times. However, they see no more use from her and decide to kill her if they run across her. Pythagoras tells Shaka that the World Government is here, and they have CP0 with them, Rob Lucci included. Lilith suggests he be let in, but Usopp and Nami demand he not be let in due to their past dealings with him. Shaka tells Pythagoras to intercept them and deny their request.
+
+On Momoiro Island, Kuma starts moving, perplexing the Revolutionary Army. Despite not being able to move properly, he still tries to run off, collapsing and getting back up multiple times. This causes Dragon and Ivankov to ask him to stay, as their battle as the Revolutionary Army is now beginning.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*Vegapunk explains more about his background to Luffy's group.
+**Vegapunk reveals that he is the user of the Nomi Nomi no Mi and that the Punk Records found in the Labophase is where most of his brain is stored, which he can remotely access anytime with the help of the antenna on his head.
+***Vegapunk's satellites are revealed to be clones of the original and are also mentally synchronized with Punk Records, allowing it to expand daily with new experiences.
+***Vegapunk wishes to someday grant the whole world access to Punk Records and the intellect and knowledge stored in it.
+**Bonney attacks Vegapunk with the beam saber, which turns out to be a failed product that attracts bugs. Bonney faints at the sight of the bugs.
+***Vegapunk claims that he has something to give to Bonney.
+**Vegapunk is aware about Momonosuke being the user of his Artificial Devil Fruit, which he considered a failure solely due to its coloration.
+**Vegapunk requests Luffy to take him away from Egghead.
+*Vegapunk explains that the ancient Iron Giant found in the scrapyard was created before the Void Century and once attacked Mary Geoise 200 years ago, although it stopped working before it could cause any damage.
+**Robin notes that the robot's attack coincides with the time period when Fish-Man Island was officially inducted in the World Government.
+**According to Shaka, the robot is powered up by an unknown power source that is currently impossible to recreate, but was widely available in ancient times.
+*CP0 has arrived on Egghead to find and kill Bonney.
+**They destroy one of the Sea Beast Weapons guarding the island.
+**Shaka orders the other satellites to prepare for battle.
+*Meanwhile on Momoiro Island, Kuma begins running towards something, with the Revolutionary Army members shouting after him to come back.
+
+## Characters
+
+## Characters
+
+Pirate, World Government, Revolutionary Army, Straw Hat Pirates, Monkey D. Luffy, Nami, Usopp, Sanji, Tony Tony Chopper, Nico Robin, Franky, Jinbe, Bonney Pirates, Jewelry Bonney, SSG, Vegapunk, Vegapunk/Shaka, Vegapunk/Lilith, Vegapunk/Edison, Vegapunk/Pythagoras, Vegapunk/Atlas, Vegapunk/York, S-Bear, CP0, Rob Lucci, Hattori, Kaku, Stussy, Monkey D. Dragon, Bartholomew Kuma, Emporio Ivankov, Lindbergh, Inazuma, Belo Betty, Karasu, Koala, Germa Kingdom, Vinsmoke Judge, Vinsmoke Ichiji, Vinsmoke Niji, Caesar Clown, Wano Country, Kouzuki Momonosuke, Emet

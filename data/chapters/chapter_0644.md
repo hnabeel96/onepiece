@@ -1,0 +1,47 @@
+# Chapter 644: To Zero
+
+Arc: Fish-Man Island Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_644 (CC-BY-SA)
+
+## Cover page
+
+From the Decks of the World Vol. 27 - "Jaya - South Bird ♥ North Bird → Western Bird & Eastern Bird".
+
+## Short summary
+
+Noah continues falling toward Fish-Man Island while a flashback of Hody's appears. In the Fish-Man District, Hody and the New Fish-Man Pirates officers were taught as children that the humans are an inferior species and they should be punished by heaven. The flashback moves forward in time when Hody was a Neptune Army member and he and his crew commit crimes, celebrate the death of Otohime, and start producing Energy Steroids and the flashback ends. Fukaboshi gives an emotional speech to the whole island about the cause of this event and begs Luffy to create a new beginning. Luffy then tells Fukaboshi to leave everything to him and his crew. After the discussion ends, Hody catches up to Luffy and Shirahoshi and Luffy punches him through the chest with a new Haki imbued punch.
+
+## Long summary
+
+The whole island is in a panic as the evacuation continues and the impending arrival of Noah looms ever closer. People are confused by what Fukaboshi is saying about Hody. Outside the island, Hody is laughing hysterically as he chases Luffy and Shirahoshi, his muscles continuing to expand. Shirahoshi remarks he looks even scarier than before. Hody then has a flashback.
+
+In the Fish-Man District, a fish-man is preaching in the street about how humans are an inferior species that is running rampant and threatening fish-menkind. A very young Hody Jones listens to this and seems to take it to heart. The scene changes to a fish-man talking about someone blowing up a slave shop on the surface. A memorial wreath is in front of a large picture of the fish-man in question. People are standing around it, saying that he died, but took eight humans with him and caused widespread disaster on the surface. Hody comments that it serves the humans right, and Ikaros Much praises the man, saying he wants to be a hero too. The scene changes to another time in the Fish-Man District, where someone is saying Arlong sank a human pirate ship. Arlong is talking about how fish-men were chosen by heaven to get rid of the trash that is humanity. The humans feared this, so they decided to persecute the fish-men. In the end the humans won because of their superior numbers.
+
+Later, Hatchan is telling Hody, Shyarly, and some other children about a human friend he has on the surface, Silvers Rayleigh, and speaking highly of him. Hody turns and leaves, saying Hatchan's story makes him want to vomit. Hody then watches some fish-men at a rally of some kind, saying their day of vengeance will soon come. In the next scene someone is talking about the recent death of Fisher Tiger. Zeo comments that Tiger wasn't the chosen one either. The New Fish-Man Pirate officers are then seen wearing black leather masks, leading a group of people holding torches. They approach a man's home. The man had donated blood to a human, and that would not be tolerated. They burned his house to the ground and strangled the man in front of his children.
+
+The scene changes to Hody, now a member of the army, talking to the officers. He was saying that everyone from the royal family on down has lost their minds and yielded to humans. Ikaros asks if Hody heard about Jinbe joining the Shichibukai. Hody says that Arlong is the only true pirate left. In the next scene, someone cries out that the main island is in a panic, saying that Otohime was assassinated by a human (not knowing that Hody was the one who actually committed the murder and framed the human for the crime). People became angry at the royal family for not doing anything. Hody and the officers are then seen toasting beer saying the shameless have been judged and that it is the natural order for those who yield to humans to die. Hody then puts a bag on the table, saying heaven has given them power. The officers are shocked at what they see. Hody asks Zeo if he can mass produce them, and Zeo says he will give it a try. They are next seen with the New Fish-Man Pirates jolly roger, saying they will dedicate their lives to killing humans.
+
+The flashback ends. Hody tells Luffy he has given up his life this vengeance. In the air tank, the guards are taking aim at Noah through a crosshair. They fire the bubble. Fukaboshi is then seen realizing that he has failed. They have cast off the emotions of fish-men, exiling them to the Fish-Man District, ignoring the grudge that was slowly growing among them. They were focusing too much on progress. He then remembers his mother saying people should not pass on their hate to their children, but he realizes that has already happened. People must first fight within themselves. He then declares that Otohime was killed by Fish-Man Island's grudge. The regrets of the dead should stay with the dead. A grudge is something people make to feed on others, and the grudge of the Fish-Man District has been fed by their hatred for humanity. By the time anyone noticed, it had grown too big to contain. He then tells Luffy that they do not need the past, and asks him to bring everything back to zero, to purge the old ghosts living in the shadows. The guards in the air tank are celebrating, as the bubble has successfully surrounded Noah. He asks Luffy to bring the island back to zero.
+
+Hody tells Fukaboshi he can talk all he wants, but hatred is eternal. Luffy tells Fukaboshi through the baby Den Den Mushi to let him take care of this, and he can take a seat and relax. He tells Fukaboshi, as well as everyone on the island through the intercom, that from the moment they entered the plaza they decided they would not let anyone touch the island and to leave everything to them; adding that they are friends after all, which bring tears of happiness into Fukaboshi's eyes. The residents suddenly stop running. The Minister of the Right looks up and wonders if the Straw Hats are the kind of humans they had been doubting. Touched by Luffy's words, some of the residents decided to stay on the island until the end of the battle. The guards tell Luffy that Noah has air in it. Luffy tells Shirahoshi to stay by his side and he will not let her get hurt. Luffy pulls back his arm, hardening his fist with Busoshoku Haki as Hody charges at him. He then hits Hody with a Gear Second Gomu Gomu no Red Hawk, an incendiary attack so powerful it causes a fiery explosion to erupt from out of Hody's back.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*There are north birds, eastern birds, and western birds in addition to south birds. Apparently the South Bird fell in love with a north bird and their kids are an eastern bird and a western bird.
+*More of the New Fish-Man Pirates' past is revealed.
+**It is revealed that Zeo was put in charge of mass-producing the Energy Steroids.
+*Ikaros Much's friend Daidalos can be seen next to him when they are children.
+*A younger Shyarly can be seen.
+*In one of the panels, the New Fish-Man Pirates are shown wearing black hoods and burning another fish-man's house for helping a human. This is similar to how the Ku Klux Klan wore white hoods and burned downed other southerners' houses during and after the American Civil War for helping people of African descent that were being discriminated against.
+*The air bubble is successfully placed around Noah.
+*For the first time, Luffy uses a Gear Second attack without using "Jet" in its name.
+*Pandaman appears on page 12, in the fifth panel where Fukaboshi preached about the signatures, directly underneath the speech bubble.
+
+## Characters
+
+## Characters
+
+Pirates, World Government, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Nami, Usopp, Sanji, Tony Tony Chopper, Nico Robin, Franky, Brook, Sun Pirates, Jinbe, New Fish-Man Pirates, Hody Jones, Dosun, Zeo, Daruma, Ikaros Much, Flying Pirates, Wadatsumi, Arlong Pirates, Arlong, Kuroobi, World Noble, Donquixote Mjosgard, Ryugu Palace, Neptune, Otohime, Fukaboshi, Shirahoshi, Minister of the Right, Ammo Knights, Fish-Man Island, Hatchan, Camie, Medaka Mermaid Quintuplets, Shyarly, Daidalos, Jaya, South Bird

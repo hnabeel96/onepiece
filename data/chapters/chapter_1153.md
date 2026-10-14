@@ -1,0 +1,52 @@
+# Chapter 1153: The Birth of Loki
+
+Volume: 113  |  Arc: Elbaph Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_1153 (CC-BY-SA)
+
+## Cover page
+
+Oni Child Yamato's Golden Harvest Surrogate Pilgrimage Vol. 37: "Daimyo of Ringo, Kikunojo and Boss O-Cho"
+
+## Short summary
+
+King Harald began turning away from his arrogance and bloodlust after meeting the South Blue giant Ida, and 105 years ago he began working to improve diplomacy between Elbaph and the rest of the world. He fathered Hajrudin with Ida 81 years ago, but this was not recognized due to her outsider status. Harald was then betrothed to Estrid, who gave birth to their son Loki 18 years later. Estrid was terrified of Loki's demonic-looking appearance and threw him into the Underworld, intending to declare he had been stillborn. However, the newborn Loki climbed back up the Treasure Tree Adam. Estrid then fell ill, and all misfortunes that fell on Elbaph since then were attributed to a curse on Loki.
+
+## Long summary
+
+As a prince, Harald spent his childhood with Dorry and Brogy, and his spoiled and violent personality later in life was due to his immense size, strength, and noble heritage, which made him think he could do whatever he wanted. One day, he sailed by a kingdom in the New World where he saw a female Giant named Ida being used as an attraction in a circus. Believing she was being mistreated, Harald destroyed the town and took Ida with him on his ship, but to his shock, Ida slapped him and demanded he turn around and go back to the kingdom. Ida explained to Harald that the people of that town in fact saved her when she was washed ashore, and she was working in the circus as a job to repay them for their kindness. She angrily told Harald that he considered humans "tiny" because he was simply larger than others, and it was that arrogance of his that gave Giants like her a bad name. 
+
+Ida's words humbled Harald immensely, and he agreed to turn around and help the people. While he and his crew helped repair the town and apologize for his actions, Harald came to enjoy his time with the humans because he learned so many things. Ida also reveals that she was born in a different country, and not in Elbaph as he and the townspeople thought, so Harald invites Ida to come back with him to Elbaph, as he had fallen in love with her, and she too for him, to the astonishment of the crew. 
+
+Many years later, Harald announced his plan to journey around the world and atone for his past misdeeds by establishing connections to other countries and letting them share their knowledge with them. Of course he is aware that Dorry and Brogy are still out there causing trouble, but he reasons they will not hurt humans because of their honor, though he promises to reign them in if they become too much. As the years passed Harald proceeded to meet various people and deepen his relationship with Ida. Eventually, Ida gave birth to their child, Hajrudin, but unfortunately, Harald is forbidden from marrying Ida officially and making her queen due to her not being born in Elbaph, though Ida accepted this and agreed to live in a nearby village with Hajrudin. 
+
+The woman who Harald would ultimately marry was a woman named Estrid, who came from a village in the north and studied geomancy, though her obsession with omens and signs made her come off as enjoying luxury more than wanting to bring good fortune. Many years later, while Harald was off at sea sharing his knowledge of navigation with other countries, Estrid would give birth to her and Harald's son, Loki. When Estrid saw Loki's unusual eyes, though, she was repulsed and called the infant Loki a cursed monster, while ordering that the kingdom be informed that Loki was stillborn. Estrid then tossed Loki into the Underworld while ordering others to claim she did not bear a child, while also making plans to return home so that she does not give birth again. To her displeasure, she learns that not only did Loki survive after being thrown out, but he also started climbing the tree back to the Sun World. 
+
+Sometime after Loki was born, Estrid fell ill, and on her death bed she claimed that Loki must be eliminated as she has "foreseen" that Harald will be killed by him one day (though no one believed her at the time). In addition, Harald started to struggle with diplomacy because of the World Government, and all of these struggles that Elbaph would face were ultimately blamed on Loki's "curse".
+
+## Notes & trivia
+
+## Chapter Notes
+
+*The events of flashback from the events of 109 years before the present continues.
+**King Harald reminisces about his childhood, which reveals he was friends with Dorry and Brogy when they were children and his Ancient Giant blood and royal status were the cause of his behavior when he was younger.
+**Harald mistakenly comes to the aid of a giantess named Ida who he thought was being imprisoned at a circus, but she forces him to take her back as she was actually working for him willingly as they saved her and was living with them to recover.
+***As a result of his relationship with Ida, this resulted in Harald outgrowing his previous arrogant nature and becoming a better person and he was able to help her at the circus to atone for his earlier mistake.
+*At 105 years before the present, Harald now wishes to atone for his past misdeeds and create stronger bonds with other nations.
+*At 81 years before the present:
+**Ida gives birth to Hajrudin, but the elders of Elbaph refuse to allow Harald to marry her due to Ida not being born on Elbaph, though she is allowed to remain in Elbaph.
+**The Elbaph elders arrange for Harald to marry Estrid.
+**Estrid gives Harald the "Horse of Fortune" Asla as a gift, though the royal guards notice she is only marrying Harald to live a life of luxury.
+*Around 70 years before the present, Harald was helping maintain trade between nations and telling stories of his adventures, such as at Fish-Man Island and their newborn royal heir Neptune.
+*At 63 years before the present:
+**Estrid gives birth to Loki, but his appearance horrifies her to which she denies his existence and Loki is thrown into the Underworld.
+***Estrid became bedridden after falling ill shortly afterwards.
+**The infant Loki begins climbing out of the Underworld.
+**Harald was having problems maintaining his relationships with other nations due to the World Government's interference.
+**It is stated the misfortunes that would fall upon Elbaph would be become known as Loki's curse.
+
+## Characters
+
+## Characters
+
+Elbaph, Harald, Dorry, Brogy, Ida, Jarul, Jorul, Hajrudin, Estrid, Asla, Loki, Wano Country, Yamato, Kikunojo, Cho

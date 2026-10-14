@@ -1,0 +1,47 @@
+# Chapter 1144: A Time for Warriors
+
+Arc: Elbaph Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_1144 (CC-BY-SA)
+
+## Cover page
+
+Oni Child Yamato's Golden Harvest Surrogate Pilgrimage, Vol 29: "Minatomo the carpenter and the girls are freed!"
+
+## Short summary
+
+Franky and Ripley reach a scientific facility and reunite with Lilith and Bonney; Lilith estimates that the facility is 3000 years old. However, they then come under attack by the MMA along with the Western Village. Nami informs Jarul of the report of two hostile intruders at Aurust Castle, and she, Usopp, Brook, and Jinbe go to search for them on a svarr commandeered by Colon. As Saul tries to figure out a way to stop the sleepwalking children, he comes under attack by a fenrir MMA, but soon afterward the Giant Warrior Pirates and Scopper Gaban arrive to battle all the MMA.
+
+## Long summary
+
+Ripley brings Franky to a ancient scientific facility coverd in vines and trees, which he finds rather out of place in a country filled with warriors. Lilith and Bonney greet Franky from within as they had found the place first, though it was actually due to the both of them getting lost. Ripley warns the two that she heard alarms in the distance and now she can warn them about potential dangers nearby, but Lilith tells Franky that by her estimate, this facility has been in Elbaph for three millennia, which Franky finds hard to believe, but Ripley supports this saying they have no record of this building. Regardless, Lilith decides to make the facility her new base of operations, but just as Franky asks to look inside himself, Bonney warns the both of them that something is behind them. That something is one of Killingham's MMAs which took the form of a lightning cloud with a face on it. At first Franky thought it was just something natural to Elbaph, but Ripley clarifies that the opposite is true.
+
+In the western village, the large skeletal MMA, which is called a Draugr, begins its assault on the village, forcing the warriors to sober up to fight back. Unfortunately, both Dorry and Brogy are absent to give the giants commands as apparently they drank too much and ran to the bathroom. The giants prepare to move the Straw Hats away from the fight, but Usopp tells them they want to help, albeit very quietly. Colon is forbidden from fighting too despite his claim that he is a warrior and the son of Gaban, instead being told to take shelter with the rest of the children.
+
+Finally, Nami tells Jarul about their expedition to the castle, and he learns from the injured guards about the Shanks lookalike and another one of them was using a strange power. Jinbe surmises it was the work of a Devil Fruit, and it is possible these large monsters are the work of these unknown intruders. Jarul orders that everyone in the country is informed of these intruders and to notify him once they are found, though Brook adds there may be more present, so Jarul tells them to warn there are at least two instead. Nami becomes furious that these people would abduct children in broad daylight and Usopp fears what the attackers will demand of the country once the children are their hostages, while Jinbe offers to help stop them. Jarul refuses, citing that the Straw Hats are their guests and they should hide somewhere safe instead. After the giants leave, Jinbe says if the intruders are human-sized like them, they would have a much easier time dealing with Usopp saying giants can handle the large monsters. Of course the country is too big to cover on foot for them, but Nami sees Colon dragging a bag of weapons. The four approach him and once he sees they do not plan on stopping him, he agrees to let them ride on his ship, provided they make him the captain.
+
+Back with the Knights of God, the three of them hear the announcement that humans aside from the Straw Hats have been spotted, but they largely ignore it. Sommers sees Gunko listening to music and calls it her post-meal ritual, but she denies this, calling it something she just enjoys. Sommers says he prefers a live musical where he can shoot the person who flubs a note first, but he admits it is nice to carry a hobby with you before asking what song she is listening to, and surprisingly, she says she is listening to "New World". Sommers laughs and asks if Gunko is dissatisfied with the current world, only to be chastised by Killingham for making fun of other people's interests, which he apologizes for, but he then comments on the adults' attempts to save the children.
+
+Saul equips himself with two shields to protect himself from the thorns, but though he manages to stop one of the children, the other bumps into the one in front, causing the thorns to hurt both of them, to the horror of Saul and the disgust of Robin. Robin tells Saul they should search for the source of these powers but he warns if they do not do anything, the children will walk straight into the fire. Saul grabs some rope and lassos one of the children from behind, but one of the MMAs, a Fenrir, prepares to attack, causing Saul to realize that the monsters are trying to keep anyone from interfering. 
+
+In the western village, the Draugr is finally brought down, but several warriors were injured in the process. Two other MMAs, a Nidhöggr and a Ghost, prove to be too much for the warriors, forcing everyone to flee. Suddenly, Dorry and Brogy appear and use a simultaneous Hakoku to destroy both of them and another MMA. The two apologize for being late as they were throwing up all the alcohol they drank to sober up, but now they are mad they wasted such good drink and are ready for payback. In addition, Gaban is present with the Giant Warrior Pirates, giving the villagers hope to win.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*Franky and Ripley arrive at the remains of a giant ancient facility and reunite with Lilith and Bonney.
+**Lilith estimates the facility is at least 3,000 years old.
+**Lilith decides to make this facility her new base of operations.
+*Nami informs Jarul about the earlier incident at Aurust Castle and about the Shanks lookalike, prompting Jarul to order a search for the intruders.
+*Jinbe realizes the incident with the children might be the result of a Devil Fruit power and decides they need to locate the user to stop it.
+*Nami, Jinbe, Usopp, Brook, and Colon head out on a boat to locate the intruders.
+*Gunko is revealed to enjoy one of Brook's songs, New World.
+*Saul attempts to protect himself while stopping the children, only for the thorns to injure two children.
+*Once Dorry and Brogy sober up, the Giant Warrior Pirates and Gaban head out to deal with the monsters.
+
+## Characters
+
+## Characters
+
+Pirate, World Government, Straw Hat Pirates, Nami, Usopp, Tony Tony Chopper, Nico Robin, Franky, Brook, Jinbe, Giant Warrior Pirates, Dorry, Brogy, Oimo, Kashii, Bonney Pirates, Jewelry Bonney, Elbaph, Jarul, Kiba, Jaguar D. Saul, Ange, Ripley, Ylva, Skaldi, Olav, Karin, Mag, Ronja, Bent, Johanna, Bjorn, Colon, Scopper Gaban, Egghead, Vegapunk/Lilith, Wano Country, Yamato, Minatomo (Wano), Kurozumi Tama, Knights of God, Manmayer Gunko, Shepherd Sommers, Rimoshifu Killingham

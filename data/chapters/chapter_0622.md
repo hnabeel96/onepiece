@@ -1,0 +1,52 @@
+# Chapter 622: The Sun Pirates
+
+Arc: Fish-Man Island Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_622 (CC-BY-SA)
+
+## Cover page
+
+Color spread: Sanji arrives with some food for the Straw Hat Pirates, while they build a giant house out of toy bricks.
+
+## Short summary
+
+The Sun Pirates become more and more of a threat, gaining infamy on the surface and fame on Fish-Man Island. They then meet a former slave girl named Koala, who was at first afraid of being killed due to enslavement, but then started crying due to Tiger's words of encouragement.
+
+## Long summary
+
+The chapter starts on Fish-Man Island, where people have just received news about Fisher Tiger's attack on Mary Geoise. Everyone is overjoyed by the news. At Ryugu Palace, Neptune says that Tiger "actually went and did it" remembering the last meeting he had with him before his assault at Mary Geoise. In the flashback Neptune is seen asking Tiger if he really means to free the slaves. Tiger responds that he cannot stand that the slaves' life is a living hell, suffering torments no person should have to face. He states that he has already made his decision leading to Neptune asking him what he saw exactly during his travels. The fish-man angrily replies that he saw humans. Otohime is seen crying quietly while the two men exchange words, ending the flashback. Neptune is then seen saying that Fish-Man Island is garnering negative attention in the world, and they will not be able to attend Levely as they are. Otohime that there was no way they could have stopped Tiger. The voice she heard in Tiger's heart, had become a terrible scream. Otohime then kisses Shirahoshi on the cheek and touches pinky fingers with her. She is then seen in Candy Factory Town, preaching about how fish-men and merfolk can get along with humans. When a man argues saying that no one will listen since everyone is celebrating Fisher Tiger's exploit and that the humans deserved it, Otohime asks him how pointless would be in the future, saying the petition is their only chance in ever joining Levely.
+
+The scene changes to the Fish-Man District, where a fifteen year old Hody Jones is reading about Tiger's exploits in a newspaper. He is talking excitedly with Daruma and Zeo about how Tiger stuck it to the humans. Zeo agrees, and Daruma recites what Arlong always says, that humans are garbage. A young Dosun mentions how the Sun Pirates are sailing the seas and beating humans everywhere. A young Ikaros Much says that they would have gone with them if they were old enough. Jones yells for the Sun Pirates to show the humans what they (the fish-men race), can do, and to slaughter them all.
+
+The scene changes to the Grand Line, where the Sun Pirates are attacking a G-2 Marine ship. The Marines are no match for the pirates. The commanding officer of the ship, Rear Admiral Kadar, orders the Sun Pirates to give up all of the ex-slaves they took, as a soldier informs him the fish-men are attacking them from underwater. Tiger then kicks Kadar in the head, saying that he has no way of telling which of the pirates were slaves. He tells a barely conscious Kadar to search their bodies, but he will find no marks of slavery, as other fish-men are getting ready to loot the ship. Kadar then notices all of the fish-men swimming below the ship, as Tiger tells him he will get out alive. Nearby, Arlong kicks another soldier to the ground, saying he sentences him to death, as being human warrants an execution, but Tiger tells him to stop.
+
+The scene changes to Marineford, where Strawberry is informing Vice Admiral Borsalino that Kadar's ship has been sunk. Borsalino then asks why they would go and start trouble, as their orders were to locate the Sun Pirates and report back. Strawberry explains that when the ship got close, the fish-men surrounded and attacked them from underwater. Borsalino then comments on how the fish-men are pros under the water. He then asks Strawberry if any of the fish-men could be identified, and Strawberry tells him that there were reported Arlong Pirates on board, as well as many more of their kind. He comments how it is difficult to measure their battle strength, and there was also Fisher Tiger. In short, they are extremely powerful but the Marines do not have their names. Borsalino comments on how troubling it is.
+
+Back on the Sun Pirates' ship, Arlong appears to have been hit in the head by Tiger, and asks him what he care about humans. Tiger sternly reminds Arlong that he was ordered not to kill humans, and that he should not get carried away. Jinbe argues back (first calling him brother tai, then correcting himself) that every human they fight is after Tiger's head. If humans attack them with the intent to kill, then the fish-men should do the same. Tiger replies that killing humans is the same as losing, asking if Jinbe really wants to stoop to their level. Tiger tells them that their campaign is not revenge for the humans' history of discrimination, and neither was his raid on Mary Geoise. He is doing all this to break the hardened rules of society and free the oppressed. The Sun Pirates are about liberation and freedom, no more, no less. Them taking revenge on the humans would only result in the humans taking revenge on them. He then asks them if they understand that even though humans will still come to fight them, the fish-men will not kill anyone. Arlong asks why they do not just slaughter all the humans to the point where they could not take revenge on the fish-men even if they tried. They will teach humans the true strength and horror of the fish-men race. Jinbe then punches Arlong in the back of the head.
+
+Later that night, Jinbe finds Fisher Tiger out drinking on the deck of the ship. Tiger comments how Otohime's ambitions of living peacefully with humans is quite idealistic. He then wonders what differences she would see between him and Arlong. He then comments that the demons in his heart, are the most terrifying of all.
+
+Some time later, Hatchan alerts the crew of an enemy ship approaching. Everyone is amazed that pirates would try to capture them to make a name for themselves. They then proceed to attack the ship. Queen Otohime is then seen aggressively telling people to sign her petition. Jinbe and Fisher Tiger are then seen on wanted posters, having been issued bounties. The Sun Pirates are angry, but Jones and his friends are excited to see them on wanted posters. Otohime is still continuing her aggressive approach to get people to sign her petition.
+
+The scene changes to three years later, the Sun Pirates are on an island. The people of the island are asking the pirates to take a little girl with them. She was one of the slaves that Tiger freed three years prior, named Koala, age eleven. Koala wanted to go back to her home to visit her mother, but the people of the island could not take her there. On the ship, Arlong expresses his disgust at Koala for being a human. He is also bothered by the fact that she is always smiling, and hits her. Hatchan restrains him, saying she is only a child, though Chew mutters that he agrees with Arlong about the smiling. Arlong then watches as Koala rips off part of her pant leg, and begins to clean the deck with it. She apologizes profusely, saying she will work without rest, so they do not have to fight, apologizing again. Jinbe sits next to her, asking what she is doing, and she apologizes again, and does not stop working even when Jinbe notes that she is bleeding. She then says that she will not cry no matter what happens, and asks him not to kill her. Jinbe asks if she is afraid of them. Koala replies that she is, but she wants to see her mother again, so she gathered the courage to board the ship. She then asks if they will kill her if she takes a break, and promises to be useful and asks them not to kill her. A fish-man explains to Jinbe that the lifestyle of a slave is wired into her body. They would be killed if they stopped cleaning or cried. This led to slaves panicking all the time when they were alone, and not trusting anyone.
+
+Fisher Tiger sees Koala cleaning, and orders that she be brought to his room. The pirates ask what he is going to do with her. Koala is then seen looking shocked. She then falls over, with the back of her left shoulder sizzling. Tiger is standing over her, holding a hot iron. Tiger replies that he scarred her, saying that some things can never be forgotten if someone is marked. Koala regains consciousness and apologizes for passing out, but asks Tiger not to kill her as she did not cry. Tiger yells at her, saying that she can cry, telling her not to confuse them with the Celestial Dragons. Tiger then takes out a pistol and tells Koala to watch carefully. He then throws the gun into the ocean, stating they will not kill anyone. He then tells his crew that no matter what, they will get Koala home, to which the crew cheers. The chapter ends with Koala finally crying.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*The officers of the New Fish-Man Pirates are seen as children for the first time and were huge fans of the Sun Pirates. However they misunderstood Tiger's objective, and believe that he and his crew were slaughtering humans in order to demonstrate fish-men superiority.
+*Fisher Tiger declared that the Sun Pirates are not murderers and they will never kill a human.
+*Borsalino is seen as a Vice Admiral.
+*A younger Strawberry is shown.
+*This is the first time that the name of a canon rear admiral is given, Kadar.
+*Fisher Tiger had a first bounty of 230,000,000 while Jinbe's first bounty was 76,000,000.
+*Koala, a young human ex-slave, boards the Sun Pirates' ship after the inhabitants of an island ask the pirates to take the girl home and the crew agrees to deliver her to her hometown.
+*Tiger rebrands Koala's slave mark into the mark of the sun, making her the very first human to bear the Sun Pirates' emblem.
+
+## Characters
+
+## Characters
+
+Pirate, Marines, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Nami, Usopp, Sanji, Tony Tony Chopper, Nico Robin, Franky, Brook, Sun Pirates, Fisher Tiger, Jinbe, Aladine, Arlong, Hatchan, Kuroobi, Chew, Macro, Vice Admiral, Borsalino, Rear Admiral, Kadar, Strawberry, Ryugu Palace, Neptune, Otohime, Fukaboshi, Ryuboshi, Manboshi, Shirahoshi, Minister of the Left, Fish-Man District, Hody Jones, Zeo, Daruma, Dosun, Ikaros Much, Grand Line, Koala

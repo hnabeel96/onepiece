@@ -1,0 +1,27 @@
+# Chapter 503: Aggravated Island
+
+Volume: 52  |  Arc: Sabaody Archipelago Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_503 (CC-BY-SA)
+
+## Cover page
+
+Color spread: The Straw Hats are partying in a mushroom world alongside a trio of violin-playing grasshoppers, possibly a nod to an Aesop fable.
+
+## Short summary
+
+Monkey D. Luffy starts an uproar in the Human Auctioning House by punching Saint Charlos. All the Straw Hat Pirates gather at the auction house. Silvers Rayleigh escapes with a giant and meets Luffy, stating that he had wanted to meet Luffy.
+
+## Long summary
+
+The Auction House is in shock by the punch, Luffy has knocked out a Celestial Dragon, Saint Charlos and smashes him against several empty benches. Everyone, including Camie, Pappag and Hatchan become shocked while Luffy act it like it was nothing, with only Kid and Law smiling from his outrageous actions. Luffy immediately apologizes, knowing that an admiral from the Marines would come due to his attack on the World Nobles, but Zoro admits that he was going to attack the World Noble too while the rest of the crew has moved on to freeing Camie from her bowl prison.
+
+Unfortunately, the remaining Celestial Dragons, Saint Rosward and Saint Shalria are horrified by Luffy's action. Rosward draws a gun but Sanji kicks it out of his hand before taking out a guard nearing him. More guards appear for their protection of the mermaid, but Zoro and Franky easily take care of them. Luffy continues his defiance of the World Nobles, and Rosward is threatening that he will send for an admiral. The remainder of the auction house soon clears out as Zoro slices opens Camie's bowl, grateful for the rescue.
+
+In amidst the growing chaos, the Rosy Life Riders arrive with more crew members while Disco attempts to protect the slave he intends to sell. Rosward continues to threaten action against the pirates until Usopp accidentally lands on his head, knocking him down. Robin and Brook assist in fighting the guards. Luffy comments that the Marines are "coming", but Law corrects him by saying they are "already here" surrounding the auction house though Luffy is more interested now in the bear in his crew.
+
+Angry with the way things were going, Shalria seizes Camie from Disco, threatening to kill her. But before anyone can do anything to stop her, she suddenly passes out as Silvers Rayleigh finally emerges with his giant prison mate, speaking of the money he stole back that he previously lost gambling. Everyone stares at his appearance, but Hatchan immediately identifies him as his friend and the coating engineer. Realizing who is on the octopus man's side with the trouble caused, he emits a mysterious energy that makes nearly everyone in the building faint, with the exception of the Heart Pirates, Kid Pirates, and Straw Hat Pirates and their allies. Rayleigh identifies Luffy by his straw hat immediately after his action, stating he had been wanting to meet him.
+
+## Characters
+
+Pirates, World Government, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Nami, Usopp, Sanji, Tony Tony Chopper, Nico Robin, Franky, Brook, Roger Pirates, Silvers Rayleigh, Kid Pirates, Eustass Kid, Killer, Wire, Heart Pirates, Trafalgar D. Water Law, Bepo, Penguin, Shachi, Jean Bart, Stansen, World Noble, Rosward Rosward, Rosward Charlos, Rosward Shalria, Takoyaki 8, Hatchan, Camie, Pappag, Human Auctioning House, Disco

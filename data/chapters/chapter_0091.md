@@ -1,0 +1,25 @@
+# Chapter 91: DARTS
+
+Arc: Arlong Park Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_91 (CC-BY-SA)
+
+## Cover page
+
+Diary of Koby-Meppo, Vol. 8: "The Ship of Marine Headquarters Vice Admiral Garp".
+
+What Helmeppo spotted is revealed to be the ship of a high-ranking Marine officer. He, Koby, and everyone else above-decks salutes at its approach.
+
+## Short summary
+
+Luffy attempts to use Arlong's teeth against him, but does not have the strength to use them like the fish-man can. Arlong then starts overwhelming Luffy with his teeth and nose, but Luffy does not back down and swears to destroy his nose.
+
+## Long summary
+
+Arlong gets angry at Luffy for using his crewmate as a shield, but Luffy retorts that the fish-man did the same to his enemies. Johnny and Yosaku state that Luffy said he had an idea for beating Arlong, and they and Sanji wonder what it is. Arlong attacks Luffy by snapping the teeth in his hands, but Luffy avoids his lunges and kicks him in the jaw, sending another set of his teeth flying out. As Arlong grows another set, he reminds Luffy that it's useless to break his teeth, but Luffy instead places the fish-man's teeth into his own mouth, and Johnny and Yosaku are appalled that this is his idea. An insulted Arlong manages to give Luffy a small bite in the shoulder, although it leads to him melodramatically rolling on the ground in pain. Johnny and Yosaku yell at Luffy to stop playing around, but Luffy denies their accusation. He then blocks another of Arlong's strikes with a large piece of rock, but Arlong's strength sends Luffy tumbling backwards. Arlong then sinks a set of teeth into Luffy's side, but he quickly responds by biting Arlong's shoulder with the fish-man's own teeth.
+
+The two combatants separate from each other, with the teeth Luffy used being left in Arlong's shoulder, and Luffy laughs how he hurt Arlong with his own teeth. However, Arlong, pulling the teeth from his shoulder, says that Luffy's jaws are too weak to do any real damage, and he tries to demonstrate the real power of a shark's jaw as he bites into Luffy's right arm at the elbow. Luffy manages to counter by throwing Arlong into the ground, allowing him to loosen the stunned fish-man's jaws and free his arm. The two momentarily lie motionless on the ground. Genzo states that Luffy could have lost his arm had he been trapped for even a second longer. Arlong gets up first, noting that Luffy's throw was enough to draw blood. Meanwhile, Luffy pulls the teeth out of his side, but when he gets up, notices that Arlong has disappeared. Usopp yells to Luffy that Arlong went into the water, though Luffy initially confuses his exposed fin for an actual shark. Below the surface, Arlong says that no one can compare to his speed underwater as he flies out of the water like a torpedo, with Luffy just barely dodging a fatal blow, but still being hit hard enough to send him spinning away. Arlong crashes through the tower wall, while Luffy tumbles to the ground. Arlong is surprised Luffy could dodge him, but notes that it will only delay the inevitable. He then uses the same attack again, and Luffy dodges him, causing his nose to embed itself in the ground, with no ill effect to the fish-man. Sanji is shocked at how strong his nose is, and Arlong uses the attack twice more, successfully grazing Luffy both times before going back underwater. As Luffy struggles to his feet his allies yell for him to get away before Arlong can attack again, but Luffy refuses and stands in front of the pool, declaring that he will catch Arlong and break his nose.
+
+## Characters
+
+Pirate, Marines, Bounty Hunter, Straw Hat Pirates, Monkey D. Luffy, Usopp, Sanji, Arlong Pirates, Arlong, Marine Ranks, Koby, Helmeppo, Cocoyasi Village, Nojiko, Genzo, Nami, Nako, Yosaku, Johnny

@@ -1,0 +1,34 @@
+# Chapter 844: Luffy vs. Sanji
+
+Arc: Whole Cake Island Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_844 (CC-BY-SA)
+
+## Cover page
+
+Fan Request: "Sugar making grape jam with a pack of wolves". (Noda Skywalker from Osaka)
+
+## Short summary
+
+Sanji continues claiming to disown Luffy and Nami, and he attacks the persistent Luffy, who does not fight back. Eventually, Sanji defeats Luffy and heads back to his family, but Luffy knows that this is all an act and tells Sanji that he will wait for him at this spot until he comes back, not willing to continue on his journey without his cook.
+
+## Long summary
+
+Still shocked at Sanji's words, Luffy asks Sanji to clarify what he means. Sanji states that he wants them to leave. He thanks them for their efforts to reach him, but says that their efforts are futile, as his family eagerly watches on. Sanji continues by comparing the size and wealth of Big Mom's crew to the Straw Hats', saying that it should be obvious which is the better choice for him. He voices that he's always doubted that someone like Luffy could become Pirate King, prompting Nami to tell him he's gone too far. When he responds by simply glaring at them, Nami is speechless, and Luffy asks the cook if their time together up until now has all been a lie. Sanji replies that it took them long enough to figure it out, and that it has been embarrassing being associated with them. He decides he needs to literally beat the truth into Luffy and prepares Diable Jambe, astonishing the onlooking Germa soldiers at the display of flames. 
+
+Realizing he's serious, Luffy braces himself as Sanji launches toward him. He lands a "Joue Shot" directly to Luffy's face, sending him flying away and causing him to lose a tooth. Luffy quickly recovers in mid-air, and lands on his feet to Sanji's surprise. Sanji again tells them to leave, and Luffy responds that he refuses to fight his cook. Sanji in turn tells him to just get out of his sight, which Luffy also refuses, earning him another kick to the face. Again Luffy quickly recovers, and gets back to his feet. As he rises, Sanji has a flashback of the moment Luffy first asked him to join the crew. Nami screams for Sanji to stop, explaining that they have only gone through all of this in order to bring him back, including fighting of the Big Mom's commanders all night. Luffy silences her however, saying that he's fine with whatever happens in this moment. Sanji questions this as he resumes his Diable Jambe-powered assault on Luffy, while the latter continues to not fight back. Luffy remains on his feet despite the blows, to Nami's horror. Sanji continues to insult Luffy and once again encourages them to leave, but Luffy does not budge. Rising into the air to prepare a final attack, Nami begs Sanji to stop, and says that they'll leave. Luffy however reaffirms that he isn't moving an inch, inspiring another flashback from Sanji of Luffy asking the cook to join his crew. Sanji lands a flame-powered "Concasser" right to Luffy's scalp, finally putting him down. 
+
+The onlooking Germa soldiers are impressed with Sanji's strength, convinced that he must have the Vinsmoke blood running through his veins. Sanji finally turns to get back to his carriage, but is stopped by Nami. She slaps Sanji hard across the face, and bids him a very angry farewell, calling him "Lord Sanji" now rather than her usual "Sanji-kun". Sanji is unable to look her in the eye, and Vinsmoke Judge comments that Sanji has finally severed his bonds as he returns to the carriage. As the carriage pulls off, Luffy gets back to his feet and yells that the cook isn't getting off that easy. He explains that he doesn't believe the chef for a second, and that he's never heard Sanji say something so fake. Sanji meanwhile palms his face, and shows an increasing amount of anguish at Luffy's words. Luffy continues to remind Sanji of all they've been through together, and that he should know this isn't enough to make him turn his back on his friend. Luffy was able to perceive that he wasn't actually the one feeling the pain the more and harder Sanji kicks, and Sanji finally breaks into tears at hearing this. Nami tries to dissuade Luffy by convincing him that Sanji has finally gone too far, but Luffy continues to call out for his chef. Reiju asks Sanji if they should stop again, but he tells them to keep moving as he has another flashback of when he first told Luffy about the All Blue. Luffy appeals that their adventures are still waiting for them, and finally states that he isn't budging an inch from his spot until Sanji comes back to him. He isn't willing to let the "best chef" walk away so easily, and will starve to death if he can't have another meal prepared by Sanji's hands. Niji and Yonji laugh at Sanji's anguish and tears, while Sanji again remembers his torture at his brother's hands. Luffy announces his hunger strike, and that he's not budging from that spot until Sanji comes back, as he can't become the Pirate King without him.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*Sanji and Luffy have a confrontation which ends in Sanji severely beating Luffy without a fight.
+*The Vinsmoke Family continues on to the Whole Cake Chateau and Luffy decides to wait for Sanji, refusing to eat or move from his current location.
+
+## Characters
+
+## Characters
+
+Pirate, Straw Hat Pirates, Monkey D. Luffy, Nami, Sanji, Big Mom Pirates, Kingbaum, Donquixote Pirates, Sugar, Germa Kingdom, Vinsmoke Judge, Vinsmoke Reiju, Vinsmoke Ichiji, Vinsmoke Niji, Vinsmoke Yonji, Nyasha

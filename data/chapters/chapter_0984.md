@@ -1,0 +1,51 @@
+# Chapter 984: My Bible
+
+Arc: Wano Country Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_984 (CC-BY-SA)
+
+## Cover page
+
+"Gang" Bege's Oh My Family Vol. 30: "I'm Your Dad!!"
+
+Pound reveals to Lola and Chiffon that he is their father.
+
+## Short summary
+
+As Ulti and Page One quickly recover from Luffy and Yamato's attacks, Kaidou and the All-Stars join Orochi and the crucified Momonosuke onstage for Kaidou to announce his "New Onigashima Project" to the audience. Meanwhile, Luffy fights Yamato due to not wanting to meet with him, but after they escape from the Beasts Pirates, he allows Yamato five minutes. Yamato reveals that he idolizes and styles himself after Kouzuki Oden, and he wants to work with Luffy to achieve Oden's dream of opening Wano Country's borders.
+
+## Long summary
+
+Page One tries waking up Ulti and demands the other pirates nearby to get a doctor. He also curses Yamato for what he did and demands the others to head them off and let him know where they end up. One of them asks about Page One because of the hit he took from Luffy, and he responds by saying that Luffy almost dislocated his jaw, which shocks them that that is what is irritating him so much. Ulti wakes up and bashes the medics near her while embracing Page One saying that she is hurt because of the medics. He calls her a psychopath and tells her to rest and she retorts that he should try saying it again to see what happens. Ulti also curses Yamato for using his father's Raimei Hakke and says that it was more like a Raimei Yonke, though Page One says it managed to hurt her. Page One is then informed that Luffy and Yamato have stopped moving, and he immediately heads for their direction, leaving Ulti behind, which annoys her. The nearby Beasts Pirates remark that dinosaur Zoan users are crazy strong.
+
+At Yamato and Luffy's spot, the two have started fighting. Yamato reminds Luffy he won't hurt him but Luffy ignores him and says he is in a hurry himself, so he can't just drop everything and follow someone he doesn't know. Yamato pleads Luffy listens to him and he says he has five seconds, but Yamato says he doesn't want to talk with him with others watching and Luffy says to him to forget it. The Beasts Pirates nearby are unable to get close enough to capture Yamato as Yamato tells Luffy that their fight reminds him of another he had in the past. Luffy and Yamato clash again and a huge explosion occurs. By the time Page One arrives at the location, he is informed by his subordinates that they lost sight of them.
+
+At the Skull Dome, Orochi reveals to the Beasts Pirates how Momonosuke survived the destruction of Oden's castle by traveling through time courtesy of his mother Toki, but some of the Beasts Pirates are skeptical while others don't believe it to be true, still believing the Kouzuki Clan was wiped out twenty years ago. One of them says this to two others near him, unaware they are actually Jinbe and Robin in disguise with Robin even trying to have Momonosuke brought down closer for her to 'see him'. Robin asks Jinbe what they should do because she can't stand to see Momonosuke in that position, but Jinbe says that they can just wait for the Red Scabbards to make their move. The Beasts Pirates continue to laugh at and scorn Momonosuke, while Hyougoro and the other rebels wait patiently, as their infiltration was a success.
+
+Aboard the Polar Tang, Law manages to breach the surface with the rest of the Scabbards, and after opening the hatch, uses his Shambles to warp himself, Bepo, Shachi, Penguin, and the samurai onto the island while the rest of his crew goes back under. Law notices two entrances and says the upper one leads to Kaidou, just as they are surprised by the sudden drop of Nekomamushi next to them all. Inuarashi sees Marco in the air as he goes to check out a strange shadow in the water. They are all then surprised when they noticed Izou was with them, as Nekomamushi revealed that Marco told him where to find him, so he brought him with them. Kikunojo cries tears of joy at reuniting with her brother, as Izou commends Kikunojo for becoming a splendid samurai.
+
+Within the Keep, Bao Huang reveals to Kaidou that Big Mom is on her way. He decides to make his announcement alongside Momonosuke's execution and reveals to his subordinates that he will spice up the execution with the "New Onigashima Project" alongside his All-Stars. Within the attic, Yamato and Luffy finally have a chance to talk, though Luffy gives him five minutes. Yamato explains that one day, he went to his father and said he wanted to be Kouzuki Oden, resulting in him getting beaten. Luffy asks what this has to do with him, and Yamato reveals he witnessed the Legendary Hour and saw Oden as a magnificent samurai, as well as frustration, rage, and sadness at how Orochi and Kaidou killed him, something Luffy appears to understand. Yamato then shows Luffy Oden's logbook, which he considers his bible, and how it contains all of his heroic stories, and that neither Kaidou nor Orochi know it exists. Yamato says that with the Nine Red Scabbards dead, someone needs to carry on Oden's will, so Yamato intends to reopen the country. As Yamato says that, he takes off his mask and rips off the sleeves of his attire, revealing to a shocked Luffy that Yamato actually has a feminine body. Yamato then explains that he chose to be a man, just like Oden was. Yamato expresses a desire to fight alongside Luffy to open Wano's borders and says that Luffy is similar to Ace, a statement that deeply shocks Luffy.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*Ulti and Page One recover from their earlier scuffle with Luffy and Yamato.
+*Jinbe, Robin, Hyougoro, and some rebels infiltrate the banquet hall.
+*The Scabbards in the Polar Tang and Law reach the back entrance of Onigashima.
+**Nekomamushi, Marco, and Izou (who appears fully for the first time after the timeskip) join up with them. Marco, however, temporarily leaves the group to investigate something he spotted on the sea.
+**Nekomamushi has a prosthetic double-barreled gun that replaces his lost arm.
+**Izou and Kikunojo reunite.
+*Orochi presents Momonosuke to the Beasts Pirates.
+*Kaidou decides to start his scheduled announcement ahead of Momonosuke’s execution.
+**He has plans to start something dubbed as "New Onigashima Project".
+*Luffy initially tries to attack Yamato before they talk.
+**Yamato’s face is shown and is revealed that he was born as a woman.
+**It is revealed that Yamato witnessed the Legendary Hour and later discovered and kept Oden’s journal. Yamato also intends to fulfill Oden’s wish and wants Luffy to help him.
+**Yamato personally knew Ace and once fought with him.
+
+## Characters
+
+## Characters
+
+Pirates, Straw Hat Pirates, Monkey D. Luffy, Nico Robin, Jinbe, Heart Pirates, Trafalgar D. Water Law, Bepo, Shachi, Penguin, Jean Bart, Clione, Ikkaku, Hakugan, Whitebeard Pirates, Polo Marco, Izou, Beasts Pirates, Kaidou, King, Queen, Jack, Ulti, Page One, Yamato, Bao Huang, Fire Tank Pirates, Capone Bege, Charlotte Chiffon, Capone Pez, Rolling Pirates, Charlotte Lola, Wano Country, Kurozumi Orochi, Fukurokuju, Kouzuki Momonosuke, Raizo, Kikunojo, Ashura Doji, Kawamatsu, Hyougoro, Kakunoshin, Tabuhachiro, Mokomo Dukedom, Inuarashi, Nekomamushi, Pound

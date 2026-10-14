@@ -1,0 +1,34 @@
+# Chapter 16: Versus!! The Buggy Pirates
+
+Arc: Orange Town Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_16 (CC-BY-SA)
+
+## Cover page
+
+Color Cover: A typical day for the Buggy Pirates—Mohji grooming himself and Richie, Buggy pouring himself a drink with detached hands, and Cabaji brandishing his blades.
+
+## Short summary
+
+While Nami demands that Luffy explain what he is, Buggy and Cabaji emerge unharmed from the reflected cannonball attack by using their own crew as a shield. Mohji briefly regains consciousness before being knocked aside by both Buggy and Luffy. Cabaji goes to attack Luffy, but Zoro intercepts the attack. However because of his injury from Buggy earlier, Zoro is at a disadvantage, but he grows tired of Cabaji attacking his wound, and decides to show him a real fight.
+
+## Long summary
+
+Nami demands that Luffy explain more about who he is, because she does not understand how he survived an attack from Richie. She also asks how he inflated himself, to which Luffy responds with the attack's name, much to Nami's dismay.
+
+Buggy and Cabaji rise after having survived the attack from the reflected Buggy Ball, doing so by using other crew members as shields. Cabaji remarks that their current situation is the biggest humiliation their crew has ever received under their flag. Mohji regains consciousness and becomes upset at Cabaji, because Cabaji is holding an unconscious Richie. Cabaji tells Mohji that he used Ritchie as a shield so that his clothes would not get dirty. As Mohji goes over to check on Richie, he notices that Luffy is present.
+
+Mohji warns his captain that he should be careful of Luffy, explaining that Luffy has eaten a Devil Fruit just like Buggy, and he is made of rubber. Nami, shocked, turns to Luffy who demonstrates his power by stretching his cheeks out. Buggy realizes that this is how Luffy reflected the Buggy Ball, and loses his temper with Mohji for not telling him about Luffy's powers sooner. Mohji is thrown by Buggy towards Luffy, who in turns slams him into a nearby wall and remarks that the fight has begun.
+
+Cabaji, now on his unicycle, attacks Luffy, but Zoro intercepts the attack. Zoro remarks that if anyone is fighting with swords, he will be their opponent, and Cabaji replies that it would be an honor as a swordsman to kill Zoro. Luffy notices that Zoro is struggling by his wound from his earlier encounter with Buggy, and suggests that he should fight Cabaji while Zoro rests. Cabaji also notices the wound, and begins to attack Zoro using a fire-breathing trick, although Zoro evades the attack. Cabaji uses the opportunity to kick the wound, and Zoro falls to the ground in agony. Cabaji uses another trick to cause a dust storm to blind Zoro and strikes again. Zoro blocks the attack, but once again Cabaji kicks him directly in the wound and Zoro once again collapses in agony.
+
+Cabaji mocks Zoro, saying that it is pathetic to see a grown man on the ground, and that it was a mistake for Zoro to make an enemy out of their crew. Nami decides that Zoro should have never started fighting, and begs Luffy to interfere; however, Luffy does nothing. Cabaji launches into the final attack, but Zoro gets up and knocks him aside. Zoro asks if Cabaji enjoys hitting his wound, before cutting himself again in the same spot. He declares his goal to be the world's greatest swordsman, and asks Cabaji if these additional wounds will satisfy him. Zoro then promises to show Cabaji the true difference in power levels between them, which leaves Luffy impressed.
+
+## Notes & trivia
+
+*This chapter's Cover Page is the first to feature antagonist characters, as well as the first to completely exclude the Straw Hat Pirates.
+*In the chapter's initial publishing in Weekly Shonen Jump, the first three story pages were printed in full color.
+
+## Characters
+
+Pirate, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Nami, Buggy Pirates, Buggy, Mohji, Richie, Cabaji, Orange Town, Boodle

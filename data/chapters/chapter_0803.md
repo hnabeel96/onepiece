@@ -1,0 +1,57 @@
+# Chapter 803: Elephant Climbing
+
+Arc: Zou Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_803 (CC-BY-SA)
+
+## Cover page
+
+Cover Page Request: "A race between a shark and a boat made by Franky and designed by Usopp" by Pen-Name Gezio, Fukushima Prefecture.
+
+## Short summary
+
+The Going Luffy-senpai docks alongside the Thousand Sunny, and Kanjuro draws a dragon to take them up the elephant's leg.
+
+At the Revolutionary Army's main base, Dragon looks over the news, while Koala reports that the weapons they stole from Dressrosa contained a rare steel, Liquor Iron Ore. Dragon then orders her to get Sabo, as he wanted to gather all the leaders of the Revolutionary Army. Meanwhile, Jesus Burgess calls Laffitte and Shiryu to report that he has found the Revolutionary Army's base.
+
+Meanwhile, the Pirate Dispatch Organization celebrate their weapons revenue increasing due to the fall of Doflamingo's business. However, Mohji reports that Hajrudin and their other four giants have left their crew.
+
+As the Straw Hat Pirates climb the elephant's leg, Kanjuro reveals they came to Zou to find their lost comrade Raizo the ninja. Suddenly, something comes flying toward them from above.
+
+## Long summary
+
+The Going Luffy-senpai docks at one of Zou's legs next to the Thousand Sunny, and Bartolomeo screams in excitement at seeing the Straw Hat Pirates' ship. Bartolomeo begins worshiping it, to Zoro and Usopp's ire, and the Straw Hats, along with Law, Kin'emon, and Kanjuro, board the Sunny. They see no trace of the crew on board, and so prepare to go ashore. Bartolomeo asks if they need anything else as he prepares to leave despite wanting to continue tagging along. The Barto Club then tearfully departs from Zou, promising to serve the Straw Hat Grand Fleet as best they can. However, the Straw Hats ignore them as they look at Kanjuro drawing something, but the Barto Club feels happy regardless. Kanjuro then brings his "Climbing Dragon" out of the ground, although the pirates note that it looks nothing like one. Kanjuro tells everyone to grab the dragon's back as it grabs the elephant's leg, and Usopp is shocked that the dragon cannot fly. As he grabs hold of the dragon, Luffy thanks Bartolomeo, addressing him by name. This causes the Barto Club to celebrate as they depart.
+
+At the Revolutionary Army's headquarters in Baltigo, Dragon is told that rebel armies across the world are winning their fights. Dragon notes the impact Doflamingo's defeat has had on these countries, being surprised that so many countries were using illegal weapons. However, he tells the reporter that the rebels should not lose their will to fight, and they should be mindful of Cipher Pol, which is growing stronger. Koala then reports to Dragon that the weapons they stole from Dressrosa contained traces of a special mineral, which Dragon reveals is Liquor Iron Ore. Koala is surprised, since only a few countries mine it, and knows they could use this information to get close to the manufacturers of these weapons. Koala thanks Dragon for helping them find Luffy and their lost comrades on Dressrosa, and Dragon asks about Robin. Koala reveals that the rumors about her capture on Sabaody were false, and asks Dragon if he will ask about Luffy, but Dragon dodges it by saying Sabo already told him.
+
+Somewhere in the New World sail two ships with the Blackbeard Pirates' Jolly Roger. In one ship, Laffitte takes a call from Jesus Burgess, saying they had stopped by Dressrosa to pick him up but he was nowhere to be found. Shiryu expresses his surprise that Burgess was still alive, and Burgess reveals that he stowed away on a certain ship. He tells Laffitte to tell Blackbeard to bring everyone and attack his current location, as they could get their hands on a large stockpile of weapons, and also to bring Doc Q to treat his injuries. Shiryu yells at Burgess to tell them his location, and Burgess does not know the name of the island, but reveals that the Revolutionary Army headquarters is there.
+
+Meanwhile, in the Buggy District of Karai Bari Island, the members of the Pirate Dispatch Organization celebrate due to their pirate mercenary business skyrocketing now that Doflamingo's business is no more. Buggy shouts at them to pillage and plunder after the party, because since he was a Shichibukai everything they did was legal. Mohji then tells Buggy that Hajrudin has quit their business, but Alvida replies that it does not matter because they have four other giant mercenaries. However, Mohji reveals that all five of them have quit, shocking Buggy. He demands to know their reason for leaving, and Mohji hesitates due to knowing Buggy would not want to hear the answer.
+
+The Straw Hat Pirates continue riding Kanjuro's dragon up Zou's leg, and Usopp complains that his arms are tiring yet there is still no sight of the peak. Luffy then asks Kin'emon and Kanjuro what business they have on Zou, and Kanjuro reveals that they wanted to check on Momonosuke and to see whether their last comrade has landed here: a ninja named Raizo. The Straw Hats and Law react in shock to the news that he is a ninja, when suddenly Robin notices something falling toward them from above.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*Luffy's group part ways with the Barto Club after finding the Thousand Sunny.
+*Monkey D. Dragon, Laffitte, Shiryu, Buggy, Mohji, Galdino, Alvida, Cabaji, and Richie makes their first post-timeskip manga appearances.
+*The weapons that the Revolutionaries took from Dressrosa contain a rare metal, Liquor Iron Ore, that few countries have.
+*Dragon tells Koala to gather the leaders of the entire Revolutionary Army together.
+*The Blackbeard Pirates Fleet is shown.
+**Marshall D. Teach is Admiral of the fleet.
+**Laffitte is the 5th captain of the Blackbeard Pirates Fleet.
+***His new appearance looks identical to his pre-timeskip one, and he is now wearing a dark-colored coat.
+**Shiryu is the 2nd captain of the Blackbeard Pirates Fleet.
+***His new appearance looks identical to his pre-timeskip one, with all the Impel Down symbols replaced with skulls.
+*Jesus Burgess has found the Revolutionary Army's main base.
+**Burgess's unmasked face is glimpsed.
+*The Pirate Dispatch Organization's base of operations is shown.
+*Hajrudin and his four fellow giants were S-Class members of the Pirate Dispatch Organization, but they quit after joining the Straw Hat Grand Fleet.
+*Kin'emon and Kanjuro reveal that their other comrade that was separated from them on their initial journey to Zou is a ninja called Raizo.
+
+## Characters
+
+## Characters
+
+Pirate, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Usopp, Nico Robin, Franky, Heart Pirates, Trafalgar D. Water Law, Barto Club, Bartolomeo, Gambia, Blackbeard Pirates, Jesus Burgess, Shiryu, Laffitte, Buggy's Delivery, Buggy, Alvida, Mohji, Cabaji, Richie, Galdino, Wano Country, Kin'emon, Kurozumi Kanjuro, Mokomo Dukedom, Bariete, Revolutionary Army, Monkey D. Dragon, Sabo, Koala, Ryunosuke, Zunesha

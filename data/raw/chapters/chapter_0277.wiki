@@ -1,0 +1,68 @@
+{{Chapter Box
+| title             = Maxim
+| jname             = {{Ruby|箴言|マクシム}}
+| rname             = Makushimu
+| ename             = Maxim
+}}
+'''Chapter 277''' is titled "Maxim".
+
+==Cover Page==
+[[Ace's Great Blackbeard Search]], Vol. 5: "Penalty: The River".
+
+Seconds after realizing he's attacked the wrong man, [[Portgas D. Ace|Ace]] is judged a hoodlum and thrown into the nearest river.
+
+==Short Summary==
+[[Conis]] arrives on Angel Island, where she is pursued by the [[God's Guards|White Berets]]. At the ruins of [[Shandora]], [[Enel]] takes [[Nami]] to his massive flying ship, the [[Ark Maxim]]. Meanwhile, [[Monkey D. Luffy|Luffy]], [[Aisa]], and [[Pierre]] escape from [[Nola]] and find their recently fallen comrades, and [[Nico Robin|Robin]] warns Luffy that Enel will soon completely destroy [[Skypiea]].
+
+==Long Summary==
+On Angel Island, the [[God's Guards|White Berets]] spot [[Conis]] arriving and recognize her as [[Pagaya]]'s daughter. In the ruins of [[Shandora]], [[Enel]] asks [[Nami]] if she needs to bring along her [[waver]]. He says she will not need it where they are going, but ultimately does not care either way. He then takes her inside a cave, where he shows her the [[Ark Maxim]], a massive flying ship powered by his lightning using a special gold from [[Upper Yard]] that transforms lightning into mechanical energy. Nami is left scrambling for answers, as she will not be able to escape with the waver in midair, and Enel looks forward to going to [[Fairy Vearth]].
+
+Outside in the city, [[Nola]] is sleeping when [[Monkey D. Luffy|Luffy]] forces its eyelid open from the inside. After briefly arguing with [[Aisa]], the two of them and [[Pierre]] escape from Nola through its yawning mouth. Luffy climbs a tower and expresses his excitement at escaping, and realizes that they are in Shandora's ruins, where the bell should be; Aisa notes that this must be her people's homeland. Luffy then sees a giant hole in the ground nearby as well as something else, and leaps down to check it out. Aisa and Pierre catch up to him, and find him shouting at the unconscious [[Roronoa Zoro|Zoro]], [[Nico Robin|Robin]], [[Tony Tony Chopper|Chopper]], and [[Gan Fall]], wondering what happened to them and where Nami is. Aisa then sees the unconscious [[Wyper]] in the hole and becomes distressed. Luffy wonders who could have done this, and Aisa responds that it could only have been Enel. Robin then regains consciousness and coughs, causing Luffy to go to her and ask who took Nami away. Robin does not know, but reveals that the entirety of [[Skypiea]] will soon be destroyed. As the [[Shandia]]n villagers look for Aisa and the White Berets chase after Conis through the first gate, Aisa notes that Enel and Nami will be going to where the Gold Bell is, hearing both of their "voices". Luffy then tells Aisa to take him there.
+
+==Quick Reference==
+===Chapter Notes===
+*[[Conis]] arrives at [[Angel Island]].
+*[[Enel]] reveals his arc, [[Maxim]].
+*[[Monkey D. Luffy|Luffy]], [[Pierre]] and [[Aisa]] escape from [[Nola]]'s body.
+*[[Nico Robin|Robin]] regains some consciousness and informs Luffy that Enel has taken Nami somewhere. 
+*[[Aisa]] begins to guide [[Monkey D. Luffy|Luffy]] to Enel's location.
+
+===Characters===
+{| class="CharTable"
+! [[Pirates]]
+! colspan="2"|[[Skypiea]]
+! Citizens
+|-
+|
+;[[Straw Hat Pirates]]
+*[[Monkey D. Luffy]]
+*[[Roronoa Zoro]] ''(K.O.)''
+*[[Nami]]
+*[[Tony Tony Chopper]] ''(K.O.)''
+*[[Nico Robin]]
+----
+;[[Whitebeard Pirates]]
+*[[Portgas D. Ace]] ''(cover)''
+|
+;[[God's Army]]
+*[[Enel]]
+----
+;[[Shandia]]
+*[[Wyper]] ''(K.O.)''
+*[[Aisa]]
+|
+;[[Skypieans]]
+*[[Gan Fall]] ''(K.O.)''
+*[[Pierre]]
+*[[Conis]]
+*[[Nola|Master of the Sky]] ''(K.O.)''
+|
+;[[Lulusia Kingdom]]
+*[[Kurotsuru]] ''(cover)''
+|}
+
+
+==Site Navigation==
+{{Skypiea Arc}}{{Ace's Great Blackbeard Search}}
+[[ca:Capítol 277]]
+[[it:Capitolo 277]]

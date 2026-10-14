@@ -1,0 +1,48 @@
+# Chapter 792: Prostration
+
+Arc: Dressrosa Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_792 (CC-BY-SA)
+
+## Cover page
+
+Cover Page Request: "Leo celebrating Mansherry's birthday with fireflies spelling out 'Happy Birthday' in the night sky." - Takahiro Mori, Hyogo Prefecture
+
+## Short summary
+
+Sabo defeats Jesus Burgess and loses interest in him, but blows Burgess away after the Blackbeard Pirate mocks Ace. Doflamingo and the Donquixote Pirates are arrested by the Marines as Maynard broadcasts the story of what happened on Dressrosa to the neighboring islands. The citizens surround Riku Doldo III, recognizing him as their king once again. Riku tries to protest, but sees that his people need him. Issho and the Marines then approach Riku and bow down in repentance for their actions as the pirate alliance's victory over Doflamingo is revealed to the entire world.
+
+## Long summary
+
+Citizens all throughout Dressrosa are seen celebrating Doflamingo's defeat and the Birdcage's collapse.
+
+In another part of town, Sabo stands over a defeated Jesus Burgess. The Blackbeard Pirate attempts to goad the Revolutionary into killing him, but is unsuccessful. As Sabo begins to walk away, Burgess taunts him about Ace's final words before being handed over to the Marines; all the while, Sabo's Den Den Mushi is ringing. The Revolutionaries are in a rush to leave the island before the Marines show up, but are unable to contact Sabo. Burgess reveals that Ace's last request was to withhold the details concerning his death from his little brother. Sabo loses his temper and grabs Burgess by the head, telling him that he's spent every night thinking about how Ace felt when he died. Burgess then attempts to stab Sabo with a combat knife hidden behind his back, scoffing that Sabo must surely feel regret for not being there to save Ace. Sabo angrily replies that he won't have any more regrets before finishing off Burgess with a fiery point-blank attack. Burgess's screams are heard from the blazing inferno as Sabo remarks that while he himself doesn't care, Ace won't forgive him.
+
+Sabo then answers his Den Den Mushi, with Koala on the other line expressing worry over not being able to contact him. Sabo alleviates her fears and asks if she's found the "list". Koala confirms that she has and is instructed by Sabo to call for a ship and then meet up with Hack in the underground trade port. Koala states that she's already at the port and is waiting for Sabo with the others. Anticipating a reply, Koala is irritated when Sabo hangs up instead, venting her frustration on a nearby subordinate.
+
+The Marines scour Dressrosa, eventually finding and arresting all of the defeated Donquixote Officers with the exception of Violet and Baby 5. They are warned to handcuff each of them with Seastone due to most of them being Devil Fruit users (Doflamingo is wrapped in Kairoseki shackles). A Marine asks about their report to headquarters, but Maynard replies that Issho asked them to hold off on it, much to their surprise. On Applenine Island and two other islands near Dressrosa, Maynard broadcasts himself and reveals Dressrosa's current state, which shocks the people on the islands. Maynard then tells another Marine to take a video Den Den Mushi to Issho.
+
+Meanwhile, the citizens of Dressrosa begin cheering for Riku as their king again, but Riku refuses to return to the throne. However, the citizens say that he is their rightful ruler and that they are tired of violence. Riku warns that his family's aversion to violence has made them pushovers, but the citizens do not care, wanting peace despite what could happen to Dressrosa. Elizabello II then throws in his support as someone tells Riku that the leaders of neighboring countries are calling non-stop to find out what is going on, and Riku is touched by everyone's support. Issho and several Marines then approach Riku, and Issho states that it was because of the World Government and Shichibukai system that allowed Doflamingo to take over Dressrosa. He and the Marines then get on their knees and bow to Riku in apology for all the World Government has done to them.
+
+The neighboring islands are still in shock at what has transpired, and after learning all the facts, the news that the Straw Hats and Heart Pirate Alliance took down Doflamingo is broadcast to the rest of the world.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*Sabo defeats Jesus Burgess.
+*Pica's full adult face is shown for the first time.
+*Buffalo, who was defeated just before the Birdcage was set up, is seen for the first time since then and is still unconscious.
+*Trebol is shown to be alive, albeit unconscious.
+*All the officers of the Donquixote Pirates (excluding Viola and Baby 5) and Doflamingo himself are arrested.
+*Bellamy is not seen being captured along with the Donquixote Pirates, leaving his fate to be determined.
+*Maynard makes a broadcast of what transpired on Dressrosa to its three neighboring countries.
+*The citizens of Dressrosa support Riku Doldo III becoming king again.
+*Issho and the Marines apologize to Riku and the Dressrosa citizens for Doflamingo's actions.
+*The victory of the Straw Hat Pirates and Heart Alliance over Doflamingo is shown on a newspaper.
+
+## Characters
+
+## Characters
+
+Pirate, Marines, Straw Hat Pirates, Monkey D. Luffy, Heart Pirates, Trafalgar D. Water Law, Blackbeard Pirates, Jesus Burgess, Whitebeard Pirates, Portgas D. Ace, Donquixote Pirates, Donquixote Doflamingo, Trebol, Diamante, Pica, Sugar, Giolla, Lao G, Senor Pink, Machvise, Dellinger, Gladius, Buffalo, Admiral, Issho, Vice Admiral, Maynard, Dressrosa, Riku Doldo III, Tank Lepanto, Prodence Kingdom, Elizabello II, Tontatta Kingdom, Mansherry, Leo, Revolutionary Army, Sabo, Koala, Hack (Fish-Man)

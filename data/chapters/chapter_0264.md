@@ -1,0 +1,29 @@
+# Chapter 264: Warrior Kamakiri vs. God Enel
+
+Arc: Skypiea Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_264 (CC-BY-SA)
+
+## Cover page
+
+Animal Theater: Usopp and four mice, all in Alpine , enjoy the contents of a pantry that probably belongs to someone else. One of the mice has taken Usopp's sock to wear as a hat, much to Usopp's amusement.
+
+## Short summary
+
+Pagaya, Conis and Aisa look for the Straw Hat Pirates' ship. Gan Fall and Pierre depart from the Going Merry to find Enel. Pagaya, Conis and Aisa meet up with Nami. Robin struggles to survive against Yama's attacks. Kamakiri struggles to find a way to kill to Enel, but within five minutes. Enel electrocutes Kamakiri after his five minutes are up.
+
+## Long summary
+
+Pagaya, Conis, and Aisa are riding a waver together through the forests of Upper Yard, in search of the Going Merry. After asking permission to address her by name, Pagaya asks Aisa if she really knows the ship's location. Aisa confirms, impressing Conis with her ability. Conis is more concerned with her well-being however, as Aisa shivers incessantly. She claims she has never been this scared, as everyone's "voices" are disappearing. They pick up their pace, and head deeper into the forest.
+
+Back on the Going Merry, Gan Fall has fully donned his armor and prepares to depart the ship. Nami frets about being left alone, but Gan Fall explains that he must go after Enel, as this now concerns the survival of the entire country. He quickly flys off with Pierre despite her protests, and Nami resolves to administer first aid to Sanji and Usopp. She notices something quickly approaching the ship, and it turns out to be Pagaya, Conis, and Aisa. Aisa trys to break away to ground level, but she is stopped. She turns her frustration to Nami by warning her that she will attack her, and Nami asserts a similar threat with the impact dial from Gan Fall's gauntlet. While Conis is shocked at what has happened to Sanji and Usopp, Pagaya explains to Nami that they need to make it back to the white sea immediately. When he expresses his anxiety that they may be spotted however, Nami chides him for making so much noise with the waver. This prompts Pagaya to remember that he has something for Nami.
+
+In another area of the forest, Nico Robin is locked in battle with Commander Yama. Yama attempts to smash Robin into the ground with the weight of his stomach, but Robin narrowly escapes. As Yama resumes his pursuit, Robin notices that the stone slab behind her contains ancient text. She uses "Veinte Fleur - Calendula" to attempt to slow Yama's momentum, but the force of his blows still sends her reeling backwards until she eventually falls. Yama asks her when she will stop protecting a dead city like this, and Robin chides him for taking no interest in the legacy of their ancestors. This infuriates Yama further as he attempts to punch her into the ground, but she quickly jumps to safety as she makes a mental note that he will destroy the ruins if the fight doesn't move elsewhere.
+
+In Enel's location, a few more Shandia have arrived, and are unleashing a barrage of attacks on him. He is completely unaffected, even yawning at their attempts in his boredom. Kamakiri tries impaling him directly through the skull, but Enel is again unscathed as the spear is seen coming out the other side of his head with a small amount of electrical discharge. He mockingly apologizes for falling asleep, finally leading Kamakiri to ask if there's truly no way to beat him. Enel responds that he is "Thunder" itself, explaining that thunder was something that humans could never truly fathom as he slowly begins to electrocute Kamakiri. He goes on to state that humans have always defined the terrible phenomena that they are unable to comprehend as "God". Kamakiri withdraws the spear and forms it into a blade, attempting to slash Enel. He succeeds, but the bisected body parts simply begin to turn into lightning itself. Enel has finally had enough, and tells Kamakiri that his five minutes are up. The latter tries to escape to warn Wyper that his reject dial will be useless, but Enel again transforms his body into electricity and is in front of Kamakiri in seconds. Kamakiri yells as loud as he possibly can for Wyper to run, before Enel injects him with one million volts of electricity. The entire section of the forest is illuminated with the discharge of so much electricity, and Kamakiri is instantly burned to a crisp. As an unintended side effect, Enel's electrical discharge courses through the river cloud of the forest and incapacitates at least 20 Enforcer's of God's Army. Enel simply shrugs it off, and resolves to chase down the others.
+
+Now two hours into the "Survival Game", fifty-six contestants in total have fallen. Still remaining are 13 members of God's Army, seven of the Shandia warriors, and five of the Straw Hats, making it 25 survivors still left in the game.
+
+## Characters
+
+Pirate, Sky Island, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Nami, Usopp, Sanji, Tony Tony Chopper, Nico Robin, God's Army, Enel, Ohm, Yama, Holy, Shandia, Wyper, Kamakiri, Aisa, Skypiea, Gan Fall, Pierre, Conis, Pagaya, Su

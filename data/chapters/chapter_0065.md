@@ -1,0 +1,27 @@
+# Chapter 65: Prepared
+
+Volume: 8  |  Arc: Baratie Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_65 (CC-BY-SA)
+
+## Cover page
+
+Buggy's Crew Adventure Chronicles, Vol. 20: "I See It!! My Pirate Ship!!!"
+
+Buggy and his new ally spot a familiar ship docked beside a certain island.
+
+## Short summary
+
+While Don Krieg brags to Luffy that only the strongest can win and that his armor is indestructible, Luffy believes he is strong enough to win the fight against Krieg. Each time Don Krieg throws a new attack at him, Luffy dodges and punches him. Finally after a Gomu Gomu no Bazooka attack, Don Krieg's armor is shattered into pieces.
+
+## Long summary
+
+Luffy is able to balance Don Krieg's power. He destroys the most powerful weapon of Krieg. Everyone is surprised and cannot believe that Luffy is still able to stand on his feet. But Krieg has a lot of self-confidence and plans to defeat Luffy with it. He believes that his weapon is the most powerful weapon in the world. His energy was still powering up, and meanwhile Luffy's energy was not.
+
+Sanji still does not believe that Luffy can beat Krieg due to his weakened condition. But Zeff says Luffy has one weapon that Krieg does not have, no fear of death. He tells Sanji on the battlefield they must have the principle to not be afraid of death. If they are afraid, they will lose in just one second. That principle was in Luffy, Zeff added.
+
+Krieg attacks Luffy again, and wants to execute him because he is brave to challenge "The Most Powerful Captain" in East Blue. But Luffy dodges it and hangs onto a mast. Then Krieg slices the mast. Unfortunately, his attacks do not hurt Luffy. Luffy throws the mast at him. But, Krieg destroys it by shooting fire at it. Luffy replies with "Gomu Gomu No Gatling". But Krieg's armor protects him. Luffy continues using his "Gomu Gomu No Pistol" and sends Krieg flying, but the armor still does not shatter. Kriegs plans to throw bombs from top of the mast. Luffy tries to stop it and run faster. Finally, Luffy destroys the armor by using "Gomu Gomu No Bazooka" and cracks it into pieces.
+
+## Characters
+
+Pirate, Straw Hat Pirates, Monkey D. Luffy, Krieg Pirates, Krieg, Buggy Pirates, Buggy, Alvida, Baratie, Zeff, Sanji

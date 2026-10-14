@@ -1,0 +1,32 @@
+# Chapter 68: The Fourth
+
+Volume: 8  |  Arc: Baratie Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_68 (CC-BY-SA)
+
+## Cover page
+
+Buggy's Crew Adventure Chronicles, Vol. 23: "Suspicious Parts".
+
+While the Kumate Tribe continues stewing Richie and the other pirates, a few curious tribesmen untie the last "member" of the crew: Buggy's severed torso and limbs.
+
+## Short summary
+
+Sanji becomes the fourth member of the Straw Hat Pirates.
+
+## Long summary
+
+Luffy would like very much that Sanji becomes a member of his crew, but he cannot do it unless Sanji himself agrees which he never has so far. Suddenly, a strange animal arrives at the Baratie. It is none other than Yosaku, half eaten by a shark. He has come back to ask for Luffy's help. He has located Nami but can do nothing without Luffy's strength.
+
+While he is ok to depart, Sanji, to the surprise of every one, decides to go with them and becomes the Straw Hat Chef. He changed his mind when he heard that everybody wanted him to depart. As to comfort his decision, Zeff tells him that he regrets to have let him live.
+
+A nostalgic Zeff is seen remembering his restaurant history. When it is time for departure, everybody becomes serious. Patty and Carne even try an ultimate revenge attack on Sanji but it proves useless as he easily beats the two back. Then, from his balcony, Zeff reveals his true feelings by wishing Sanji good luck. These are the words that break the hypocritical atmosphere. In turn, Sanji shows his gratitude to the man who gave him everything and bows in respect. They depart in the middle of the joy and the tears and bid farewell to the Baratie!
+
+## Notes & trivia
+
+* This chapter continues the motif (begun by Chapter 6) of titling select chapters after the Straw Hat Pirates' joining order. This motif will next occur with  in Chapter 94.
+* This is the first time Sanji and Zeff are shown calling each other by their real names.
+
+## Characters
+
+Pirate, Bounty Hunter, Animal Species, Straw Hat Pirates, Monkey D. Luffy, Sanji, Nami, Buggy Pirates, Buggy, Richie, Baratie, Zeff, Patty, Carne, Kumate Tribe, Yosaku

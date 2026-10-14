@@ -1,0 +1,37 @@
+# Chapter 406: Seimei Kikan
+
+Volume: 42  |  Arc: Enies Lobby Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_406 (CC-BY-SA)
+
+## Cover page
+
+Miss Goldenweek's "Operation: Meet Baroque Works", Vol. 36: "Become a Princess, an Artist, and Paula-From-the-Bar".
+
+Three dreams revealed by the rainbow Colors Trap: Miss Merry Christmas a princess, Miss Goldenweek a true artist, and Miss Doublefinger her "Paula" guise from Spiders Cafe.
+
+## Short summary
+
+As the fights between the CP9 and the Straw Hat Pirates at Enies Lobby intensify, Fukurou is defeated by Franky, and Chopper engages Kumadori. Meanwhile, Zoro and Sogeking turn to fight Kaku and Jabra.
+
+## Long summary
+
+The chapter starts with Franky and Fukurou still in the air, with Fukurou kicking his way to shore using Geppo as Franky holds on to his other leg. Franky tells him to hurry up. Fukurou is annoyed, as he does not want Franky telling him what to do, and he will silence him right now. He then begins to spin in the air, swinging Franky around with his leg. Fukurou then launches himself forward, using Super Cartwheel Tekkai-dama, with the intention of smashing Franky against the corner of the Tower of Justice. Franky realizes he will be smashed to bits if he does not do something, and uses Franky Centaur. He then locks both of Fukurou's legs, preventing him from using them, meaning he cannot move freely in the air. Fukurou tells him it does not matter, as there is nothing he can do at this speed anyway.
+
+Franky tells him that is not quite true. He then connects his arms together, and uses Miniature Coup de Cannon. He aims the blast in the direction they are heading. The recoil from the blast is enough to cause Fukurou to lose all of his momentum. Fukurou realizes this, but Franky tells him it is good, as they are now over the shore. Franky then fires a Coup de Vent at Fukurou at point blank range while standing on his chest. Fukurou is blasted into the ground, making a hole in the shape of his body several feet deep. Fukurou is defeated.
+
+The scene changes to inside the Tower of Justice, where Zoro and Sogeking are running from Jabra and Kaku. Zoro asks if the #2 key to their handcuffs has arrived yet. Sogeking tells Zoro he is tired and asks him for a piggy-back ride. Zoro just says whatever. Kaku launches a Shigan at the two pirates. He and Jabra then get into an argument. Jabra thought Kaku had meant to hit him with the Shigan. Kaku tells him that is a false accusation, but he would be more than happy to hit him if Jabra wishes so. Kaku adds that Jabra has been getting in his way since the beginning of the fight. Jabra snaps that he was going to say that, calling Kaku "Herbivore". Kaku tells him he prefers meat.
+
+While they are arguing, Zoro is telling Sogeking his plan as they run away. The two of them will play Rock-Paper-Scissors, and the loser would cut his hand in off in order to get free. Sogeking is shocked that Zoro would think of something so insane. Zoro tells him that the loser could simply pick up their hand, take it back to Chopper, and have him sew it back on. Sogeking tells him they are not stuffed animals and it does not work like that. Zoro tells him he has another idea. Sogeking tells him he does not want to hear it. Kaku and Jabra then look over at Zoro and Sogeking. Sogeking is completely rigid. Zoro's right wrist is wrapped in Sogeking's bandages. Sogeking is on his side, holding Yubashiri with the hilt right in front of his face. Zoro tells him to keep his rigid posture, as he is a sword now. Sogeking is asking for a lawyer, saying he will sue Zoro for this some day, and begging Chopper to hurry.
+
+The scene changes to Chopper and Kumadori. Chopper is amazed by Kumadori's utter lack of self control, and that he got so fat in only a matter of minutes. Kumadori then begins spouting random words. Chopper tells him he is not worried about him, he just needs something from him. Kumadori then uses a technique called Seimei Kikan. He is suddenly back to his normal weight and size. Chopper is shocked by what he has just seen. Kumadori tells him that after spending one thousand years in the ocean, and another thousand in the mountains, he inhales the air and drinks the dew, completing the training of the hermit life. As a result, he gained the technique Seimei Kikan. Kumadori goes on to say that there is no part of the body that humans cannot control by channeling the conscious to every part of the body.
+
+Chopper remembers reading something about Kumadori's ability. Chopper asks him if moving his hair like an octopus is part of the ability. Kumadori gets mad, telling Chopper to call him manly. He then tells him to call him a manly lion. He then uses his hair in a technique Kamishabari. Chopper dodges, realizing he will be finished if he gets caught in his hair. Kumadori then uses Soru. He reappears above him and Chopper cannot find him. Kumadori then uses Shigan: Cue, and brings his staff down on Chopper. Chopper dodges at the last second, shocked to see that a staff that wasn't even sharp could make a hole in the floor. Kumadori then tries stabbing randomly at Chopper. Chopper gets annoyed, and hits Kumadori with a Heavy Gong as he was getting ready to use Tekkai.
+
+Chopper hurts his hand when he punched him. He realizes that he will not be able to do any damage unless he uses Arm Point or Horn Point. But he remembers the dangers of using the Rumble Ball too soon in succession. The second ball would throw off the transformation, and the third ball would make him lose consciousness. He thinks that he can strengthen himself once more. Kumadori uses Shishkebab, trying to impale Chopper. As Chopper runs away, he realizes he is just wasting time, and eats a Rumble Ball. He tries using Horn Point, but it is intercepted. The same thing happens when he tries to use Jumping Point. As Chopper lies on the ground, he realizes that he cannot control his transformation. He thinks that if he could get into Arm Point, then he could use Kokutei.
+
+Chopper realizes that the room is becoming dangerous with the flames created from the battle and that he has to find the #2 key to help Zoro and Sogeking, or they cannot get Nico Robin back. Kumadori calls him tenacious, and uses Seimei Kikan, making his hair take the shape of a hand. Chopper tells himself he has to do it, that he cannot be defeated here, and that he is the crew's hope. The chapter ends with Kumadori hitting Chopper in the stomach with a Shigan.
+
+## Characters
+
+Pirate, World Government, Bounty Hunter, Baroque Works, Straw Hat Pirates, Roronoa Zoro, Usopp, Tony Tony Chopper, CP9, Kaku, Jabra, Fukurou, Kumadori, Franky Family, Franky, Marianne, Zala, Drophy

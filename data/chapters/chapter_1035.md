@@ -1,0 +1,56 @@
+# Chapter 1035: Zoro vs. King
+
+Arc: Wano Country Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_1035 (CC-BY-SA)
+
+## Cover page
+
+Germa 66's Ahh... An Emotionless Excursion, Vol. 1: "Escape Whole Cake Island!"
+
+The Germa Kingdom attempts to avoid a cannon attack while escaping Whole Cake Island.
+
+## Short summary
+
+Sanji's finishing blow launches Queen off of Onigashima, and the cook gives Chuji back to Some before collapsing.
+
+Meanwhile, Zoro figures out that King's durability diminishes when the flames on his back are put out, and the swordsman's last attack causes the All-Star to remove his mask. The two battle fiercely, as King recalls Kaidou rescuing him from a lab on Punk Hazard and the two of them forming the Beasts Pirates. However, Zoro ultimately claims the victory as he strikes down King with a Supreme King Haki-infused attack.
+
+## Long summary
+
+Sanji's last attack on Queen has defeated the All-Star, and he is literally sent flying far away from Onigashima like Sanji told him to. Sanji then approaches O-Some and presents her with Chuji, having kept him safe in his suit, which she thanks him greatly for. He thinks back to when he made food for a mouse as a child, but just as he is about to ask O-Some if she was okay, he immediately passes out, causing her to call for someone to get the first aid kit.
+
+Down in the castle, Zoro has actually managed to injure King, and even cut open his mask, as Zoro reveals King’s weakness: when the flames on King’s back dwindle, he gets faster but his defense decreases. At that point, King takes off his mask completely, revealing his face for the first time. Several Beasts Pirates see him and mention how the rumors about him being a Lunarian were true, seeing how he has all the traits of one; dark brown skin, white hair, and of course, black wings. However, when one of them mentions how the World Government will pay 100,000,000 just for notifying them about a Lunarian, King uses Karyudon to incinerate them all. 
+
+Zoro gets to the high ground and calls out King for attacking his men when the castle is already on fire. Zoro then asks King what kind of race he is for the World Government to be so interested in him, but King responds by turning into his pteranodon form and telling Zoro that there was no point since he will die anyway. King flies straight at Zoro and the two of them return to fighting in the air. Zoro admits if this battle continues for too long, his sword will drain him dry, with King admitting he is reaching his limit too. Zoro tells King that he and his crew have spent enough time being on top, so it’s time for a new generation to take hold, but King refuses, declaring that only Kaidou can be the Pirate King.
+
+King then thinks back to his youth, and how he first met Kaidou. Back then, his name was "Arber" and was held captive on Punk Hazard, where he was being experimented on to test his endurance. Kaidou was also a prisoner there, but then escaped his cell and came across Arber strapped to a table. He deduced that Arber was a Lunarian, and that the Government would never let him go. He then stated his plan to leave and form his own pirate crew, and asks if Arber wanted to join him. In response, Arber asks if Kaidou can change the world, to which the soon-to-be emperor confidently stated that only he can do so. The two then escape after setting the facility ablaze. Kaidou then asked the young Lunarian for his name, and when he answered, Kaidou stated that needs a new name that reflects his strength, and thus rechristens him as “King”. Kaidou also says that from now on, King is his right-hand-man, promising to never sell him out.
+
+Zoro uses En-Ō Santōryū: Rengoku Oni Giri, but King is unfazed as his flames were burning bright again. King uses Karyudon to generate a dragon made of fire, hot enough that Zoro compares it to the heat of magma. King locks blades with him and tries to use the notches in his sword to steal them, but Zoro backs away before he can. King then moves at rapid speed, and though he kicks Zoro in the face, Zoro uses Yakkodori to cut him again. King admits that Zoro has deduced his weakness, and Zoro realizes that King is now blocking his attacks because he is scared of them now. King jumps back into the air declaring that a simple human can’t beat him as he unleashes Omori Karyudon, but Zoro uses a new attack called En-Ō Santōryū: Ippyakusanjo Hiryu Jigoku to not only cut through King’s dragon, but cut him along with his sword and part of his right wing.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*This is the first chapter of the cover story Germa 66's Ahh... An Emotionless Excursion.
+*The Germa Kingdom is shown to have successfully escaped Totto Land.
+*The battle between Sanji and Queen ends.
+**Queen is defeated by Sanji and thrown away from Onigashima.
+**Sanji hands Chuji to Some, and remembers the mouse that he fed when he was young.
+**Sanji is exhausted afterwards, and collapses in front of Some.
+*The battle between Zoro and King continues.
+**Zoro figures out the mechanics behind King's resilience and manages to damage him. 
+**King takes off his mask and his face is fully seen. 
+**King attacks his subordinates using flames shaped like a dragon.
+***King's subordinates claim that the World Government are willing to pay 100.000.000 to anyone who may have information about live Lunarians.
+**King reminisces about him joining Kaidou.
+***They met at the Third Research Institute on Punk Hazard, where King was experimented on until being released by Kaidou.
+***King's real name is Arber.
+**After trading powerful blows, Zoro attacks King with a powerful, long range, Haki-infused attack.
+***Half of King's right wing is cut off and his sword is broken in half.
+
+## Characters
+
+## Characters
+
+Pirates, Straw Hat Pirates, Roronoa Zoro, Sanji, Beasts Pirates, Kaidou, King, Queen, Wano Country, Some, Chuji

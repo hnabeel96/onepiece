@@ -1,0 +1,60 @@
+{{Chapter Box
+| title = Okama Weather
+| image = 
+| jname = オカマ日和
+| rname = Okama Biyori
+| ename = Oh Come My Way Days
+}}
+
+'''Chapter 156''' is titled "Okama Weather".
+
+==Cover Page==
+[[Cover Page#Color Spread|Color Spread]]: In a desert somewhere, beneath the skeleton of some great beast, the boys of the [[Straw Hat Pirates]]—all dressed in salvaged scraps—prepare for battle.
+
+==Short Summary==
+The Straw Hats meet [[Bentham|Mr. 2]].
+
+==Long Summary==
+Five days after leaving [[Drum Island]], the stock of food is shrinking. While crossing a smoke steam made by undersea volcanoes, [[Monkey D. Luffy|Luffy]] and [[Usopp]] find an [[okama]] dressed like a swan. After saving him from drowning, he reveals that he ate a [[Devil Fruit]]. Making a show with his ability to imitate anybody he touches, the Okama strikes up an immediate friendship with the trio of Usopp, [[Tony Tony Chopper|Chopper]] and Luffy. However, their encounter is cut short when the Okama's crew arrives to retrieve their captain. Leaving the Merry, he makes a promise of eternal friendship but, as his men greet him, his name is revealed to be [[Bentham|Mr. 2 Bon Kurei]]. Understanding that they have met with an enemy, now able to usurp their identity, the Straw Hats decide to take countermeasure.
+
+==Quick Reference==
+===Chapter Notes===
+*The Straw Hats rescue [[Mr. 2]] from drowning, befriending him.
+*It is revealed that [[Bentham|Mr. 2]] ate the [[Mane Mane no Mi]].
+**Mr. 2 takes the faces of all of the Straw Hats minus [[Sanji]], adding them to his memory.
+**[[Nefertari Cobra]]'s figure appears during the Mane Mane show.
+
+===Characters===
+{| class="CharTable"
+! [[Pirate]]s
+! Citizens
+! [[Baroque Works]]
+|-
+|
+;[[Straw Hat Pirates]]
+*[[Monkey D. Luffy]]
+*[[Roronoa Zoro]]
+*[[Nami]]
+*[[Usopp]]
+*[[Sanji]]
+*[[Tony Tony Chopper]]
+|
+;[[Arabasta]]
+*[[Nefertari Cobra]] (face only)
+*[[Nefertari Vivi]]
+*[[Karoo]]
+|
+;[[Baroque Works#Members|Officer Agents]]
+*[[Bentham|Mr. 2 Bon Kurei]]
+----
+;[[Baroque Works#Billions|Billions]]
+*[[Akumai]]
+|}
+
+
+==Site Navigation==
+{{Arabasta Arc}}
+[[fr:Chapitre 156]]
+[[ca:Capítol 156]]
+[[de:Okama Biyori]]
+[[it:Capitolo 156]]

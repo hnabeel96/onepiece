@@ -1,0 +1,41 @@
+# Chapter 748: My Repayment
+
+Volume: 75  |  Arc: Dressrosa Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_748 (CC-BY-SA)
+
+## Cover page
+
+Cover Page Request: "Heracles riding on a white horse and getting all fired up" - P.N. Noda Skywalker
+
+## Short summary
+
+Luffy's laughter at Pica was enough to anger the colossus into attacking the Straw Hat with his fist, although he missed, the shockwave was enough to send Luffy and his team flying. When Luffy and his group had a rough landing in the town center, they were greeted by Cavendish who renounces his grudge against Luffy and shifts it towards Doflamingo instead. While they manage to leave the self-absorbed pirate to his delusions of grandeur, they were surrounded by all the top contenders of the colosseum block battles who all share the same goal of taking down Doflamingo and repaying their debt to god Usopp but are not united due to their pride and agendas.
+
+At the Toy House, the soldiers were looking for Luffy's corpse or lack thereof since there was no trace of him after Pica's attack, but they were suddenly attacked by a charging band of infamous fighters with Luffy leading the charge. Pica tries to stop them but gets his stone hand shattered by the combined strength of Chinjao and Elizabello II.
+
+## Long summary
+
+The citizens of Dressrosa shout at Luffy to stop laughing about Pica, as the latter has a complex about his high-pitched voice. An enraged Pica then aims a fist at Luffy, and the citizens run away in fear. Issho notices that something bad is happening, though is oblivious to what exactly. As Luffy, Zoro, and Law run from Pica, the latter two tell the former to stop laughing at Pica, though they are trying hard to keep from laughing themselves. Pica's fist then lands on the ground, destroying many buildings and launching the pirates into the air.
+
+Luffy, Zoro, and Law land in front of the Corrida Colosseum, and as Zoro and Law reflect on how strong Pica is, Cavendish suddenly appears. As Zoro prepares to draw his sword, Cavendish recognizes Law and attacks him due to him being one of the Eleven Supernovas, which stole his fame. Luffy stops Cavendish, saying that Law is his friend, which Law loudly denies. Luffy asks Cavendish if he still hates him, to which Cavendish replies no due to Usopp rescuing him from being a toy. Cavendish then hands Law his hat, which he found in front of the colosseum, and offers to put it on for him, which Law quickly declines. Cavendish then tells Luffy that as repayment for rescuing him, he'll kill Doflamingo so the Straw Hat Pirates can hide. Luffy declines the offer, saying he had to defeat Doflamingo to repay Rebecca for giving him lunch, leading Law and Cavendish to question his motives. Cavendish believes Luffy wants to defeat Doflamingo to become more popular, and gain the press' attention.
+
+Suddenly, Chinjao, Sai, and Boo appear, their grudge against Luffy gone and now are ready to defeat Doflamingo to repay Usopp, which annoys Luffy due to him wanting to defeat Doflamingo. Hajrudin then appears, also getting rid of his grudge and saying he'll defeat Doflamingo. He is soon followed by Elizabello II, Dagama, Abdullah, Jeet, Suleiman, Orlumbus, Ideo, and Blue Gilly, who all want the same thing: Doflamingo's head, but for different reasons. As Zoro asks all of them to back them up, Luffy and the former combatants start arguing on who gets to defeat Doflamingo. However, they notice a crowd of former colosseum combatant toys heading toward them, ready to take Luffy, Zoro, and Law's bounties, and, forgetting their argument, easily defeat the ex-toys. Just then, Luffy sees Ucy in the crowd, and the bull quickly recognizes his friend.
+
+The citizens of Dressrosa are all on the search for Luffy, Zoro, and Law, expecting all of them to be dead. Suddenly, they see the shadow of a bull heading toward them, and thinking it is only the Straw Hats, prepare to fire their guns. However, they see the Straw Hats backed up by the Corrida Colosseum's most dangerous combatants, and are very shocked. Pica then prepares to crush the combatants, but Chinjao uses his drill head and Elizabello II uses a lighter version of King Punch to shatter Pica's stone arm, shocking the citizens. Meanwhile, Luffy tries to get the other combatants off his trail to find Doflamingo.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*Law regains his hat from Cavendish.
+*Cavendish forsakes his revenge on the Straw Hat Pirates.
+*Luffy, Zoro, and Law join forces with the colosseum participants (Cavendish, Chinjao, Sai, Boo, Hajrudin, Elizabello II, Dagama, Abdullah and Jeet, Orlumbus, Ideo, Suleiman, Blue Gilly, and Ucy) to defeat Doflamingo.
+*Pica's rock hand is destroyed by Don Chinjao and Elizabello II.
+*Elizabello can use weaker versions of his King Punch technique.
+
+## Characters
+
+## Characters
+
+Pirate, Marines, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Heart Pirates, Trafalgar D. Water Law, Donquixote Pirates, Pica, Machvise, Beautiful Pirates, Cavendish, Farul, Admiral, Issho, Flower Country, Chinjao, Sai, Boo, Prodence Kingdom, Elizabello II, Dagama, Boin Archipelago, Heracles, Corrida Colosseum, Abdullah, Jeet, Blue Gilly, Ideo, Ucy, Hajrudin, Suleiman, Orlumbus

@@ -1,0 +1,51 @@
+# Chapter 756: The Fourth Step
+
+Volume: 76  |  Arc: Dressrosa Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_756 (CC-BY-SA)
+
+## Cover page
+
+Color Spread: The Straw Hats getting ready to go out to celebrate the series' 17th anniversary.
+
+## Short summary
+
+While Viola is looking for the princess' whereabouts, Kin'emon and Kanjuro arrive at her location. Usopp warns them of the mob coming after them, but Kanjuro has made things worse by drawing a net for the citizens to climb. Finally, Viola discovered Mansherry's cell and sends the info to Leo, who remembers that room from when Scarlett was alive. Once they reach the skies of the third level, they are attacked by Gladius, causing Robin and Bartolomeo to fall with him while Rebecca and Leo continue on to the fourth level.
+
+Usopp then hears from Viola that Sugar has been revived and his friends are in trouble. Sugar, who is now scared of anyone long-nosed, swears revenge against Usopp and his friends.
+Luffy's group is now fighting against the giant nutcrackers, but they are interrupted by Bartolomeo and Robin, who plummet to the ground. Law wants the key to his handcuffs so he can join the fight, but Robin says it is with Rebecca. She tells Luffy and company to keep going towards the next level while she and Bartolomeo prepare to fight Gladius and the giant toys.
+
+Now that Rebecca has reached the flower field, Leo leaves with Kabu to rescue Mansherry. Rebecca stays to waits for Luffy, but her brief respite turns to horror when she sees her mother's killer standing before her.
+
+## Long summary
+
+Viola searches for the entire palace for Mansherry, trying places she had never been in her years serving the Donquixote Family. Usopp marvels at Viola's power, when Tank Lepanto notices that two strangers, Kin'emon and Kanjuro, have arrived. He puts Kin'emon in a chokehold, but Usopp stops him, asking what Kanjuro's poorly drawn bird is. Kin'emon voices his surprise that Usopp, Viola, Lepanto, and Riku had managed to get up to the King's Plateau while a bunch of pirates were trying to climb up now. Usopp agrees noting cause of the rocks they can't climb up, but Kanjuro reveals he drew ladders for them and the citizens now begin to climb up the ladders now, much to Usopp's horror angrily asking why he did that. Kanjuro realizes he shouldn't have done that just as Viola finds Mansherry's location. Kanjuro feels disgraced for having done such a thing and attempts Seppuku to which Kin'emon stops him but Usopp tells him to do it. Usopp then asks who Kanjuro is and he introduces him. Viola then relays the information to Leo and Rebecca to which Leo expresses his worry for Mansherry. Viola tells him of the location and he realizes it's the "time out" room. Leo then gets tearful as it reminds him of Scarlett and that whenever he and the others visited the palace they'd get in trouble with Viola by Doldo but Scarlett would bring them food to which Leo admits he misses Scarlett. Leo thanks Viola for the information and she tells him to be careful. 
+
+As they reach the third level Robin notes there are some black balls heading towards them as she tries to warn Bartolomeo, but the latter is too entranced with working together with the Straw Hats and is attacked by "Punc Bala" in explosions. As Bartolomeo falls Kabu warns them of the Pamu Pamu no Mi as Robin begins to fall as well. Gladius sees them and goes after Rebecca noting he didn't see people coming from above, but Robin uses her powers and grabs him telling Rebecca she'll deal with Gladius and tells her to move on ahead. 
+
+Back at the plateau Usopp (after having given Kin'emon and Kanjuro a beating) hears from Viola that she saw some nasty toys in her direction and discovers that Sugar is awake, much to Usopp's horror. Usopp says she should be out cold after his "Sure-Kill-Jack-in-the-box" face for at least two or three days. Viola worries since Luffy doesn't know of her ability and they are in trouble. At the palace, Sugar screams in terror seeing a foot soldier with a long nose and giving her sausages for food to which Sugar yells at him that people with long noses should die and she won't eat anything that looks like a long nose and only wants grapes. She then turns him into a nutcracker toy while frustrated over failing Doflamingo and swears she'll turn everyone in the country into toys, especially Usopp.
+
+On Level 3 Cavendish tells Farul to run but the horse is bitten by the nutcracker. Luffy punches him off with a jet pistol while Cavendish tends to Farul noting his head was crushed. The toy easily recovers despite a hole in its chest much to Luffy's shock. Cavendish angrily retaliates at the toy with Biken: Round Table which cuts the toy's head off. However, it recovers again as the trio stand before the numerous toys thinking they're immortal. Law curses the situation noting he'd be able to make short work of them if he was free of his cuffs. Just then, Luffy sees something falling from the sky as Bartolomeo lands on a soldier as Robin flies herself down. As Robin gets reacquainted with Luffy, Law demands the key to his cuffs. Gladius falls down to as he curses Rebecca escaping while musing she was able to escape by herself swearing he will finish her himself. He then introduces himself as he prepares to face his opponents. Robin and Bartolomeo tell Luffy and the others to advance stating they'll fight Gladius and the toy nutcrackers. She then tells them that Rebecca is in the flower fields waiting for them and has Law's key. 
+
+At the flower fields Rebecca's group makes it while she worries over Robin but Leo reassures her that she and the crew are strong. Leo says they must go to save Mansherry and asks Rebecca if she'll be fine on her own. She says she'll be fine that Luffy and his friends should be at the fields any minute. As Leo and Kabu leave Rebecca notes that her father is out there somewhere also. Just then a noise is heard in the fields as a figure gets up from the thick flower field. The figure reveals himself to be Diamante who smiles at Rebecca's sudden appearance while Rebecca is horrified by his presence.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*Viola has located Mansherry's cell and shares the information with Leo.
+*Kin'emon and Kanjuro join up with Usopp and Viola.
+*Robin and Bartolomeo were separated from Rebecca and Leo because of Gladius.
+*Sugar has regained consciousness and now has a phobia of people with long noses or anything that resembles a long nose.
+*The giant nutcrackers were created by Sugar.
+*Farul has been gravely injured by one of the giant nutcrackers.
+*Robin and Bartolomeo fend off Gladius on the third level while Luffy's group continues to the fourth level.
+*Rebecca, Leo, and Kabu have arrived at the fourth level.
+**Leo and Kabu left Rebecca to search for Mansherry.
+**Rebecca is confronted by Diamante.
+
+## Characters
+
+## Characters
+
+Pirate, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Nami, Usopp, Sanji, Tony Tony Chopper, Nico Robin, Franky, Brook, Barto Club, Bartolomeo, Donquixote Pirates, Diamante, Sugar, Gladius, Heart Pirates, Trafalgar D. Water Law, Beautiful Pirates, Cavendish, Farul, Dressrosa, Riku Doldo III, Kyros, Scarlett, Viola, Rebecca, Tank Lepanto, Tontatta Kingdom, Mansherry, Leo, Kabu, Inhel, Wano Country, Kin'emon, Kurozumi Kanjuro, Revolutionary Army, Hack

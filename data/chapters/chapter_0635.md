@@ -1,0 +1,51 @@
+# Chapter 635: So Scared I Ran Up to the Sky
+
+Arc: Fish-Man Island Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_635 (CC-BY-SA)
+
+## Cover page
+
+From the Decks of the World Vol. 19 - "A Certain Corporation Chairman Recognized by the World Nobles: the Evil Black Drum Kingdom is Created".
+
+## Short summary
+
+The New Fish-Man Pirates are charging towards the Straw Hat Pirates and Hody Jones uses his water shot on Shirahoshi, but it is intercepted by Jinbe's own water shot.
+
+The cannon squad prepares to shoot at Shirahoshi, but Brook uses music to manipulate them into hallucinating and then he cuts the squad down. The iron shell squad is charging at Zoro, but he creates a huge whirlwind of blades which cuts the squad down too. The Sea Urchin-Armor Spine Squadron tries to attack Sanji, but he dodges on the last second using Sky Walk to jump in the air, making them hit each other and then he takes down a group of flying fish-men. Robin stomps on the fish-men with two huge legs and Franky runs them over with the Kurosai FR-U IV. Then Usopp takes down a big fish-man with the Brachio Tank V.
+
+Hody orders Surume to crush the Straw Hat Pirates, but the kraken betrays him and attacks his men.
+
+## Long summary
+
+Zeo calls out to the foot soldiers, saying the Straw Hat Pirates and Jinbe are the true enemies for trying to destroy their goals. Zoro is annoyed at Luffy for taking out too many enemies at once. Sanji challenges Zoro to see who can defeat more pirates. Hody angrily throws a Water Shot at Shirahoshi, but his shot is intercepted by another Water Shot, this time from Jinbe. Jinbe says that Hody's Fish-Man Karate pales in comparison to his own. A pirate mentions he heard that Jinbe's bounty might have gone up beyond 400,000,000 after he resigned from the Seven Warlords of the Sea. The cannon squad aims at Shirahoshi, but Brook intercepts them. Using his violin, he hypnotizes them into thinking they are at a festival, and orders them to shoot their fireworks (in actuality their cannons) into the air in celebration. Dosun yells at them, telling them he said to aim for the princess. When a pirate turns to Dosun, Brook says that they were already cut, using a new technique, Quinte Tierce Fantasia.
+
+The Iron Shell Squad charges at Zoro. Zoro sends them flying with Kokujo: O Tatsumaki. The tornado generated from the attack starts to move, picking up pirates along the way. When asked when it will stop chasing them, Zoro tells them it will go to the ends of Hell. Several merfolk pirates rise into the air, using Bubbly Coral to gain altitude and charge at Shirahoshi. Sanji finds himself surrounded by the Sea Urchin-Armor Spine Squadron. He has a flashback to his days of being chased by the okama. The Sea Urchin-Armor Spine Squadron crash into one another, with Sanji nowhere to be seen. Sanji remembers how he stopped running from the okama, by flying. He is then seen kicking through the air in the same style as Geppo. He intercepts the pirates charging at Shirahoshi and swiftly takes them out with a Diable Jambe: Poêle à Frire: Spectre. Robin then creates a giant pair of legs from the ground, using Mil Fleur: Gigantesco Mano. She then attacks all nearby pirates with Stomp.
+
+The Deadly Poison Squad is then called into battle. They watch as the channel on the Soldier Dock changes from 3 to 4. Franky then bursts out on the Kurosai FR-U IV, completely running over the Deadly Poison Squad while Luffy looks at it with stars in his eyes. One fish-man, swinging a spiked ball on a chain, tries to stop Franky, but before he can, something hits him in the face and explodes. Franky then introduces the newest channel, Channel 5, and its contents, the Brachio Tank V with Usopp manning the cannon from inside. Hody orders the kraken to crush the Straw Hats, telling the kraken he brought him back from the North Pole as a slave. Luffy recognizes Surume and asks to ride on his back, saying they are friends. Luffy then sits on Surume's back as the kraken crushes all the nearby New Fish-Man Pirates.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*Wapol, Hakowan and Miss Universe are seen for the first time after the timeskip. This marks the first time a major antagonist appears in this cover story series.
+*Jinbe's bounty supposedly rose to over 400,000,000 after he resigned from the Seven Warlords of the Sea.
+*Hody Jones knows Fish-Man Karate, but Jinbe stated that Hody is an amateur compared to him.
+*It is shown that the New Fish-Man Pirates have different combat divisions.
+*Zoro puts on his bandana for the first time after the timeskip.
+*Some more of the Straw Hats' new abilities and weapons have been revealed:
+**Brook can create illusions with his music and hypnotize people.
+**Zoro has improved his Tatsu Maki; instead of dissipating right away, the tornado created by the attack remains for a much longer time, continuing to cut whoever gets caught in it.
+**Sanji can use a technique identical to Geppo named Sky Walk, afterwards he uses his Diable Jambe to attack opponents rapidly in a similar fashion to Luffy's Gomu Gomu no Gatling in the air.
+**Robin can now use a new technique with her Devil Fruit: she creates two giant legs from the ground and proceeds to crush the opponents with them.
+**Franky made two new vehicles. One is the Kurosai FR-U IV and the other is the Brachio Tank V. They are stored in Chambers 4 and 5 of the Soldier Dock System, respectively.
+*Surume is from the North Pole and was enslaved by Hody.
+*Surume betrays the New Fish-Man Pirates and rejoins the Straw Hat Pirates.
+
+## Characters
+
+: first appearance
+
+## Characters
+
+Pirates, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Nami, Usopp, Sanji, Tony Tony Chopper, Nico Robin, Franky, Brook, Sun Pirates, Jinbe, New Fish-Man Pirates, Hody Jones, Dosun, Zeo, Daruma, Ikaros Much, Hyouzou, Jean Noueilles, Ryugu Palace, Shirahoshi, Megalo, Fish-Man Island, Pappag, Surume, Evil Black Drum Kingdom, Wapol, Kinderella, Hakowan

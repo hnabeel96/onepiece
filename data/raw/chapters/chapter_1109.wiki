@@ -1,0 +1,122 @@
+{{Chapter Box
+| title = Interception
+| jname = 阻止
+| rname = Soshi
+| ename = Interception
+}}
+
+'''Chapter 1109''' is titled "Interception". 
+
+==Cover Page==
+[[Oni Child Yamato's Golden Harvest Surrogate Pilgrimage]] Vol. 1: "[[Onigashima]] sinks."
+
+==Short Summary==
+As the various places throughout the world prepare setting up their video [[Den Den Mushi]], the other [[Five Elders|Elders]] contact [[Jaygarcia Saturn|Saturn]] telepathically to review the situation and they realize the signal is coming from [[Egghead#Labophase|Labophase]] which is protected by a barrier. [[Monkey D. Luffy|Luffy]] continues his attack on [[Borsalino|Kizaru]] and Saturn, noticing the latter does not seem to be taking any damage from his attacks. Realizing they must stop the message, Saturn summons the other Elders to his location.
+
+==Long Summary==
+In the video, [[Vegapunk/Shaka|Shaka]] asks [[Vegapunk|Dr. Vegapunk]] if sending out this message to the [[world]] is a good idea, his reason being that the people of the world may not be ready to receive and relay it. Dr. Vegapunk, however, tells him that as soon as information agencies get news, they will spread it across the world by the next day. Shaka asks what he will do if someone tries to censor the message, and Dr. Vegapunk acknowledges he had not thought of that, so he asks Shaka for ideas.
+
+The idea he comes up with is piggybacking off the [[Marines]]' comms traffic, that way they can force a constant worldwide broadcast with the strongest signal, and sure enough, that is exactly what starts happening, as the Marines in the present try desperately to cut the connection but fail. Dr. Vegapunk then says that everyone that has a [[Den Den Mushi]] will be able to listen, but it may take a while for them to be prepared, and the time intervals will differ from place to place. At first, Dr. Vegapunk suggests they give everyone an hour, but Shaka warns that may give people who are not happy with the news being released time to cut the message. Dr. Vegapunk once again acknowledges this and changes the time to ten minutes.
+
+In [[Mary Geoise]], the other [[Five Elders|Elders]] communicate with [[Jaygarcia Saturn|Saturn]] telepathically and they ask if he has dealt with Dr. Vegapunk. Saturn reports that he saw [[Borsalino|Kizaru]] deliver what he believes is a fatal blow, so he thinks he should be dead. [[Topman Warcury|Warcury]] surmises the message currently being broadcasted is a dead man’s switch, set to go off in the event the main body dies. [[Shepherd Ju Peter|Ju Peter]] says they have no idea what he will say, but if they pinpoint the source of the broadcast, they can stop it. The four realize the source is likely located in the Labophase that is currently protected by the Frontier Dome.
+
+Many places around the world react to Dr. Vegapunk's message (while he and his Satellites decide to get some coffee), places including [[Dressrosa]], [[Foosha Village]], [[Water 7]], and the [[World Economy News Paper]], with all of the [[Straw Hat Pirates]]' allies listening in. Even the [[Revolutionary Army]] is watching, with [[Monkey D. Dragon|Dragon]] thinking back to when Shaka told him he will die soon.
+
+As for [[Monkey D. Luffy|Luffy]], he manages to dodge a combined assault from an eye beam ambush from Kizaru and a lethal attack from one of Saturn's legs. He acknowledges that his punches did not affect Saturn, so he stretches his arms back and slams both him and Kizaru together, a move he calls '''[[Gomu Gomu no Mi/Gear 5 Techniques#Techniques|Gomu Gomu no Dawn Cymbal]]'''. As a result, both are completely flattened, and Luffy starts twirling the two around like pizza dough and sends them flying towards the ocean, and while Kizaru crashes into a ship, Saturn turns around and moves full speed at Luffy with his legs, much to the latter’s shock and frustration.
+
+Luffy dodges Saturn’s attack as the Marines check in on the extremely weakened Kizaru, while the other Elders tell Saturn that they cannot allow Dr. Vegapunk to speak freely. As such, Saturn performs the [[Abyss|magic circle]] summoning he used to reach the island, bringing the other four to [[Egghead]] in blasts of black lightning, with Luffy and [[Sanji]] watching in complete shock.
+
+==Quick References==
+===Chapter Notes===
+*As [[Vegapunk]]'s pre-recorded message starts broadcasting, Vegapunk gives the listeners 10 minutes to prepare themselves and their equipment before he makes his announcement.
+**Despite the [[Marines]]' attempts, they are unable to block the broadcast, which happens across the [[world]].
+*The remaining [[Five Elders]] telepathically communicate with [[Jaygarcia Saturn|Saturn]], and realize that Vegapunk's broadcast may be triggered by a dead-man's switch.
+**[[Shepherd Ju Peter]] believes the source of the broadcast must be inside Labophase of Egghead, which is still heavily protected.
+*Across the world, such as in [[Dressrosa]], [[Foosha Village]], [[Water 7]], and the [[World Economy News Paper]]'s headquarters, everybody is preparing to hear Vegapunk's message.
+**[[Iceburg]]'s secretary, [[Alice]], is introduced.
+*[[Monkey D. Luffy|Luffy]] overpowers [[Borsalino|Kizaru]] and Saturn, and manages to send Kizaru flying into a [[Marine Ships|Marine ship]].
+**Saturn keeps healing from his injuries and returns to the fight.
+*The remaining Five Elders telepathically tell Saturn that there is no more time left for Vegapunk's message to be stopped.
+**In response, Saturn summons the other Elders to his location, which causes four ritual circles to manifest around him.
+
+===Characters===
+{| class="CharTable"
+!colspan="2"|[[Pirate]]s
+![[World Government]]
+![[Revolutionary Army]]
+!colspan="2"|Citizens
+!Other
+|-
+|
+;[[Straw Hat Pirates]]
+*[[Monkey D. Luffy]] 
+*[[Nami]] 
+*[[Usopp]]
+*[[Sanji]] 
+*[[Tony Tony Chopper]]
+*[[Nico Robin]]
+|
+;[[Bonney Pirates]]
+*[[Jewelry Bonney]]
+----
+;[[Tontatta Pirates]]
+*[[Leo]]
+*[[Kabu]]
+|
+;[[Five Elders]]
+*[[Jaygarcia Saturn]]
+*[[Marcus Mars]]
+*[[Topman Warcury]]
+*[[Ethanbaron V. Nusjuro]]
+*[[Shepherd Ju Peter]]
+----
+;[[Marines]]
+*[[Borsalino]]
+|
+*[[Monkey D. Dragon]]
+*[[Sabo]]
+*[[Emporio Ivankov]]
+*[[Belo Betty]]
+*[[Morley]]
+*[[Lindbergh]]
+*[[Karasu]]
+*[[Koala]]
+*[[Gambo]]
+*[[Ushiano]]
+*[[Jiron]]
+|
+;[[Egghead]]
+*[[Vegapunk]]
+*[[Vegapunk/Shaka|Shaka]] ''(broadcast; flashback)''
+*[[Vegapunk/Edison|Edison]] 
+*[[Vegapunk/Pythagoras|Pythagoras]] ''(broadcast)''
+*[[Vegapunk/Atlas|Atlas]] 
+----
+;[[Goa Kingdom]]
+*[[Woop Slap]] 
+----
+;[[Arabasta Kingdom]]
+*[[Nefertari Vivi]]
+|
+;[[Evil Black Drum Kingdom]]
+*[[Wapol]]
+----
+;[[Water 7]]
+*[[Iceburg]]
+*[[Alice]]
+*[[Tyrannosaurus]]
+----
+;[[Dressrosa]]
+*[[Rebecca]]
+*[[Kyros]]
+*[[Tank Lepanto]]
+|
+;[[World Economy News Paper]]
+*[[Morgans]]
+*[[Iyan'eno Chinode]]
+|}
+
+
+==Arc Navigation==
+{{Egghead Arc}}
+{{Oni Child Yamato's Golden Harvest Surrogate Pilgrimage}}

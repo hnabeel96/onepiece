@@ -1,0 +1,29 @@
+# Chapter 314: Combat!!!
+
+Arc: Long Ring Long Land Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_314 (CC-BY-SA)
+
+## Cover page
+
+Gedatsu's Accidental Blue-Sea Life, Vol. 1: "From the Sky, An Angel Descends".
+
+Thousands of meters above the Blue Sea, a silhouette plunges through the clouds.
+
+## Short summary
+
+The Fight between Afro Luffy and Foxy Begins.
+
+## Long summary
+
+In a brief flashback, Luffy and Usopp stand in awe at the various props before them in the "Resting Room" aboard the Sexy Foxy. The Foxy Pirate that is present explains to them that the contestants must wear boxing gloves, but aside from that they are allowed to dress up however they'd like for the fight. Usopp spots an afro, and asks Luffy how he looks as he puts it on. Luffy is absolutely blown away, telling Usopp he looks cool. Usopp states that the hairstyle will unlock one's deepest latent powers, and encourages Luffy that the afro will make his punch stronger. Luffy is ecstatic in his belief of Usopp, telling the latter that he was even talking differently while wearing the afro. 
+
+In the present, both contestants have entered the arena for the final round of the Davy Back Fight, the Battle Round. On Luffy's side, Usopp is proud of his role as coach; warning his opponent about the power of Luffy's punch, while Luffy himself is anxious to start the fight. On Foxy's side, he cracks his neck and compliments Luffy for his battle-ready appearance. In the stands, Zoro wonders how Usopp became the coach, while Sanji and Chopper enthusiastically cheer for their captain. Nami on the other hand wonders if Luffy actually takes anything seriously, though Robin is very amused at her captain's new appearance.  Usopp begins issuing another warning to Foxy, though he is cut off as Itomimizu announces that it is time for all noncontestants to exit the ring. Itomimizu takes this time to reiterate the rules of the Battle Round: the entirety of the Sexy Foxy is part of the arena (including the rooms below deck), as well as everything within a 100 meter radius of the ship's mast. Additionally, the Battle Round has no time limit, it ends when a contestant scores one point (knocking the opponent out of the arena). The audience stand rises up, both to give the audience a better view of the fight, but also so that only the contestants remain in the terrain of the arena. 
+
+Foxy repeats to Luffy that the entirety of the ship is in play, and he may fight as he pleases without worry of breaking anything. As Luffy acknowledges, both crews cheer on their contestants, with Nami reminding Luffy to watch out for his opponent's "Noro Noro Beam". Itomimizu sets the stage once more announcing the fight, and it finally begins upon the ringing of a bell. Luffy immediately attempts a Gomu Gomu no Pistol, but Foxy uses his Noro Noro Beam on Luffy's fist, allowing him to easily dodge. Luffy is shocked that his fist has become slow and won't return to him, while Foxy explains that the effect is worse with the more effort that Luffy exerts. Luffy falls down as he reels from the effects, only for Foxy to prepare another beam. Still unable to move his arm, Luffy attempts to dodge by jumping in the air. Foxy simply redirects the beam however, catching Luffy mid-air and upside down. The Straw Hats are unsettled by this new development, most notably Zoro, who points out that the beams are reducing the speed of Luffy's actions. Still unsure of what's going on, Luffy questions Foxy's actions, though his speech pattern is extremely slowed as well. Foxy unleashes the "Foxy Rush", a barrage of punches on Luffy's face. Sanji notes that punches are having no effect, but Zoro points out that the effects are probably being slowed down as well. Foxy confirms this, and states that Luffy is done for even if he is a rubber man. Foxy announces that 30 seconds have gone by, and Luffy's body is immediately rocked from the impact of the flurry of punches as he goes flying. Sanji makes a note of the 30 second rule, while Chopper panics that Luffy's body will fall into the sea at this rate. Luffy is able to catch his fall by extending his arm to grab the ship, surprising many of the Foxy Pirates with his Devil Fruit ability. Luffy states that the Noro Noro Beam is stronger than he anticipated, and resolves not to stretch himself too much for easy retaliation. He runs further onto the ship looking for Foxy, but arrows suddenly fly towards him that he barely manages to dodge. Luffy spots Foxy floating toward him on a cannonball, and notes that he must have used the Noro Noro Beam on it to do so. Because of this Luffy believes that he can jump on the cannonballs as well, but the Noro Noro effect wears off on the one he chooses. He catches a different cannonball to break his fall, but the same thing happens, causing Luffy to crash into the deck of the ship. 
+
+As Luffy rises to his feet, Foxy uses another weapon, the "Foxy Face Bomb", and it shoots miniature versions of Foxy's head at Luffy. Luffy wonders why they resemble the souvenir pins he bought, and one of the heads responds that they are bombs. As Luffy ponders why the bombs can talk, one of the heads is revealed to be Foxy himself, who lands a hard punch to Luffy's face. Foxy reveals that he has exchanged his boxing gloves for spiked ones, and also that the 30 seconds for the Foxy Face Bombs are now up. Luffy is caught in a powerful explosion, prompting Nami to show concern for her captain. Itomimizu notes that all the bombs landed direct hits, and says that Foxy is winning the fight.
+
+## Characters
+
+Pirate, Skypiea, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Nami, Usopp, Sanji, Tony Tony Chopper, Nico Robin, Foxy Pirates, Foxy, Itomimizu, God's Army, Gedatsu

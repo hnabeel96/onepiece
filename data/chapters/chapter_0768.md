@@ -1,0 +1,49 @@
+# Chapter 768: The Trigger That Day
+
+Volume: 77  |  Arc: Dressrosa Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_768 (CC-BY-SA)
+
+## Cover page
+
+Solo Journey of Jinbe, Knight of the Sea Vol. 15 - "I Definitely Saw That Ruin Fall Just Now".
+
+Jinbe then sees the sea dog sheriff's home fall into the ruins.
+
+## Short summary
+
+Law clashes with Doflamingo, and asks him about the Luffy and the D. Doflamingo dismisses the legends surrounding the name as mere superstition. Law then reveals to Doflamingo that he is a D. as well, leading Doflamingo to cause major damage to the palace roof.
+
+Elsewhere, Viola keeps an eye on all the battles that are going on, most of which are causing a lot of injuries. In Kyros' battle against Diamante, Diamante causes the ground to shake, and Leo is hot on the trail of Princess Mansherry. The Corrida Colosseum combatants have trouble fighting off the officers of the Donquixote Pirates.
+
+Enraged at Law for being a D., Doflamingo gets up close to attack him. Too late, Law uses Injection Shot on him, piercing him through the midsection. Law states that he has come to pull the trigger that Corazon could not on that fateful day.
+
+## Long summary
+
+In the present as Law clashes with Doflamingo, he recalls Rosinante's declaration of Law's freedom to Doflamingo before the latter murders him. However he laments that will not be truly free until he accomplishes his goal of stopping Doflamingo's madness. Law creates a "Room" around them, and tosses a pebble behind Doflamingo. As he does so, he asks him what he thinks of Monkey D. Luffy, considering Law has now learned today that Doflamingo was a World Noble. He then uses "Shambles" to switch places with the rock, thus teleporting behind Doflamingo. He attempts to stab him through the back, while further inquiring what he thinks of D. Doflamingo however forms Haki over his hand and catches the blade. He states it is of no concern to Law, and pulls him forward to cut him with his strings. He then ridicules the idea that Luffy, as a D, was led there by fate to claim his head as a noble. Though disarmed, Law forms Haki over his hands and forearm to block Doflamingo's attack, while revealing that he too is a D. This infuriates Doflamingo, and the aftermath of his attack slices off the top of the palace. 
+
+At the former Royal Plateau, King Riku asks Viola about the current status of the battle. Assessing that the longer the battle continues, the more injuries there will be, she indicates that the battle has three settings: the plateau holding the royal palace, the statue of Pica, and the SMILE Factory. Upon hearing this, Usopp asks Viola how many officers still remain. She states that they are disbursed as follows: Senor Pink is guarding the SMILE Factory. Pica is still atop his stone statue. On the top floor of the palace, are Doflamingo and Trebol. At the 4th level of the palace is Diamante. On the third level, Gladius leads what remains of the soldiers. Finally, on Level 2, there are Lao G, Baby 5, Machvise, and Dellinger, whom we learn is a half fish-man of the fighting fish species. 
+
+Viola concludes that the many of the remaining fighters are heavily injured, and that the final moments of the battle are drawing near. At the SMILE Factory, Franky and Senor Pink are still battling intensely. Senor has saved a cat, much to the adoration of their female spectators. Roronoa Zoro is still locked in battle with Pica. At level three of the plateau, Cavendish is fending off Gladius while Robin uses her power to create a staircase out of legs. Cavendish goes on to remark that Gladius' minions' attacks are putting him to sleep. On level four of the plateau, Diamante begins an attack that makes the ground wave like a flag, much to the astonishment of Kyros and Rebecca. Inside the Royal Palace, Leo and Kabu are defeating Donquixote soldiers in pursuit Princess Mansherry. In front of the Royal Palace, Sabo is helping out some citizens, while Koala is running off to an unknown location. At level two of the palace, the Donquixote Family officers are defeating the Colosseum Army with relative ease. Back at the Former Royal Plateau, Viola has made it clear that if Doflamingo is not defeated, nothing will change. This leads some of the citizens to worry that the fate of their country is being left in the hands of pirates, as Admiral Fujitora watches on. 
+
+At the Royal Palace, Doflamingo, now upset at the revelation of Law's real name, is attacking him viciously. He ridicules Law for believing that fate has brought him there as well to defeat him. As he writes off Rosinante's words to Law about the "D" clan as superstition, Trebol warns him that he is now within range of Law's attack. However Doflamingo fails to take heed, and Law stabs him through the midsection with "Injection Shot". Upon this, Law tells Doflamingo that Rosinante knew fully that Law couldn't beat him by virtue of his secret name alone. He furthermore says that "Cora-san" was too kind to pull the trigger on Doflamingo, so he will do it himself.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*The flashback of Law's past ends.
+*Law reveals to Doflamingo that he also has the D. in his name.
+*Law is seen using Armament: Koka for the first time.
+*Dellinger is revealed to be half Fighting Fish fish-man.
+**This makes him the first known fish-man to be based off of a fish created by Eiichiro Oda, rather than a real fish.
+*Cavendish confronts Gladius while Robin uses her power to create a staircase.
+*Diamante reveals a new move, Army Bandera, which causes the ground to shake.
+* For the time being, Sabo and Koala are helping the citizens.
+*Law stabs Doflamingo with Injection Shot.
+
+## Characters
+
+## Characters
+
+Pirate, Marines, Straw Hat Pirates, Roronoa Zoro, Usopp, Nico Robin, Franky, Heart Pirates, Trafalgar D. Water Law, Beautiful Pirates, Cavendish, Barto Club, Bartolomeo, Donquixote Pirates, Donquixote Doflamingo, Trebol, Diamante, Pica, Lao G, Machvise, Senor Pink, Dellinger, Gladius, Baby 5, Sun Pirates, Jinbe, Admiral, Issho, Marine Ranks, Donquixote Rosinante, Dressrosa, Riku Doldo III, Kyros, Viola, Rebecca, Tank Lepanto, Tontatta Kingdom, Leo, Kabu, Wano Country, Kin'emon, Kurozumi Kanjuro, Kano Country, Chinjao, Sai, Prodence Kingdom, Elizabello II, Revolutionary Army, Sabo, Koala, Corrida Colosseum, Hajrudin, Ideo

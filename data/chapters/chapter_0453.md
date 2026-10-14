@@ -1,0 +1,27 @@
+# Chapter 453: Cloudy With a Small Chance of Bone
+
+Volume: 47  |  Arc: Thriller Bark Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_453 (CC-BY-SA)
+
+## Cover page
+
+Enel's Great Space Operations, Vol. 21: "To the Moon!"
+
+After paying the professor their last respects, the Automata travel up to the moon on balloons, determined to take revenge on the explosion's cause.
+
+## Short summary
+
+Inuppe continues to defend Nami. Absalom then enters, being chased by Lola, who then carries Nami away. Nami then shocks him with a thunderbolt, making him stop. Lola then starts chasing Nami, and Inuppe challenges Absalom, but is easily defeated. Back at the bridge, Tararan tells Franky and Robin that Luffy, Zoro and Sanji were captured. They are then surrounded by zombies but Franky breaks the bridge and grapples the end of the bridge to safety. The chapter ends with Brook falling out of the sky.
+
+## Long summary
+
+In Perona's "Wonder Garden", the zombies are in shock and bewilderment that Inuppe was able to defy their master's order. He has defeated several of the zombies in order to protect Nami, displaying a level of strength on par with a General Zombie. Inuppe states that "Love Is A Hurricane" in reference to his power, causing Nami, Usopp, and Chopper to note his similarity to Sanji. When the latter two ask the zombie directly about this he responds with aggression, though a distant voice quickly grabs their attention.
+This is revealed to be Absalom; he is trying to stop Lola the zombie, who is running directly toward the Straw Hats. When she spots Nami she accuses her of being a thief and pulls out a gigantic axe to attack her. She tells a perplexed Nami that she won't let her have "Ab-sama", but before she can land a blow Inuppe jumps in front and breaks the axe with a powerful kick. His endeavor ultimately fails however, as Lola is incensed at his involvement and angrily throws him far away. Usopp and Chopper ask Inuppe why he didn't attack, and he responds that "Even if I die I wont kick a woman!!". Usopp and Chopper applaud that Inuppe was able to deduce that Lola was a woman, but with Lola busy, Absalom finds the chance to run away with Nami using his ability. Usopp initially thinks Nami is flying, though Chopper quickly reminds him of the "Invisible Man" that had appeared on the Thousand Sunny earlier. Nami recalls him as well, and upon Absalom finally introducing himself to her as her future husband, she attacks him with 'Thunder Charge'. This makes Absalom stop temporarily but he quickly shakes off the feeling, wondering if it is love. Lola, now even angrier and brandishing two katanas, continues pursuing the Straw Hats. 
+As the other zombies rally themselves to chase the fleeing pirates, Inuppe questions his inexplicable desire to protect Nami and grows frustrated that his body can't move the way he wants it to. Absalom warns the "Wild" Zombies not to harm Nami in any way at all, though they brush this off as his usual perverted nature and remind him that by Moria's order they are Perona's subordinates. Absalom roars loudly, freezing them in their tracks. He recognizes that they are under Perona's authority, but warns the zombies that they should not anger him. Inuppe then confronts Absalom, asserting that he won't allow him to pursue Nami. Absalom aims his palm at Inuppe, and suddenly a massive shockwave completely blows him and all the zombies in the surrounding area away. As the other zombies look on in fear, Inuppe appears to be incapacitated. Meanwhile, Lola is in hot pursuit of the Straw Hats, though Usopp notices that she seems to be primarily interested in Nami. He proposes that they split up, which earns him a slap on the head. 
+
+On the General Zombies' side, Franky and Robin find themselves trapped on a bridge between zombies and Tararan. Franky is quite surprised to learn that Luffy, Sanji and Zoro are all trapped behind the giant spider zombie in a room. Tararan warns that the same thing is about to happen to the two of them, as the zombies behind them draw closer. Franky realizes that Tararan is behind the giant web that trapped the Sunny, and the zombie is proud to reveal that Perona's "Ghost Network" has been tracking all of their movements. Franky notes how desperate their situation appears to be and asks Robin if she'll trust him in getting them out of it, to which she happily obliges. With a 'Coup de Vent' Franky destroys the bridge from beneath them, and Robin saves them by creating wings with her Devil Fruit. Franky is astonished by her ability to fly, though she notes that she can only do this for five seconds. Franky assures her this is plenty of time, as he uses a "Strong Right" to extend his arm and grapple to the doorway across from them. Robin lands safely and notes that the zombies have all fallen down, though Franky is upset with her for using him as a stepping stone to jump to safety. Tararan warns them that he is a spider and can get back up there in no time, but their conversation is halted when Brook is seen falling from the sky. He lands right in the pile of zombies that just fell from the bridge.
+
+## Characters
+
+Pirates, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Nami, Usopp, Sanji, Tony Tony Chopper, Nico Robin, Franky, Thriller Bark Pirates, Absalom, Tararan, Jigoro, Inuppe, Lola (Zombie), Hippo Gentleman, John, Ganzui, Florian Triangle, Brook, Karakuri Island, Spacey, Macro (Automaton), Galaxy, Cosmo

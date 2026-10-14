@@ -1,0 +1,29 @@
+# Chapter 131: Tin Plate Wapol
+
+Volume: 15  |  Arc: Drum Island Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_131 (CC-BY-SA)
+
+## Cover page
+
+Jango's Dance Paradise, Vol. 5: "Getaway Dance"
+
+Jango finds a boat and makes his escape, his pint-sized pursuers still cursing him from the island's shore.
+
+## Short summary
+
+Zoro spots someone standing at the sea surface. After an awkward moment, a submarine ship surfaces. The Straw Hat are attacked by the Bliking Pirates and their captain, Wapol. He first asks the Straw Hat if they have an Eternal Pose leading to Drum Island. The Bliking pirates then decide to steal the Straw Hat treasures instead. Wapol, in front of the bemused Straw Hats, begins to eat the deck of the Going Merry. Angered that someone dares to damage his ship, Luffy attacks Wapol directly but his Baku Baku no Mi allows Wapol to eat everything and swallows Luffy's head. However, rubber seems difficult to masticate, leaving Luffy time to attack Wapol with a Gomu Gomu no Bazooka sending the hungry pirate flying.
+
+Meanwhile, Vivi, heads upstairs to interrogate the noise and leaves Nami's bedside. She barely has time to notice Wapol, but he seems familiar to her.
+
+## Long summary
+
+Zoro asks the crew if it is possible for someone to stand on top of water. The crew is confused as it is physically impossible for someone to stand on water. Zoro then asks how they would explain why there is a man standing on water, which prompt the crew to look at what Zoro is pointing at. They all spot the strange man standing on water.
+
+The man then makes a comment about the cold weather. The crew agree it is cold. Suddenly, the water at the man's feet erupts and a ship appears. Sanji, who has been taking care of Nami, rushes outside to see what has happened. He stops to light a cigarette and asks what happened. Luffy responds that they were ambushed. Sanji comments that that is obvious as they are surrounded by pirates with rifles.
+
+The Captain of said pirates then wonders where there other crew members are, as they should have more than 4 members. He then asks them if they know how to get to Drum kingdom to which Sanji replies that they do not. The mysterious captain then starts eating the going merry much to the shock of the crew, and this angers Luffy who starts a fight and attacks the captain who eats him just as Vivi comes out to see what's going on. Luffy then finishes his attack and blows the captain away, who Vivi feels she has met before.
+
+## Characters
+
+Pirate, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Nami, Usopp, Sanji, Bliking Pirates, Wapol, Chess, Kuromarimo, Black Cat Pirates, Jango, Usopp Pirates, Piiman, Ninjin, Tamanegi, Arabasta, Nefertari Vivi, Karoo

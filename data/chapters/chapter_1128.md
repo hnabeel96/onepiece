@@ -1,0 +1,44 @@
+# Chapter 1128: RPG
+
+Volume: 111  |  Arc: Elbaph Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_1128 (CC-BY-SA)
+
+## Cover page
+
+Color Spread: Based on requests: "The Straw Hats having a volcano-top BBQ with a dragon" from Hebo (S-Oda) & "The Straw Hats as magicians flying through the sky with black cats" from Honeylicker.
+
+## Short summary
+
+As the Luffy's group continues on speculating where they are, they meet a man and learn they are in the Land of Gods which is ruled by the Sun God and warns them not to head in the other direction from the castle before leaving towards the Sun God's temple. As the group continues in that direction, they soon find they are actually in a giant-sized room and find Chopper. Upon reaching the temple they fight its guardians. Just as they capture one to use as transportation, the Sun God returns, furious by what he sees.
+
+## Long summary
+
+Sanji deduces he is not dreaming because there are men present as everyone hops down from the castle, while Zoro reveals he woke up on the other side of town, following the sound of Luffy eating the giant rabbit. Luffy tells Usopp he could have beaten that giant cat, but he claims it woke him up when it tried to eat him, which freaked him out.
+
+Usopp tells everyone that though they are wearing Elbaph clothes, it is impossible the country would have clothes that can fit humans. To get to the bottom of this, the crew decide to find some people in town and ask where they are. They come across a man riding a giant grasshopper but when they ask him questions, he tells them he cannot answer because he is in a hurry. The only thing he does tell the crew is that they are in the "Land of Gods", which is ruled by someone the people call the "Sun God". The man also tells the crew that he serves the ruler of Bigstein Castle, Iscat, which the crew realizes is the giant cat they fought earlier. Luffy tries telling the man he accidentally beat it up, but Usopp covers his mouth so he does not say anything that will upset the man. The man says the "Needle God" should be hungry right about now, no doubt referring to the giant hedgehog Nami zapped, and he is running late because the "Ear God", which is the rabbit, was burned to death, with Usopp once again trying to stop Luffy from admitting he ate it while the crew whistle like they had nothing to do with it. The man warns the crew to never venture in the other direction of the castle, for in that direction is the Sun God's temple, guarded by vicious soldiers. His words, however, prompt Luffy to run off in said direction for adventure.
+
+Nami thanks the man for all the information and apologizes for everything else, while the others start chasing after Luffy, all the while taking note of how there seem to be no homes and a castle that resembles the one they were just in. Luffy sees someone running towards him also wearing Elbaph clothes, but he assumes he can just run past him. What it actually was was his reflection in a mirror, which he crashes into. Doing so causes the "sky" to crack and the mirror to shatter, revealing a netted door. It turns out that this blocky kingdom is just a diorama in a giant-sized room, and this room means the Straw Hats are not on the Giants's ship anymore because it didn't have such a room. Everyone then hears someone calling for help, who turns out to be Chopper.
+
+Cutting through the door, Chopper reunites with everyone, giving Nami a hug, which she says means he owes her. Usopp and Zoro notice several other human-sized clothes, indicating they were made for dolls, and Luffy sees more blocks lying around while Sanji observes that the mirror they broke is see-through on the other side, meaning others can look into the set, but the people within cannot. He also suggests installing those types of mirrors in the girls' cabin, earning a kick to the face from Nami for offering that.
+
+With all of this information, Zoro deduces a giant built this diorama and put several humans and giant animals into it for entertainment. Usopp takes this as a sign that they have made it to Elbaph since the room is giant, but Nami is skeptical. Chopper suggests they leave now while they still can but Usopp says they should go back into the set and ask for more clues. However, everyone's attention is turned to the arrival of the temple guards the man spoke of earlier, which consist of a giant snake, three giant mice, and a giant raven, all of which Luffy starts fighting. As they fight, the Sun God mentioned before walks into the room and is left horrified by the Straw Hats fighting the animals and having set the room on fire in the process.
+
+After Luffy defeats all of the guards in his Gear 5 form, the crew start running from the Sun God and come across the Iscat, which Luffy forces to give them a ride. Nami then shows everyone she found a blueprint to the block set, and they use it to make for the exit, all the while the Sun God angrily chases after them for destroying his kingdom, declaring he will not let any of them escape.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*The abducted Straw Hat Pirates discover they were inside a massive diorama all along, ruled by a giant known as the "Sun God".
+**Outside the diorama is a workshop with several human-sized costumes and other gigantic animals.
+**Chopper is found and rescued by the Straw Hats.
+*The Sun God appears and starts pursuing the escaping Straw Hats.
+**Nami finds a blueprint of the diorama and identifies an escape route.
+**The Straw Hats force Iscat to serve as their steed.
+
+## Characters
+
+## Characters
+
+Pirate, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Nami, Usopp, Sanji, Tony Tony Chopper, Nico Robin, Franky, Brook, Jinbe, Land of Gods, Road, Hilmungardr, Muginn, Iscat

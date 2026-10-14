@@ -1,0 +1,42 @@
+# Chapter 772: Cabbage & Lomeo
+
+Volume: 77  |  Arc: Dressrosa Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_772 (CC-BY-SA)
+
+## Cover page
+
+Solo Journey of Jinbe, Knight of the Sea Vol. 18 - "Meeting the 'Umibozu', Sea God Wadatsumi: 'No Thanks Necessary'"
+
+## Short summary
+
+At the Flower fields Kyros continues his fight with Diamante while refusing to allow his daughter to fight ever again.
+
+At the third level, Sai checks on his grandfather while Baby 5 is more focused on her engagement. Meanwhile, Cavendish and Bartolomeo continue fighting against Gladius and his henchmen, but the two are less than capable of getting along with each other. Gladius blows up the area but the two are safe thanks to Bartolomeo's barriers. Robin has left her fight with Gladius to head off for Rebecca. After she escapes, Bartolomeo, happy to have been thanked by her, starts to mow down all the Donquixote members (and even Cavendish) with his ability.
+
+Dellinger then finishes his fight with Ideo while revealing his fangs. He comes to help Gladius, but is told to stay back. Just then, Dellinger is cut down by Hakuba while Bartolomeo tries to figure what is happening.
+
+## Long summary
+
+At the Sunflower Fields, Diamante and Kyros are still fighting, with Kyros having a hard time keeping his balance due to the fluttering ground. Diamante makes the connection between Kyros and the Thunder Soldier and tells his opponent that their fates are connected before targeting Rebecca with an attack. After Kyros blocks it, Rebecca says she wants to help as she is nothing more than a burden right now, but Kyros says he will never let her have to fight again.
+
+On the second floor, Zoro remarks on Sai's strength, making a note to himself to remember the Happou Navy in the event he meets them in the future, while Sai tries to wake Chinjao up and Baby 5 is dreaming of their wedding. Meanwhile on the third floor, Gladius is about to blow up the entire ground. Cavendish looks for help in Bartolomeo's barrier, and the latter lets him in eventually despite declining at first as it would be too dangerous for him and Robin. After a brief argument, Bartolomeo lets Cavendish out to keep fighting Gladius. The Donquixote officer then tries to attack Robin who is headed to the Sunflower Fields thinking it's too dangerous for Rebecca to be there, but Bartolomeo blocks him. Robin winks at Bartolomeo in gratitude, and he gets so excited that he charges at everyone with his barrier, even at Cavendish who is about to attack Gladius. By that time, Dellinger is headed for the third floor and Gladius tells him to take care of Robin as he is too busy fighting both Bartolomeo and Cavendish. He's about to do so, but he's stopped by Ideo who's still standing despite being seriously wounded. After declaring his intention to buy even the slightest amount of time for Luffy to take down Doflamingo, Ideo is finally defeated when Dellinger bites his neck with his fangs.
+
+Shortly after, Dellinger arrives at the third floor, but Gladius tells him to stay away as there is a very dangerous enemy there. Dellinger shrugs if off, only to be finished off in one slash by Cavendish, who has awakened his Hakuba personality.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*Jinbe encounters Wadatsumi again.
+*Bartolomeo reveals some new Bari Bari no Mi techniques.
+*Ideo is revealed to be from the Longarm Tribe.
+*Dellinger defeats Ideo.
+**Dellinger takes off his hat for the first time and shows his fangs.
+*Cavendish's alter personality, Hakuba, emerges and defeats Dellinger right after he ascends to the third level.
+
+## Characters
+
+## Characters
+
+Pirate, Straw Hat Pirates, Roronoa Zoro, Nico Robin, Happo Navy, Sai, Chinjao, Beautiful Pirates, Cavendish, Barto Club, Bartolomeo, Donquixote Pirates, Diamante, Pica, Dellinger, Gladius, Baby 5, Sun Pirates, Jinbe, Flying Pirates, Wadatsumi, Dressrosa, Kyros, Scarlett, Rebecca, Corrida Colosseum, Ideo

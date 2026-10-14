@@ -1,0 +1,48 @@
+# Chapter 871: You Can Do It, Caesar!!
+
+Volume: 87  |  Arc: Whole Cake Island Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_871 (CC-BY-SA)
+
+## Cover page
+
+The Stories of the Self-Proclaimed Straw Hat Grand Fleet: Vol 8, Bartolomeo Arc: "Selling Straw Hat decals and a Luffy Senpai pin badge to the baddies at a 'special' price."
+
+The Barto Club are selling Straw Hat Pirates memorabilia.
+
+## Short summary
+
+Luffy, Sanji, and the Vinsmoke Family attempt to provide protection and distraction to allow Caesar Clown a chance to escape the roof with Capone Bege. However, they are soon overwhelmed by the combined might of Charlotte Linlin and her children, leaving the alliance at her mercy.
+
+At the same time, however, Lu Feld manages to reach the Tamatebako, which had fallen onto a lower landing. However, he is soon shot by undercover CP0 agent Stussy. Feld's body, which was leaning on the box, causes the box to fall and break at the base of the castle. As a result, the bomb inside detonates and causes a huge explosion that damages the castle and causes it to collapse.
+
+## Long summary
+
+Caesar Clown, holding Capone Bege and the rest of the alliance, attempts to fly off the roof of the Whole Cake Chateau. However, Big Mom and her crew immediately kick into action, with Perospero bringing up a candy wall in an attempt to block Caesar’s escape. Ichiji, Niji, and Yonji combine their attacks to destroy the wall and allow Caesar and Bege to pass through.
+
+Meanwhile, Lu Feld spots the Tamatebako, which has fallen onto a lower landing of the Chateau. However, he is confronted by Stussy, who questions him on his intentions. Feld then slips and falls to where the Tamatebako landed. Feld is about to open the chest, but Stussy, who is revealed to be an undercover agent of CP0, shoots him with a flying Shigan. Stussy then claims that the Tamatebako will go to the World Government and orders the eavesdropping Morgans to pin the blame for the box’s disappearance on Feld. He reluctantly agrees on the condition that she lets him see the contents of the sea treasure. However, Feld's unconscious body leans on the Tamatebako, causing it to drop towards the ground below.
+
+Back on the roof, Big Mom confronts Monkey D. Luffy over his proclamation to defeat her back on Fish-Man Island. Sanji, however, prevents Luffy from directly confronting Big Mom, grabbing Luffy and telling him not to fall for her bait. Despite this, Luffy wriggles free of Sanji’s grasp and declares to Big Mom that he, not she, will become the Pirate King. He attacks her with Gear 4, stating that he will take her down after he takes down Kaidou. After blocking the attack, Big Mom declares that Luffy will never defeat him and that she will ensure he never leaves her territory. Luffy falls back and deactivates his Gear 4 as Sanji grabs him and flees. Judge then charges at Big Mom, who thrusts his spear at her while he calls her a villain for betraying the dreams of the Germa Kingdom. Big Mom stops Judge’s attack by biting off the tip of his spear, promising to make use of Germa’s scientific powers before defeating him with an attack from Zeus.
+
+In response to the sight of their father going down, Niji and Yonji abandon Caesar’s escort and rushes back towards Big Mom. A distraught Caesar encounters a further obstacle when Katakuri appears before him. Katakuri, in turn, is attacked by Ichiji, but before Caesar can use the distraction to escape, he runs into a mirrored version of himself. Brûlée manifests her face from Caesar’s mirrored body, reminding him of the score she has to settle with the alliance. With his path blocked, Caesar turns around to see a desperate scene: Katakuri holding up a blood-ridden Ichiji; Big Mom holding Niji and Yonji in each hand; an unconscious Judge; and Galette, Daifuku, and Smoothie surrounding a slumped Luffy, Sanji, and Reiju, all restrained with Galette's Devil Fruit power. Caesar and Bege bemoan that the alliance was defeated, prompting Jinbe and Pedro to prepare to charge out. A gleeful Big Mom then announces that she will carry out the alliance members’ execution.
+
+Suddenly, an enormous explosion rocks the entire Chateau. The Tamatebako, having finally reached the ground, had smashed open upon impact, triggering the bomb within. The bomb blasts apart a huge section of the Chateau’s base, rocking the entire Chateau as it tilts sideways and heads for a spectacular collapse.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*Stussy shoots Lu Feld as he was trying to open the Tamatebako.
+**Stussy is revealed to be an agent from CP0.
+*Luffy vows to defeat Big Mom after he defeats Kaidou.
+*According to Judge, the Germa Kingdom ruled over the North Blue for 66 days three-hundred years ago.
+*The Big Mom Pirates overwhelm Luffy, Sanji, and the Vinsmoke Family.
+**Big Mom is shown using Armament Haki.
+**She is also shown summoning Zeus for the first time.
+*The Tamatebako falls to the base of the Whole Cake Chateau, where it explodes after landing, causing the castle to tip over.
+
+## Characters
+
+## Characters
+
+Pirate, Straw Hat Pirates, Monkey D. Luffy, Nami, Sanji, Tony Tony Chopper, Brook, Fire Tank Pirates, Capone Bege, Vito, Gotti, Charlotte Chiffon, Capone Pez, Sun Pirates, Jinbe, Barto Club, Bartolomeo, Gambia, Big Mom Pirates, Charlotte Linlin, Charlotte Katakuri, Charlotte Smoothie, Charlotte Perospero, Charlotte Daifuku, Charlotte Oven, Charlotte Zuccotto, Charlotte Nusstorte, Charlotte Dosmarche, Charlotte Compo, Charlotte Laurin, Charlotte Mont-d'Or, Charlotte High-Fat, Charlotte Tablet, Charlotte Basans, Charlotte Dacquoise, Charlotte Kanten, Charlotte Kato, Charlotte Mobile, Charlotte Mondée, Charlotte Amande, Charlotte Hachée, Charlotte Effilée, Charlotte Custard, Charlotte Brûlée, Charlotte Broyé, Charlotte Mash, Charlotte Mozart, Charlotte Citron, Charlotte Cinnamon, Charlotte Galette, Charlotte Poire, Napoleon, Zeus, Zou, Pedro, Germa Kingdom, Vinsmoke Judge, Vinsmoke Reiju, Vinsmoke Ichiji, Vinsmoke Niji, Vinsmoke Yonji, Underworld, Lu Feld, Morgans, CP0, Stussy, Caesar Clown

@@ -1,0 +1,39 @@
+# Chapter 358: Revival
+
+Arc: Water 7 Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_358 (CC-BY-SA)
+
+## Cover page
+
+Animal Theater: The Going Merry sails through a sunny sea, surrounded by seagulls, dolphins, whales, and Sea Kings of every size and shape.
+
+## Short summary
+
+The chapter talks about the events after Tom's death and the CP9 prepare to take Franky away.
+
+## Long summary
+
+The news of the death of Cutty Flam begin to travel around Water 7, while Iceburg looks on and Kokoro begins to drink. She tells him that he is the first student of the "World's Greatest Shipwright" and he begins to leave stating that they will have to have drinks some other day. As he turns away, he states that now he will change Water 7, just as Tom did.
+
+Meanwhile, somewhere at sea, Cutty Flam's destroyed body is seen floating and, to his own surprise, he is still alive. As he thinks that he will probably die at one point, he sees a ship sailing, on which he manages to board despite the current condition he's in. Nobody is on board and it appears to be a scrapped ship filled with scrap metal. He states how calming his surroundings make him and decides the first thing he has to do is something about his useless body.
+
+Four years later at Water 7, the Galley-La Company has finally started to get on track and Iceburg had been nominated as the mayor. In an office, Kalifa is seen telling Iceburg he has a visitor who claims to be "Cutty Flam" and at that he stops his work. He quizzes Kalifa about whether he really said that to which she confirms, adding that he was wearing swimming trunks and asks whether he should be escorted to him. However, he declines this and tells her to kick him out.
+
+One night at Tom's Workers' headquarters, the pair meet up and Iceburg asks about Cutty Flam's strange appearance. At this, he explains his body had become completely useless and that he had to fix it with only scrap metal and stuff. He then shouts about how Iceburg could accept a job from the World Government despite the fact that they were the ones who killed Tom. However, he states that it was Cutty Flam who gave them the excuse by building the weapons. He continues to say that although Tom may have forgiven him, he never will.
+
+Iceburg is then seen giving Cutty Flam the blueprints for the weapon Pluton, which he recognizes straight away. Iceburg then tells him to throw away his name "Cutty Flam", as he is now dead to everyone, and get off the island with the documents. Franky then questions what would happen to Iceburg if it is discovered that he does not have the blueprints. The question is not answered and instead he states that if he had the blueprints he would not give them up even if his life depended on it. As he is about to leave, Iceburg states that he is happy that Franky is still alive despite the fact he still has not forgiven him. At this, Franky states he will not leave the island and this shocks Iceburg.
+
+It then returns to the present events where Rob Lucci tells Franky that the "Tom" they were told of had good skill but was a violent fish-man with great power. Despite this, Franky tells them that he does not care about the World Government and will not say anything. Lucci continues to explain that despite hurting so many people, his crimes were dropped due to the fact he was confirmed as dead however, he will be escorted to Enies Lobby as a criminal. Blueno then takes out a Den Den Mushi and hands it to Lucci who then hands the receiver to Franky, stating their chief wanted to speak to him immediately.
+
+Although the start of the call begins with the chief spilling coffee, he then goes on to say he could not believe that the criminal who he had thought was dead for so many years was still alive. Realizing Franky is unsure who he is, he reveals that he was the one who had arrested Tom as part of CP5, Spandam. As Franky finds out who he is, the CP9 are told to bring him as fast as possible. As they are about to leave, Usopp tells them to leave him alone before backing off after Rob Lucci's glare. It is then that Kaku recalls him being one of the Straw Hat Pirates.
+
+At the Galley-La Headquarters, fires continue to rage through the building while the workers try their hardest to put out the flames without much luck. Just then Chopper, who is in his reindeer form, comes smashing through the window carrying Paulie, Iceburg and Tyrannosaurus with one of Zoro's katana in his mouth. As he tries to make his way to heal Nami, he collapses and the carpenters all decide to help him as well as Iceburg and Paulie since he saved their lives.
+
+## Notes & trivia
+
+*This chapter's Cover Page is the first to treat the Going Merry as a character in itself, and feature absolutely no humans or any other races.
+
+## Characters
+
+Pirate, World Government, Bounty Hunter, Shipwright, Animal Species, Straw Hat Pirates, Nami, Usopp, Tony Tony Chopper, CP9, Spandam, Rob Lucci, Kaku, Kalifa, Blueno, Hattori, Franky Family, Franky, Tom's Workers, Kokoro, Galley-La Company, Iceburg, Tyrannosaurus, Paulie, Sea King, Mottled, Birdy

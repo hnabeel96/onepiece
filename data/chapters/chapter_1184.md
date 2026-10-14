@@ -1,0 +1,40 @@
+# Chapter 1184: We're All Bones When We Die
+
+Arc: Elbaph Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_1184 (CC-BY-SA)
+
+## Cover page
+
+Cover Page Request: "Brook getting electrocuted by electric jellyfish while swimming in the sea" by PN Primo D. Takashi.
+
+## Short summary
+
+As Shuri reached 14 years old, her beauty caught the attention of princes of the neighboring kingdoms. After rejecting their advances, Shuri and Brook sing "We're All Bones When We Die", a song from his childhood that reminded him of when then-Prince Reuven saved him from his troubled years.
+
+## Long summary
+
+By the time Shuri was 14 years old, tales of her beauty began to spread, which lead to five princes of nearby kingdoms to approach her asking for her hand in marriage. However, Shuri defeated all of them and announced that she does not like weak men or men who cannot play music. Brook, who was now 27 years old, talked to Shuri about her rejected suitors, which she admits with pride she beat all of them hoping he would show some interest in how strong and cute she has become, though when she mentions she hopes her chest will get bigger as she gets older, Brook tells her not to think like that because it is undignified, only for him to approach some women asking to see their panties, resulting in Shuri throwing her sword at him in annoyance. Despite that, the two would continue to spend their days singing "We're All Bones When We Die" together, Shuri saying she loves his music just as much as her parents do, something that fills Brook with pride. Shuri asks Brook if he loves her father that much, and he confirms he does, stating that if it were not for him, he would be dead by now.
+
+When Brook was eleven years old, he lived in a junkyard by himself, and would often watch other kids learn music and play instruments, though he at the time was not very popular because he lived in the junkyard and was often chased away from the institute. In the junkyard, Brook spent his days singing and playing a makeshift violin he made out of junk, sometimes singing that the king is to blame for his current circumstances. Reuven would often visit Brook in the junkyard, back when he was a prince, though Brook did not realize who he was at the time, only figuring he was a fan of his music to explain his frequent visits, something Reuven did not deny. As a sign of their newfound friendship, Brook made Reuven a stew out of grasshoppers and a frog, with some curry powder he stole from the Marine ships that come to port mixed in, which he says will make anything taste like curry regardless of the ingredients. As he took the bowl, Reuven thought about his fancier meals, which were very small, and how he was introduced to a prestigious woman, no doubt meant to be taken as a wife. He did get snapped out of his thoughts by Brook and ate it, though it seemed to taste terrible. Still, he offered to pay Brook for his generosity, but Brook told him not to bother as they were friends. After that, the two would spend more time hanging out and playing music together. 
+
+One day, Brook was captured by some marines who started beating him up in an interrogation, as they assumed he was in league with gangsters to hide drugs that they were going to sell to said marines, only to find him with nothing but curry powder. Despite Brook protesting his innocence, the marines refused to believe him and planned to kill him so he doesn't tell anyone what they did to him. Believing his time was nearing, Brook continued to sing while waiting for the inevitable, but thankfully, Reuven arrived on the scene along with the rest of the Battle Convoy, though the marines call him a "prince", which Brook overhears. The rest of the convoy ask Reuven to stand back and let them handle the situation, but Reuven refuses, as he can not forgive the crooked marines for hurting his friend. The marines then overhear a report delivered to Reuven that the gangsters, who were from the Moulon Family, were captured, along with their real courier, thus proving Brook's innocence, but the convoy members warn Reuven that the marines are still backed by the World Government, which will lead to trouble between Esperia and the organization. Reuven, however, says he does not care as he believes the government supporting corrupt soldiers is a sign the world is coming to an end. The marines beg to be spared, but Reuven ignores them and labels them as trash, taking them down alongside Candelle. 
+
+Brook wakes up at the palace with his injuries tended to and with Reuven by his bedside, where he expresses relief he is okay and apologizes for not telling him he was a prince before, saying he was just having too much fun with him to potentially ruin it with the truth. Candel reveals that every time Reuven left the castle, the convoy went into a panic to try and find him, but she never guessed he was hanging out with someone like him, who she calls adorable, to Brook's delight. Reuven then announced that he was going to take Brook into the palace and make him his personal musician, with the promise of providing him an actual bed, instruments to play, and a spot at their school, wholeheartedly confident he will one day become a star of their kingdom and liven up the palace. Hearing this, Brook tears up at Reuven's kindness, thereby explaining how he became his benefactor.
+
+## Notes & trivia
+
+## Chapter Notes
+
+* By the time Princess Shuri reached 14 years of age, her beauty was renowned enough that she was proposed to by princes of the neighboring kingdoms, all of whom she rejected.
+* Brook hangs out with Shuri and later reveals how he was saved by King Reuven during his childhood.
+** When Brook was 11-year old, he was a poor boy who dreamt of learning how to play music, but was shunned by the community because of his status.
+** Brook met and befriended then-Prince Reuven, who disguised himself as a commoner to learn more about the life of his subjects.
+** One day, Brook was kidnapped and beaten by the Marines who mistakenly believed that he was the courier of the Moulon Family. He was then later saved by Reuven and his then-bodyguard Candelle, who defeated the Marines with ease.
+** In the aftermath, Brook was taken to the Esperia Palace by Reuven, who gave him a chance to train his combat and musical skills.
+
+## Characters
+
+## Characters
+
+Esperia Kingdom, Reuven, Candelle, Manmayer Gunko, Brook

@@ -1,0 +1,45 @@
+# Chapter 213: VIP
+
+Volume: 23  |  Arc: Arabasta Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_213 (CC-BY-SA)
+
+## Cover page
+
+Color Spread: "Boo. Paratroops."
+
+Lunching on a sunny seaside rooftop, the Straw Hat Pirates find themselves invaded by a company of food-stealing seagulls and parachuting pigs.
+
+(The "Boo" appears to be a pun on its meaning of surprise in English and its meaning of a pig's  in Japanese.)
+
+## Short summary
+
+While they wait for Luffy to wake up, the Straw Hat Pirates enjoy the city, protected by Arabasta royal guards from Marine inquiries. Once their captain opens his eyes and asks for food, a huge banquet is offered to the kingdom's saviors, where royal etiquette can be forgotten.
+
+After a final rest in the royal bath house, where they receive formal thanks from King Cobra, the Straw Hats decide that it is time to leave. Meanwhile, Igaram and Chaka received two new bounty posters. Luffy and Zoro have received new bounties. Luffy's bounty is raised to 100,000,000 and Zoro has issued his first bounty, which is 60,000,000.
+
+## Long summary
+
+Chopper has awoken from his rest and taken medical care of the Straw Hat Pirates, much to the astonishment of one of the Royal Palace's doctors. He praises Chopper further after Nefertari Vivi mentions that he hails from Drum Kingdom (known for their doctors), stating that after 40 years as a doctor, he has seen nothing like it. Chopper handles the praise in vintage fashion by humbly accepting it but yelling at them to stop at the same time, even pulling up a chair for the doctor to sit next to him. Vivi looks on with a smile as she continues to assist. 
+
+The people of the city have begun to rebuild after the war. Sanji and Usopp walk the streets, restocking on necessary supplies, as Usopp comments on how strong the people are. As they reach the area of town decimated by the encounter between Commodore Smoker, Portgas D. Ace, and Monkey D. Luffy, Sanji notices something. 
+
+In another area, Zoro has already started training again. He believes that he cannot consider himself stronger if he cannot draw upon the power he used to defeat Mr. 1 at will. Nami is browsing Nefertari Cobra's personal book collection, as he is letting her keep all of them. At the entrance to the palace, Chaka is arguing with the Marines over harboring pirates, ironically just as Sanji and Usopp are returning. He asks them if they've gotten everything they need, and then comically returns to arguing with the Marines, asking if they can prove the pirates are actually there. Sanji and Usopp comment that it's going to get really loud when "he" wakes up. 
+
+Sure enough, Luffy awakens in a roar, wondering where his hat and breakfast are. Vivi commends Luffy for his high spirits, and he tells her that he is like this all the time. However, Nami reminds him of just how serious his condition was, and he thanks them for their care. Just as he does, Zoro returns from his training, inciting Chopper's anger. Zoro tries to brush off the medical risk as his own problem, to which Chopper asserts his position as the ship's doctor, reminding him that he said not to take off his bandages. Zoro retorts that the bandages make it hard to move, and Chopper angrily replies that the bandages are there so he doesn't move. Luffy is incredibly shocked to find out that he'd slept for 3 whole days, equating this to 15 meals (5 a day, as Usopp points out). Vivi assures Luffy that she's had dinner prepared, and as she does, Igaram's wife, Terracotta, enters to confirm that dinner will be ready in half an hour. However, her striking resemblance to Igaram himself confuses both Luffy and Zoro, causing the latter to actually ask her if she's a cross-dresser. After Vivi clarifies that she is the palace's Head Servant, Terracotta continues on to explain that she has heard that Luffy eats a lot before dinner and provides him with fruit in the meantime. Luffy warns her of his appetite, but she assures Luffy that she has worked at the palace for 30 years and will not disappoint. 
+
+At the dinner in the Royal Palace, Luffy has consumed his food so fast that the servers are struggling to keep up, and he has actually begun eating everyone else's food. This, in turn, causes them to try to eat their own food faster, and chaos ensues. Usopp gets Luffy to eat an extremely hot pepper and laughs at his anguish, but when Matsuge joins in, he wonders how the camel got there. While the palace guards are visibly annoyed by the unprecedented commotion at the dinner table, they are pleased to see Princess Vivi enjoying herself after all that she has been through. The antics eventually win them over as well, and they too join the laughter and happiness the occasion brings. 
+
+The crew enters the bathhouses (separated by gender) afterwards. Luffy and Usopp fall and hit their heads, trying to see who can get to the bath first. As Zoro helps bathe Chopper, Luffy and Usopp pretend to spar with each other, apparently in an attempt to mock Zoro. However, Zoro notices that they are completely naked as they're doing this and asks what they're doing. Sanji asks Igaram where the girl's baths are. Igaram is infuriated, and he refuses to answer the question, but Cobra tells them anyway, prompting more anger from him. Nami and Vivi are bathing together, and as they switch to each other's backs, they catch the guys, except Zoro, peeping over the wall. Vivi is appalled, but Nami isn't surprised in the least, even charging them all 100,000 a piece. 
+
+As Nami and Vivi continue their bath, Nami tells her that they are thinking of leaving Arabasta that night. Now that Luffy has fully recovered, they no longer have a reason to stay. Furthermore, the Marines are guarding the coast, and the Going Merry will be in danger. On Cobra's side, he thanks the crew for their help with the country (though the guys initially think it's for the peeping). Cobra then bows before the Straw Hats to thank them again, much to their shock. Igaram tells Cobra that he should not bow as a king, but Cobra tells him that status exists with their clothing, and as naked men in the bath, there is no king. Cobra clarifies that he is thanking the crew as a father, with a citizen's heart. 
+
+As the Straw Hats regroup in their room later, they discuss leaving that night. The decision is given to Luffy, but he says that they should have another meal in Arabasta before they go, earning him a beatdown from the crew. In another room, Chaka and Igaram are discussing an extremely important turn of events as bounty posters sit on the table. These posters are revealed to be Luffy and Zoro's: Luffy's bounty has increased to 100 million, while Zoro has gained his first, of 60 million. Igaram wonders if there is any escape for Luffy after having defeated one of the Seven Warlords of the Sea.
+
+## Notes & trivia
+
+*The events of the third chapter of Shokugeki no Sanji occur parallel to this chapter.
+
+## Characters
+
+Pirate, Animal Species, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Nami, Usopp, Sanji, Tony Tony Chopper, Arabasta, Nefertari Cobra, Nefertari Vivi, Igaram, Chaka, Terracotta, Ho, Animal Species/Arabasta Saga, Karoo, Matsuge

@@ -1,0 +1,59 @@
+# Chapter 718: Riku Royal Army on the Flower Hill
+
+Volume: 72  |  Arc: Dressrosa Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_718 (CC-BY-SA)
+
+## Cover page
+
+Caribou's Kehihihihi in the New World Vol. 35 - "A Warship on the Shore!!".
+
+## Short summary
+
+Usopp, Robin and their dwarf allies are preparing for battle with the Donquixote Pirates to rescue their 500 captured dwarf comrades. As they leave, Gancho reveals to the two that the dwarves' past with Dressrosa began over 900 years ago.
+
+Meanwhile in Dressrosa there exists a field of sunflowers and below the field, Thunder Soldier and Franky are rallying several toys and it is revealed they are in an alliance with the dwarves. Franky also discovers that Zoro is there as well and that he is watching the C block battle royale fight between Luffy and Don Chinjao.
+
+Elsewhere back at the Sunny Nami is fending off Giolla but finds her Clima Tact turned into a yet another piece of art as Giolla reveals that she ate the Ato Ato no Mi and became an art human. At Green Bit the fight between Doflamingo and Law is still going but Law is barely able to keep up with Doflamingo's might.
+
+Back at the Corrida Colosseum Jesus Burgess approaches Bartolomeo and Cavendish, wondering who is "the little runt" just as Luffy unleashes a Gomu Gomu no Hawk Rifle into Chinjao's midsection causing him to cough blood.
+
+## Long summary
+
+In the beginning, beneath the Green Bit where lies the Tontatta Kingdom, Leo tells Usopp that there's a subterranean way that connects Green Bit and Dressrosa which they would use as their way of transportation. The dwarf then brings Usopp and Robin to the kingdom's airport, Tontatta Airline (TAL). Both Usopp and Nico Robin are impressed by whole airport system and its transport, which appears to be rideable insects and animals. Kabu and Bian appear, saying that they are ready to take off and that Leo was late. Kabu is revealed to be the Yellow Kabu Squad Leader and the user of Mushi Mushi no Mi, Model: Kabutomushi, allowing him to transform into a rhinoceros beetle. Bian is revealed to be the Pink Bee Squad Leader and the user of Mushi Mushi no Mi, Model: Suzumebachi, allowing her to transform into a hornet. While Usopp seems to be fascinated by the kingdom's insect transport (wishing to show them to Luffy too), Kabu and Bian comments that Usopp and Robin are too big, so the two of them have to ride the Linear Foxes that generally are able to hold 20 dwarves and runs very fast. Usopp comments that the ride makes him feel like a royalty while Robin comments that the foxes' fur is very beautiful. Leo shouts that with the great Usoland by their side, they shall rescue their fellow dwarves.
+
+While they are heading forward, Usopp and Robin suddenly hear a voice. It turns out to be chief Gancho, who came out of Robin's breasts, only to be scolded by Usopp. Gancho says that there was a thing he didn't clarify yet. He first expressed his gratitude for Usopp and Robin's help and he told them that the history between the dwarves and the Donquixote Family started not ten years ago, but dates back even to 900 years ago.
+
+The scene switches to Dressrosa, where beneath a field of sunflowers lays a Dwarf Army, called the Riku Royal Army (or the Anti-Doflamingo Army) led by the Thunder Soldier. He introduces Franky to his brothers-in-arms, the dwarves, who thought of Franky as a strong-looking toy and great aid to the incoming war. Franky appears totally confused by the concept of the dwarves, and Thunderous Soldier of Rage explains to Franky that the dwarves' strength won't lose to his, and with their blinding speed, they are known by the Dressrosa citizens as fairies. Franky is surprised to understand that the ones who took Zoro's sword were actually the dwarves, but he quickly gets distracted by Wicca who screams to Zoro, who is already there and is watching the tournament. Zoro is angry that Luffy didn't bring him along, claiming that his swords are just itching to fight. Wicca is surprised to see her commander and Zoro greets Franky nonchalantly, then the cyborg himself scolds Zoro for what the hell he is doing there. Three dwarves report to the soldiers that the enemy's movements as well as those of "Sugar" have been identified.
+
+One of the dwarves reports that two Legendary Heroes have arrived, namely Robiland and Usoland, and he says they are heading over there right now. He states that they have other friends, who are Luffyland, Zoroland, Namiland, Sanland, Chopperland, Fraland and Bonesland. Zoro and Franky thinks to themselves that it is definitely Usopp who is able to tell such lies. The two of them then tell the dwarves that they are Zoroland and Fraland respectively, and the dwarves appears to be amazed by it. Zoro suddenly realize that it is not the time for him to be with the dwarves, and that he must go back to Sunny to save Nami and the others. Wicca says that that was what she was trying to tell him all along.
+
+The scene switches to the Thousand Sunny, where Nami is fighting against Giolla, but clearly she is on the losing side. She tries to release a Weather Egg to produce snow clouds, but her Clima-Tact is transformed into a useless object. Nami seems disgusted by the new form of her weapon, calling it a "toy". Giolla angrily asks Nami who she is calling a supermodel, to which Nami replies that she never did. Giolla proceeds to explain that her power is not to turn things into toys, although there is someone like that in the family. She explained that she has eaten the Ato Ato no Mi, which made her an Art Human and allows her to turn things into works of art. On the other side, Chopper's horns have been turned into wings and his hooves into rabbits, rendering him useless. Momonosuke says that they want to capture him, and Brook answers that he would never surrender the boy, but even his Soul Solid has been transformed into art. Giolla yells at the remaining pirates to stop acting like a victim and be happy to be turned into an art, despite being angry later that her crews and submarine are badly damaged. Giolla proceeds to ask them which type of Artistic Death Penalty they want to repay her with and a Den Den Mushi starts ringing in the background. Chopper answers the Den Den Mushi: it's Law calling. While Chopper immediately asks Law for help, Law ignores him and orders the crew to reach Green Bit, where he will give them Caesar. After that, he cuts the call. Nami comments that the guy is almost as reckless as Luffy, doing whatever he wants and not listening to anybody.
+
+On Green Bit's surface, Doflamingo appears to cut numerous stones and asks a tired Law who he just called, and tells him that he should return Caesar's heart, claiming it is meaningless for him to stay there and buying some time. Also he is informing Law that Luffy fell right into his trap. He says that Luffy is having a lot of fun in the tournament full with the strongest people (mainly outlaws), but the ones who lose in it will fall straight to hell and will never make it out of the tournament. Doflamingo exclaims that their alliance is finished.
+
+Outside of the Colosseum, Kin'emon is cheering for Luffy, resulting him to be scolded by Sanji. Kin'emon replies him with his belief that a man must be cheered in order for him to win.
+
+In the colosseum balcony, Burgess joins Bartolomeo and Cavendish who were spectating the fight of the block C. He comments that the fight has gotten very interesting, while wondering who is the little runt that's fighting in the arena. Luffy finally makes a move and hits Chinjao with a Gomu Gomu no Hawk Rifle on his stomach. The crowd seems to cheer for him while Chinjao appears to cough some blood from the said attack.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*There is an underground corridor connecting Green Bit and Dressrosa, in which Usopp, Robin, and the dwarves will move through.
+*Kabu, along with the newly introduced Bian, are both Zoan Devil Fruit users:
+**Kabu ate the Mushi Mushi no Mi, Model: Kabutomushi‎.
+**Bian ate the Mushi Mushi no Mi, Model: Suzumebachi‎.
+*The dwarves' history with Dressrosa goes back 900 years.
+*Zoro, Franky, and Thunder Soldier meets up with the dwarves on the Flower Hill.
+*Thunder Soldier is a commander of the Riku Royal Army.
+*Giolla is revealed to have eaten the Ato Ato no Mi.
+*Law orders Chopper to take the Sunny to Green Bit so he can hand Caesar to him.
+*Law is being overwhelmed by Doflamingo.
+*Luffy has delivered a devastating attack to Chinjao.
+
+## Characters
+
+## Characters
+
+Pirate, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Nami, Usopp, Sanji, Tony Tony Chopper, Nico Robin, Franky, Brook, Heart Pirates, Trafalgar D. Water Law, Donquixote Pirates, Donquixote Doflamingo, Giolla, Beautiful Pirates, Cavendish, Barto Club, Bartolomeo, Blackbeard Pirates, Jesus Burgess, Scotch, Wano Country, Kin'emon, Kouzuki Momonosuke, Kano Country, Chinjao, Dressrosa, Kyros, Gatz, Baburu, Tontatta Kingdom, Gancho, Leo, Bomba, Rampo, Kabu, Bian, Flapper, Wicca, Inhel, Cotton, Baxcon

@@ -1,0 +1,77 @@
+{{Chapter Box
+| title = Introducing Ace
+| image = 
+| jname = エース登場
+| rname = Ēsu Tōjō
+| ename = Ace Arrives
+}}
+
+'''Chapter 157''' is titled "Introducing Ace".
+
+==Cover Page==
+[[Jango's Dance Paradise]], Vol. 24: "The Hostage Girl".
+
+To [[Fullbody]]'s dismay, the [[Tulip Pirates]] take a female civilian hostage.
+
+==Short Summary==
+[[Portgas D. Ace|Ace]] is introduced and [[Smoker]] appears to be in [[Arabasta]].
+
+==Long Summary==
+After days of privation, the crew are finally reaching [[Arabasta]]. Before approaching, they prepare a countermeasure against Mr. 2's power by wearing a sign of friendship on their arm. In the port of [[Nanohana]] in Arabasta, a group of people are intrigued by an unconscious guy in a restaurant. This strange guy who fell asleep while eating is no other than [[Portgas D. Ace]], [[Edward Newgate|Whitebeard]]'s second division commander. This is revealed by an old adversary: [[Smoker]], who also appears to be in town in the search for the [[Straw Hat Pirates]]. Ace is looking for his little brother.
+
+==Quick Reference==
+===Chapter Notes===
+*[[Smoker]] arrives on [[Arabasta]].
+*The [[Whitebeard Pirates]] are first mentioned.
+*[[Portgas D. Ace|Ace]] is the 2nd division commander of the Whitebeard Pirates.
+*Ace's tattoo on his back represents [[Edward Newgate|Whitebeard]]'s flag.
+*Usopp tells a lie about fighting sea monsters (or Sea Kings) on the Calm Belt.
+
+===Characters===
+{| class="CharTable"
+! [[Pirate]]s
+! [[Marines]]
+! Citizens
+! [[Animal Species/Arabasta Saga#Arabasta|Animals]]
+|-
+|
+;[[Straw Hat Pirates]]
+*[[Monkey D. Luffy]]
+*[[Roronoa Zoro]]
+*[[Nami]]
+*[[Usopp]]
+*[[Sanji]]
+*[[Tony Tony Chopper]]
+----
+;[[Whitebeard Pirates]]
+*[[Portgas D. Ace]]
+----
+;[[Tulip Pirates]]
+*[[Yurikah]] ''(cover)''
+|
+;[[Captain (Marine Rank)|Captain]]
+*[[Smoker]]
+----
+;[[Marine Ranks#Lieutenant|Lieutenant]]
+*[[Fullbody]] ''(cover)''
+----
+;[[Marine Ranks#Master Chief Petty Officer|Master Chief Petty Officer]]
+*[[Tashigi]]
+----
+;[[Marine Ranks#Chief Petty Officer|Chief Petty Officer]]
+*[[Mashikaku]]
+|
+;[[Arabasta]]
+*[[Nefertari Vivi]]
+*[[Karoo]]
+*[[Yoshimoto]]
+|
+*[[Sea Beast#Sea Cat|Sea Cat]]
+|}
+
+
+==Site Navigation==
+{{Arabasta Arc}}
+{{Jango's Dance Paradise}}
+[[ca:Capítol 157]]
+[[it:Capitolo 157]]

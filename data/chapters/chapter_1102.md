@@ -1,0 +1,49 @@
+# Chapter 1102: Kuma's Life
+
+Volume: 109  |  Arc: Egghead Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_1102 (CC-BY-SA)
+
+## Cover page
+
+Cover Page Request: "Bonney eating hot dog after hot dog being painstakingly prepared by ravenous wolves." by PN Toshika Zoo.
+
+## Short summary
+
+As Bonney begins her career as a pirate with the intention of finding her father, Kuma hears of Luffy's exploits and realizes he is Dragon's son. As Kuma encounters the Straw Hat Pirates at both Thriller Bark and later Sabaody Archipelago, it is revealed the reason he separated the crew was because he knew they were not ready for the dangers of the New World, and he knows one day Luffy would save the world. 
+
+As Kuma begins the operation to have his memories removed, he creates a bubble containing his memories. However, as Kuma warned Vegapunk, when Bonney touched it, two years later, the bubble disappeared which left Bonney in tears when it happened.
+
+## Long summary
+
+The newly formed Bonney Pirates sail to an island where they believe Kuma is. They are attacked by the Marines, who believe they are an evil bunch due to reports that towns they attacked were filled with injured children and seniors, who were actually people who had their ages altered by Bonney’s powers. Kuma, who was in fact on the island, overhears Bonney trying to find him but knows he cannot make contact with her for her sake, though he never expected her to become a pirate. After he leaves, the Bonney Pirates continue sailing in search of him, but Bonney says they can take their time because she wants to find Nika as well, imagining how happy Kuma would be if he found him.
+
+Meanwhile, news of Luffy’s victory over the Arlong Pirates started to spread and his first bounty poster started circulating. This prompted Dragon to make his way to Loguetown after learning that Smoker was in charge of that area, and Ace informed Jinbe of Luffy, the latter of which was surprised to see he took down Arlong. Kuma also sees Luffy’s poster and muses how both his and Dragon’s kids have become pirates. As for Bonney, she tells her crew that they will only steal from bad people and will ignore cries for help unless they really need it. Bonney puts lipstick on declaring herself a grown up, and an anti-eyebrow where her Sapphire Scale stones used to be, thinking it will make it easier for Kuma to recognize her, and she will make a name for herself in order to get his attention.
+
+On Egghead, Kuma sees the Pacifista clones of himself and calls it unsettling, but Dr. Vegapunk says their creation is going as smoothly as Kuma’s own modifications. Kuma tells Vegapunk about Luffy, which surprises him that Dragon has a son, and Kuma says Luffy’s declaration of war against the World Government at Enies Lobby reminds him of Nika, especially since Luffy has rubber powers. Later, Kuma goes to Thriller Bark and confronts the Straw Hats after Moria’s defeat to capture Luffy, though he chooses to leave him after seeing the loyalty of his crew.
+
+After that, Kuma sails to Sabaody Archipelago where he is notified about the upcoming execution of Ace and the war with Whitebeard, with Kuma saying he will be there. However, he briefly sees Bonney eating in a restaurant and says to himself that this is the last time he will ever see her face before he loses his free will. He is then notified of someone attacking a World Noble at the Human Auctioning House and is shocked to learn someone would dare do such a thing, especially when they were so close to Marine Headquarters. When he arrives on the scene, he becomes especially surprised to see that the culprit was none other than Luffy in response to his defense of Hachi. When he confronts them later and separates them, in his mind he apologizes to Dragon and Ivankov for leaving like he did but he feels he can leave his own quiet mark on the world through Luffy and Bonney. When Luffy yells that he could not save his crew, Kuma says in his mind that he is wrong; Kuma is separating them because he knows Luffy and his crew are not ready to tackle the New World yet and they need to get stronger first, eventually declaring Luffy to be the one who will someday save the world.
+
+Back on Egghead, Vegapunk is outraged by Saturn’s order to install a self-destruct mechanism in Kuma if he ever goes rogue outside of the Five Elders' presence, but he is unable to go against his orders. Instead, Vegapunk pleads to let him keep a bit of his ego intact, even stating he invented something that can give one a split personality of sorts. Saturn, however, coldly orders that Kuma must lose all of his free will, even threatening to punish Vegapunk if he discovers he disobeyed him, since he is a scientist himself. When Vegapunk said this meant that Kuma would never be able to reunite with his daughter, Kuma stated it was good to know how Vegapunk felt; this caused shock in Vegapunk as he did not mean for the warlord to hear that, while Kuma remined him that it was he who gave him superhuman hearing. As Vegapunk gets Kuma ready for the operation, Kuma thanks Dr. Vegapunk for being so concerned for him, and in turn, Vegapunk tells Kuma he had fun knowing him these past two years. Kuma asks Vegapunk to program him to protect the Thousand Sunny after the war with Whitebeard ends until one of them returns, calling it a compromise to being unable to see them grow anymore. Vegapunk asks what he has planned for Luffy and Kuma says that his actions remind him of Nika, and he believes he can change the seas for the better.
+
+Before the operation, Vegapunk asks Kuma to push out his memories to study, to which Kuma agrees. He explains that the bubble is a copy of his memories, but it will disappear when it is touched. Vegapunk tells him that he has a contraption that will preserve the bubble and allow him to study it without disturbing it. As Kuma thinks about all of the people in his life and wonders if he caused anyone harm with his actions, but Vegapunk, who is drenched in tears, tells him that his life didn’t trouble anyone, but his “death” will hurt all who love him. He calls Kuma a hero to everyone who met him, and Kuma thanks him for it.
+
+Before the modifications are complete, Kuma thanks Dr. Vegapunk for saving Bonney’s life and if he ever sees her again, to wish her a happy tenth birthday for him. Returning to the present, it is shown that Bonney was able to see everything from the copy of Kuma’s memory bubble which has now disappeared like he said, and has completely broken down in tears.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*Kuma's perspective is shown through multiple past events he was involved with, such as his fights with the Straw Hats in Thriller Bark and the Sabaody Archipelago.
+**Kuma was around the Human Auctioning House during the Celestial Dragon Hit-and-Run Incident, spying on the event's ongoings.
+**He was also around the restaurant where Bonney made her series' debut, observing her from the outside.
+*The moment Vegapunk erases Kuma's mind is shown.
+**Before the process, Jaygarcia Saturn ordered Vegapunk to install a self-destruct mechanism on Kuma as a failsafe, much to Vegapunk's protest.
+***Vegapunk requested to have some of Kuma's mind preserved though an untested neural technology he had invented, but Saturn vetoed the idea.
+**According to Kuma, the memory bubble he had given to Vegapunk for studying purposes would vanish the moment someone touched it, something that would happen through Bonney two years later.
+
+## Characters
+
+## Characters
+
+Pirate, World Government, Revolutionary Army, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Nami, Usopp, Sanji, Tony Tony Chopper, Nico Robin, Franky, Brook, Bonney Pirates, Jewelry Bonney, Gyogyo, Totts, Potato, Part, Whitebeard Pirates, Portgas D. Ace, Egghead, Vegapunk, Sentomaru, Sorbet Kingdom, Clapp, Fish-Man Island, Camie, Hatchan, Sabaody Archipelago, Silvers Rayleigh, Five Elders, Jaygarcia Saturn, World Noble, Charlos, Rosward, Marines, Borsalino, Smoker, Seven Warlords of the Sea, Bartholomew Kuma, Jinbe, Pacifista, Monkey D. Dragon, Sabo, Emporio Ivankov, Ginny, Terry Gilteo

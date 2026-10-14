@@ -1,0 +1,23 @@
+# Chapter 260: Pirate Luffy vs. Berserker Wyper
+
+Volume: 28  |  Arc: Skypiea Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_260 (CC-BY-SA)
+
+## Cover page
+
+Color Spread: Beneath a clocktower, the Straw Hat Pirates—all in Mafia-esque clothing—look over the spoils of their latest heist.
+
+## Short summary
+
+Enel electrocutes Usopp. Luffy continues to fight Wyper.
+
+## Long summary
+
+Usopp is in dire panic over Sanji's condition, cursing Enel for killing him. He cries profusely that Chopper is not there and he does not feel a heartbeat. Nami implores him to calm down, as his hand is on the right side of Sanji's chest, and his heart is on the left. Usopp's face comically goes deadpan as he realizes his mistake, and he is happy as he finally hears a heartbeat. Nami however reminds him that he's still badly hurt and can die, causing Usopp to panic all over again as Gan Fall watches speechless from their antics. Enel has heard enough of Usopp's frenzied emotions, and eliminates the sniper with a single touch to the forehead. His body falls to the ground smoking as if burned to a crisp, just like Sanji. Nami gasps and Gan Fall grows angry at Enel's actions, as he warns Nami to keep quiet if she does not want to end up like him. She fearfully holds in a yelp in compliance, and wonders just who he is and what he did to Usopp and Sanji. Gan Fall angrily asks Enel just what he is plotting. Enel replies that Gan Fall's followers have been working for him for 6 years, and they are almost done. In other words, he will soon no longer have any reason to be on this island, and he says he simply came to say farewell. Enel comments that it should make his people happy, since they cherish vearth so much. Gan Fall asks him to elaborate, and Enel replies that the reason he came to Skypiea in the first place was the same reason as the Straw Hats, and why the Shandia are trying to reclaim their land. They are all after the same thing: the legendary "Golden City," the lost city of Shandora. Gan Fall inquires about the gold, and Enel replies that it always cracks him up how clueless the people of Skypiea are about gold. He concludes that the winner of the survival game will be the rightful owner of the gold, and as a participant in the game himself, he must go. Gan Fall tries to ask him about his plans with God's Army before he leaves, but he replies that is something only "God" can know, and disappears in a flash. Just as Enel leaves, Nami and Gan Fall receive two new visitors aboard the Going Merry.
+
+In the forests of Upper Yard, Luffy and Wyper's battle has begun. Luffy reverts to his regular size (from Gomu Gomu no Fusen) as he has deflected another blast from Wyper's bazooka. Luffy tells him to stop as it is useless, and Wyper concurs that it is time to change strategy. Wyper loads a breath dial into his bazooka, and fires a blast of compressed air at Luffy. When Luffy comments on the smell, Wyper informs him that it was gas that came out of the breath dial, and introduces a new variation of his weapon, the burn bazooka. He explains that it emits white flames to disintegrate his enemies, and fires a blast from it so powerful that it blows a gigantic hole through the tree behind Luffy. He just barely manages to get out of harm's way, and is incredibly shocked at the power of the blast. When Luffy regains his senses, Wyper has disappeared, but comes back with a kick to the side of Luffy's head. Luffy catches his fall by placing his hand on the ground, and uses the momentum to spin into a Gomu Gomu no Pistol. Wyper manages to evade, and creates distance between himself and Luffy by kicking off of his outstretched fist. He prepares another bazooka blast but Luffy springs from the tree below towards him before gets the chance. Luffy attempts to kick him with Gomu Gomu no Stamp, but Wyper blocks Luffy's foot with his own (jet ski). Luffy tries Stamp a few more times with Wyper blocking the exact same way. Wyper fires another blast from the burn bazooka, and Luffy somersaults away. He grabs a nearby tree branch and swings back toward the Shandia, saying that he will not lose in a "bazooka" competition. He prepares the Gomu Gomu no Bazooka, and as he closes in Wyper readies another shot. The two techniques hit their targets simultaneously, sending both Luffy and Wyper flying back. They both land hard against a tree, having taken a surprising amount of damage. This deters neither of them from preparing to get back to their feet, as they both seem eager to continue.
+
+## Characters
+
+Pirate, Sky Island, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Nami, Usopp, Sanji, Tony Tony Chopper, Nico Robin, God's Army, Enel, Hotori and Kotori, Skypiea, Gan Fall, Pierre, Shandia, Wyper

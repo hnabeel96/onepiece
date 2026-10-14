@@ -1,0 +1,46 @@
+# Chapter 1179: Nerona Imu Descends
+
+Arc: Elbaph Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_1179 (CC-BY-SA)
+
+## Cover page
+
+Cover Page Request: "Ace and O-Tama and Yamato leading boar piglets on a hike down a wetlands path!!" by Naoyama Wants to Travel
+
+## Short summary
+
+The Five Elders have great unease about Imu going down to the surface world, but the ruler sees no other choice given the machinations of history. As the Straw Hats collect themselves following their subjugation of the Knights of God, they witness Imu arriving at Aurust Castle, with the Abyss surrounding it with large black flames and bringing the trees and buildings to life. Using the power Akuma no Mi, Imu heads to the castle roof as he is revealed to be Nerona Imu, one of the First Twenty and the King of the World.
+
+## Long summary
+
+The Five Elders realize Imu plans on going to Elbaph by himself and try to convince him not to, but Garling walks in and chides them for their arrogance in assuming the Holy Land will remain secure, admitting that while Shamrock's return has stabilized the current situation, the Revolutionary Army's starvation tactic is working and they were fools to think it would not. Instead of maintaining their pride and dignity, they need the most powerful military they can create to keep the world under their control, but his conversation is interrupted by York, who calls to complain about the lack of food. Garling reminds her that he warned her about the situation, and if she wants it to stop, she needs to hurry up and reproduce the Mother Flame. York continues to complain, but Garling tells her that as one of Dr. Vegapunk's creations, she needs to take responsibility for his actions before hanging up.
+
+Garling says that ever since "Nika" showed up, Mary Geoise has been plagued with constant disaster, and wonders if this is an act of fate or mere coincidence. Regardless, the Elders try to change Imu's mind, suggesting they send an Admiral instead, but Nusjuro says they cannot with what trouble they currently have. Warcury then suggests they themselves go, but Imu denies this, saying they must cast away their arrogance, sloth, and pride, for everything that is happening was already set in motion. All the while, he thinks about Rocks' promise to return, Roger's execution, Shanks' theft of the Gomu Gomu no Mi, Shirahoshi's birth, the knowledge of Loki's Devil Fruit, and the existence of Monkey D. Luffy and Blackbeard. Imu demands to know why "Joy Boy" and "Davy Jones" continue to make him suffer since all he wants is Vivi, as he proceeds to prepare an Abyss to travel to Elbaph. Garling says they cannot stop him, which the other four elders reluctantly acknowledge.
+
+In Elbaph, Gerd brings Sommers, who is cut in half and restrained with rope, and shows how his separated parts are trying to link together to Hajrudin, calling it creepy. Goldberg shows Sommers' heart, which is made of steel, and Zoro wonders if destroying it will kill Sommers for good, which scares him. At the Owl Library, Franky looks after the unconscious Usopp and Brook while Jinbe tries looking for Chopper. Killingham is also tied up and his parts hanging from a tree by Sanji. Killingham angrily tells Sanji that he will remember his name, and demands him remembering his, but Sanji says he forgot. As for Gunko, the ice she is incased in starts to crack.
+
+Meanwhile, Loki, Luffy, and Ragnir go to the Walrus School to get some food and are surprised that it is frozen by Lilith's invention. Loki complains that the frozen food tastes bad but the trio ate it anyways. Luffy, despite his withered state, tries to get food to Usopp and Brook, to which Loki quips that Luffy should've recover himself first. Luffy asks Loki if Gunko is dead in the ice, and he explains that she is not, but only Ragnir can thaw the ice she is stuck in.
+
+Off in the distance, Nami sees something, and in an instant, a five pillars of black energy erupts above Aurust Castle, creating an Abyss Circle above it. The energy emitted brings the nearby houses and trees to life as they start making noise. Then, the sixth pillar of black energy then appears straight in the middle of the castle, unleashing a wave of Supreme King Haki that knocks out several people. Imu appears at the summoning spot inside the throne room, falls to his knees and coughs up blood. Imu then transforms as he screams in great pain, resulting in an explosion through the roof of the castle, to everyone, even Sommers' and Killingham's, shock.
+
+As Imu sits on top of castle, finally shown in his full form, it is revealed that Imu is in fact, Nerona Imu; one of the First Twenty and founder of the World Government, and possessing the power of the Akuma no Mi.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*The situation in Mary Geoise was stabilized by Figarland Shamrock's return but the Revolutionary Army's food blockade is still active.
+**York has a lab in Mary Geoise and is continuing work on the Mother Flame.
+*Imu travels to Aurust Castle via an enormous Abyss that emanates Supreme King Haki.
+**Surrounding buildings and trees come alive and manifest demonic faces.
+**This process cause Imu to fall to his knees and cough up blood.
+*Sommers' heart is discovered to be made of steel, with Zoro theorizing that destroying it could permanently kill Sommers, a notion that visibly frightens Sommers.
+*Loki confirms that Gunko is alive and claims that the ice can be melted only by Ragnir.
+*Imu's face is shown for the first time, and he is officially introduced as Saint Nerona Imu, the King of the World, one of the First Twenty, and wielder of the Akuma no Mi, a Devil Fruit whose name literally means "The Devil's Fruit".
+
+## Characters
+
+## Characters
+
+Pirate, World Government, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Nami, Usopp, Sanji, Tony Tony Chopper, Franky, Brook, Jinbe, Zeus, New Giant Warrior Pirates, Hajrudin, Stansen, Goldberg, Gerd, Nash, Giant Warrior Pirates, Dorry, Brogy, Rocks Pirates, Rocks D. Xebec, Roger Pirates, Gol D. Roger, Whitebeard Pirates, Edward Newgate, Portgas D. Ace, Red Hair Pirates, Shanks, Blackbeard Pirates, Marshall D. Teach, Elbaph, Harald, Loki, Ragnir, Jarul, Colon, Skaldi, Olav, Karin, Mag, Bent, Johanna, Bjorn, Egghead, Vegapunk/Lilith, Arabasta Kingdom, Nefertari Cobra, Nefertari Vivi, Nefertari D. Lili, Ryugu Kingdom, Otohime, Fukaboshi, Ryuboshi, Manboshi, Shirahoshi, Wano Country, Yamato, Kurozumi Tama, First Twenty, Nerona Imu, Five Elders, Marcus Mars, Topman Warcury, Ethanbaron V. Nusjuro, Shepherd Ju Peter, Figarland Garling, Knights of God, Shepherd Sommers, Rimoshifu Killingham, Manmayer Gunko, World Noble, Vegapunk/York

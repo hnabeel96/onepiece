@@ -1,0 +1,44 @@
+# Chapter 926: The Prisoner Mine
+
+Volume: 92  |  Arc: Wano Country Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_926 (CC-BY-SA)
+
+## Cover page
+
+Cover Page Request: "Chopper and Law studying Medicine with a knowledgeable tortoise and crane." -PN Onanchuru
+
+## Short summary
+
+People in the Flower Capital receive the Kouzuki Family's secret message and are shocked to find out about their return. Meanwhile, Nami and Shinobu spy on government officials, and they manage to acquire some important information though they have to flee after being spotted.
+
+At the Prisoner Mines and Weapons Factory in Udon, the prisoners are forced to hard labor in exchange for food. Luffy and Kid compete together and do so much work that they receive large piles of kibi dango, but this draws the ire of the gluttonous vice warden Dobon. However, when he tries punishing Luffy and Kid by eating them, he is swiftly defeated from inside.
+
+## Long summary
+
+At the Flower Capital, people deliver newspapers containing not only stories, but also the Kouzuki Family's secret message. Several people understand the message and realize that the family has returned. One person decides to join them, and an old man points out that Orochi has removed the citizens' access to weapons, but the man is willing to fight barehanded if he has to. Elsewhere, Usopp engages with the citizens at his toad oil stand, and in a building, two government officials discuss a very large weapons order from a client outside Wano Country. Nami spies on them from the ceiling as she trains under Shinobu to become a kunoichi, but one of the officials spots her looking glass and jabs a blade into the ceiling. Nami and Shinobu are forced to run away from his attacks, and Shinobu starts screaming, tipping the officials off to the presence of humans. However, the duo manage to escape, and Shinobu uses ninjutsu to glide through the air. Nami reveals that she found out when and where the weapons shipment is leaving, and Shinobu admits that she is afraid of sharp objects, much to Nami's chagrin. Nami then spots a long line for a soba stand operated by Sanji, and she is angry that he seems more focused on attracting women than samurai. However, a man approaches Sanji's stand, seemingly angry at his presence.
+
+At the Prisoner Mines in Udon, prisoners are forced to do grueling work and are killed if they become unable to do so. An old man named Hyo receives only one ball of kibi dango for moving five big blocks of rock, and is appalled. The prison guard responds that Hyo is falling behind due to his age and will die soon as he attacks the old man. The prisoners are disheartened to see this, but know they will be killed if they go against the guards. However, Luffy and Eustass Kid move the blocks at a very fast pace; the guards lost count of how many they moved when they got to 500, which shocks them because Luffy and Kid should be weakened by their Seastone handcuffs. Luffy and Kid earn heaping bowls of kibi dango as a result, and the two bicker as they eat and argue over who moved more blocks.
+
+The guards wonder how they are going to break the duo's spirits when Dobon, the vice warden, arrives. Dobon wants to know which prisoners cleared out the kibi dango rations, and Luffy and Kid are brought before him. Dobon is angry at the duo for only leaving him three pieces of kibi dango to eat, and the guards warn Luffy and Kid about the dangers of talking back: first they will lose their arms, then their legs, then be executed. Dobon prepares to discipline them by putting them into the mouth of the hippo fused with his body through SMILE, but a few seconds later, Dobon and his hippo fall to the ground defeated. Luffy and Kid emerge from the hippo's mouth and walk away, and a guard says they will be executed, but Kid replies that they cannot prove Dobon was attacked as the prisoners cheer for him and Luffy.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*A manslayer named Kamazo and a thief that steals from the rich and gives to the poor, Ushimitsu Kozo, are mentioned.
+*Kin'emon's secret message is being delivered to his allies.
+*Kurozumi Orochi abolished all Kendo, Karate, and Judo dojos in Wano Country and forbids the citizens from using weapons to prevent a rebellion.
+*Nami and Shinobu infiltrate a house that is in charge of transporting weapons.
+**Shinobu is revealed to have aichmophobia.
+*Sanji opens a soba noodle shop at the Flower Capital.
+*Caribou is a prisoner at Udon.
+*In Udon, slaves are given sparing food in exchange for manual labor.
+*Luffy and Kid are forced as slaves in order to break their spirits. Despite wearing Seastone cuffs, they are more than capable of satisfying their quota and eventually even defeating Dobon, the deputy warden of Udon.
+
+## Characters
+*The events of the fifth chapter of Shokugeki no Sanji occur between this and the previous chapter.
+
+## Characters
+
+Pirates, Straw Hat Pirates, Monkey D. Luffy, Nami, Usopp, Sanji, Tony Tony Chopper, Kid Pirates, Eustass Kid, Beasts Pirates, Dobon, Ibiributsu, Donannoyo, Heart Pirates, Trafalgar D. Water Law, Bepo, Penguin, Shachi, Caribou Pirates, Caribou, Wano Country, Kamekichi, Ukon, Hidayu, Monjiro, Jujiro, Kakunoshin, Kojuro, Dotaku, Shinobu, Hyougoro, Gama Pyonnosuke, Akudai Kanzaburo, Waruno Furishiro, Kuni, Kawamatsu, Killer, Denjiro

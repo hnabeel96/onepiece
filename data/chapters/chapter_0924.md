@@ -1,0 +1,42 @@
+# Chapter 924: Ha
+
+Volume: 92  |  Arc: Wano Country Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_924 (CC-BY-SA)
+
+## Cover page
+
+Cover Page Request: "Sentomaru chopping wood for an elderly couple." by P.N Sanadacchi.
+
+## Short summary
+
+Law attempts to rescue the defeated Luffy, but is attacked by Hawkins and shot with a nail made out of Seastone, and he is unable to prevent Luffy's capture. At the ruins of Oden Castle, the Straw Hats and their allies have all survived, and Kiku prepares to tell them the current situation of Wano. Zoro, Franky, Robin, and Usopp read the news of Luffy's defeat as their captain is taken away to a prison, where he is placed in a cell next to Eustass Kid.
+
+## Long summary
+
+Kaidou's subordinates examine the defeated Luffy, being surprised that he survived Kaidou's hit. Law moves to grab Luffy and run, but Hawkins shoots him in the arm with a nail made of Seastone, revealing that Seastone originated here in Wano and could only be refined to this level here. He then turns his sword into straw to attack Law with it. Kaidou notes that Luffy is still glaring at him, and tells his subordinates to throw him into a cell, saying that he will make a good subordinate once his will is broken. Kaidou also says to not mention that Luffy is a pirate in the newspaper report due to foreigners not being allowed in Wano. However, as his subordinates move toward Luffy, they are suddenly knocked out by his Supreme King Haki, and Shutenmaru recognizes it as an ability that Oden used. Kaidou notes that Eustass Kid also used this Haki, and expressed annoyance on how they are too many people that can use Supreme King Haki as he transforms back into a dragon as he flies off to get drunk again, having become sober.
+
+Law escapes to the forest, and worries about his crew and allies. Hawkins' subordinates report to him in Bakura Town that Law has escaped, and he is alright with this, but swears to find him eventually. In Okobore Town, Kin'emon spies on Tsuru tending to a citizen named Gorobe. He comments that his wife is still beautiful, but has no intention of reuniting with her until after Oden's wishes are fulfilled. He then spots Shutenmaru riding off, and recognizes him as Ashura Doji. At the ruins of Oden Castle, Kiku is relieved to see the male alliance members still alive after Kaidou's attack. Sanji had carried the females to safety, while Shinobu had used her Juku Juku Jutsu to mature the ground below the males and cause a sinkhole to form. After the males escape from the sinkhole, Kiku prepares to tell the alliance members about the current situation. Meanwhile, Inuarashi and the Musketeers discover the injured Tama, and head into the forest to treat her immediately.
+
+The news about Luffy and Kaidou's fight circulates through Wano, and Franky, Robin, Usopp, and Zoro are completely aghast when they hear it. The next day, in the Udon region, people are put hard to work making weapons in Kaidou's factories. In the dungeons of these factories, one of the Beasts Pirates delivers a poisonous fish to a certain cell. Their orders are to give a poisonous and boneless fish to feed the prisoner inside, who seems to be still alive in spite of the poison. The Beasts Pirate guards then rejoice as Luffy is brought in, and they taunt him. Luffy glares at them in response, and one of them tries to retaliate by attacking him with a sword. However, the mysterious prisoner spits out the fish skeleton at the guard and strikes him in the neck, causing him to be reprimanded for not taking the bones out of the fish as ordered. Luffy is brought into another room and thrown into a cell, and the guards say that starting tomorrow they will work him until his will breaks and he pledges allegiance to Kaidou. In the cell next to Luffy's is Kid, and both of them swear revenge against Kaidou, which causes them to notice each other as the curtains are drawn on the first act of the Wano Country Arc.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*Kaidou takes Luffy prisoner and intends to turn him into a subordinate.
+*Hawkins reveals that Seastone originates in Wano Country.
+*It is revealed that Kid can use Supreme King Haki and the late Oden possessed this power as well.
+*Shutenmaru is confirmed to be Ashura Doji.
+*Shinobu managed to save those at Oden Castle.
+**She is revealed to have eaten the Juku Juku no Mi.
+*Inuarashi finds Tama, who is still alive.
+*Franky, Robin, and Usopp learn of Luffy’s arrival in Wano Country and his capture.
+*Luffy is thrown into a cell next to Kid at a prison in Udon.
+*This chapter marks the end of Act 1 of the Wano Country Arc.
+
+## Characters
+
+## Characters
+
+Pirates, Marines, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Nami, Usopp, Sanji, Tony Tony Chopper, Nico Robin, Franky, Brook, Kid Pirates, Eustass Kid, Heart Pirates, Trafalgar D. Water Law, Bepo, Shachi, Penguin, Beasts Pirates, Kaidou, Pudos, Hawkins Pirates, Basil Hawkins, Sentomaru, Wano Country, Kouzuki Momonosuke, Kouzuki Hiyori, Kin'emon, Kikunojo, Shinobu, Ashura Doji, Kawamatsu, Tama, Tsuru (Wano), Gorobe, Komachiyo, Gama Pyonnosuke, Tsugaru Umi, Zou, Inuarashi, Shishilian, Concelot, Carrot

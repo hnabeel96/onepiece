@@ -1,0 +1,51 @@
+# Chapter 830: A Man You Can Bet On
+
+Arc: Whole Cake Island Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_830 (CC-BY-SA)
+
+## Cover page
+
+From the Decks of the World: The 500,000,000 Man Arc Vol. 20: "Sabaody Archipelago".
+
+Silvers Rayleigh gambles while reading the news of the Straw Hats' new bounties.
+
+## Short summary
+
+A few hours ago, Jinbe asked his crew to allow him to join the Straw Hat Pirates, and they agreed. However, Charlotte Praline told them that no one who has left her mother's crew has ever come out alive. In the present, Big Mom agrees to let Jinbe leave her crew, but says he will have to lose something as she spins a roulette wheel.
+
+As night falls, the Sanji Retrieval Team battles some giant aquatic ants. Pedro reveals to the team that he once traveled with Pekoms as a pirate searching for poneglyphs, but were defeated when they came to Totto Land. They later reach Whole Cake Island and see someone standing onshore.
+
+## Long summary
+
+A few hours ago, Jinbe told the Sun Pirates that he wanted to join the Straw Hat Pirates because he believed Luffy would become Pirate King and bring peace to Fish-Man Island. Aladine replied that given how passionately Jinbe has talked about Luffy, he should go and follow his aspirations. Jinbe was flustered that he has talked about Luffy that much, and his crewmates reflected that Jinbe had become a pirate and joined Big Mom in order to protect them, so they were willing for Jinbe to do something for himself for a change. The Sun Pirates said that they could take care of themselves, and Jinbe became extremely grateful, although the fish-men got worried about what Big Mom would say. This would especially put Aladine, as he had married Charlotte Praline, the 29th daughter of the Charlotte Family. Praline then appeared and yelled at Aladine, thinking he would abandon her if the fish-men had a falling out with Big Mom, but Aladine assured her that he would negotiate with Big Mom. However, Praline said that there was no need to negotiate, as she would follow him anywhere, and she embraced him lovingly. Jinbe asked Praline if they would incur Big Mom's wrath by leaving, and she replied that nobody who has tried to leave has survived.
+
+In the present at Sweet City, Charlotte Moscato's body is carried away as a citizen asks Mont d'Or if Jinbe will be killed as well, but he does not know what Big Mom will do. Inside the Whole Cake Chateau, Big Mom speaks with Jinbe about cutting ties with her, and some pieces of cake tearfully ask him why he is going. Big Mom eats them, saying that she does not care about the reason and that pirates should live freely. However, she says that she will lose a valuable and powerful resource, so it is only right that Jinbe loses something as well. A roulette wheel is then brought out, with pictures of arms, legs, heads, and crowns on the slots.
+
+As night falls, the Sanji Retrieval Team stands on a solid sea of sweet syrup. Luffy wants to sleep for the night, but Nami does not want to get ambushed again by the giant ants they had just dispatched. Pedro says that the sea will start flowing again at daybreak but has frozen for the night, and the team tries to unfreeze it. Brook says that he has put the ants to sleep, but it will be chaos when they wake up, and Pedro states that his ship was once eaten by these ants. Luffy wonders why he was in Totto Land before, and Carrot reveals that Pedro was once a pirate with Pekoms, although Pedro says he only accompanied Pekoms halfway. They were on a journey to find poneglyphs for Nekomamushi, but it ended when they came to Totto Land, as Pedro had fallen there. The team is shocked to hear this, and Nami thinks that this must trigger bad memories for Pedro, but he says that he is glad to be aiding the others on this voyage. Pedro states that he had heard Nekomamushi and Inuarashi showed the Straw Hats the Road Poneglyph on Zou, which surprised him, as they had not shown it to strangers since 26 years ago when they showed it to the Roger Pirates. Pedro knows that the rulers must have faith that the Straw Hats will follow in Roger's footsteps, so he tells them that Big Mom's Road Poneglyph will be useful to them after they defeat Kaidou, thus they should steal it while they are here. He then asks Luffy to buy him time to sneak in and steal it while they rescue Sanji, which Luffy agrees to, and Nami tells Luffy that the arrangement is not that easy. Before Luffy and Brook have a brief discussion on fate, Chopper then notices that the ants are awake again as they rush at the ship.
+
+The next morning, the team reaches Whole Cake Island, and Pedro reveals that the tallest cake is Big Mom's castle. Nami intends to go straight to avoid security, and Luffy suddenly sees someone standing on the coast.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*Jinbe informs his crew about his intention to join the Straw Hat Pirates.
+**The current members of the Sun Pirates are shown, and they support Jinbe's decision.
+**Though likely an error, Aladine is introduced as a "Fish-Man" in this chapter.
+*Charlotte Praline, a half hammerhead shark mermaid and the 21st daughter of the Charlotte Family, is introduced and she is married to Aladine, the vice captain of the Sun Pirates.
+**She is the first half-mermaid to appear in the series.
+*Big Mom accepts Jinbe's request but demands compensation.
+*Pedro tells the Sanji Retrieval Team about his past.
+**He and Pekoms used to be explorers, trying to find poneglyphs for Inuarashi and Nekomamushi.
+**Pedro has a bounty of an unknown amount from his travels days, which labels him as a pirate.
+**While traveling through Big Mom's territory, they were attacked and defeated.
+*Pedro reveals that Inuarashi and Nekomamushi showed Gol D. Roger the Road Poneglyph on Zou.
+*Pedro volunteers to steal Big Mom's Road Poneglyph.
+*The Sanji Retrieval Team arrives at Whole Cake Island.
+
+## Characters
+
+## Characters
+
+Pirate, Straw Hat Pirates, Monkey D. Luffy, Nami, Tony Tony Chopper, Brook, Big Mom Pirates, Charlotte Linlin, Charlotte Opera, Charlotte Moscato, Charlotte Mont-d'Or, Charlotte Galette, Napoleon, Sun Pirates, Jinbe, Aladine, Charlotte Praline, Wadatsumi, Zou, Inuarashi, Nekomamushi, Pedro, Carrot, Sabaody Archipelago, Silvers Rayleigh

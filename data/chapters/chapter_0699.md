@@ -1,0 +1,52 @@
+# Chapter 699: Morning Edition
+
+Volume: 70  |  Arc: Punk Hazard Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_699 (CC-BY-SA)
+
+## Cover page
+
+Color Spread: the Straw Hat Pirates in medieval outfits surrounded by a green dragon. Luffy is dressed as a king, Nami is a queen/princess, and the other Straw Hats are knights.
+
+## Short summary
+
+Kuzan immediately freezes Doflamingo to stop him from killing Smoker. However, Doflamingo survives the attack but refuses to fight the former admiral. He then leaves with Buffalo and Baby 5 while asking "what Kuzan really is". Smoker is then treated by the G-5 Marines who ask whether Kuzan is now a boss of the underworld.
+
+Meanwhile on the Thousand Sunny, Usopp and Chopper are paranoid about an attack from Doflamingo. Kin'emon is angry at Zoro because he believes that Zoro has defiled the famous samurai Ryuma's grave to obtain Shusui. Meanwhile, Momonosuke is playing cute to get attention from Robin and Nami, making Brook, Kin'emon and Sanji jealous of him.
+
+After a quiet but anxious night, the party receives the morning newspaper which says that Doflamingo has indeed quit his position as a Shichibukai and that he also resign his position as a King of Dressrosa. It is also reported that the Heart Pirates and the Straw Hat Pirates have formed an alliance, and so have the On Air, Kid and Hawkins Pirates. All three items of news are declared as huge threats to the world.
+
+On Dressrosa, the island is in an uproar over the news while Doflamingo is in his office reading and listening to some music. Law's Den Den Mushi rings, and Doflamingo decides to answer it.
+
+## Long summary
+
+Despite Kuzan's presence, Doflamingo tries to kill Smoker anyway but is quickly frozen by Kuzan's Devil Fruit ability. However he manages to break free as the ice hadn't reached his heart. Seeing nothing to gain from fighting Kuzan, Doflamingo takes his leave, but not before questioning Kuzan what he stands for due to rumors he had heard. Kuzan does not answer him and yells for a medic. Doflamingo collects Baby 5 and Buffalo and departs. Only then does Kuzan state that even though he is not enlisted in the Marines anymore, he never fully trusted the World Government and that he can still make a difference outside the Marines. Smoker inquires about how he knew of Punk Hazard as it's top secret, worrying that he is doing business with the criminal underworld. The G-5 Marines, who were eavesdropping on the conversation, are yelled at by Kuzan, who asks them to clear off, now that they have treated Smoker. He then informs Smoker that he is doing nothing of the sort. He also warns Smoker to tell Sakazuki to keep an eye on Doflamingo as he poses the biggest threat to the Marines for now. For, even though his presence is not as obvious as the Kuja Pirates, his prowess as a pirate was exceptional indeed. He tells Smoker to ask the Fleet Admiral to dispatch the Admirals as soon as possible. He also asks the G-5 marines not to reveal his presence there, to which they oblige.
+
+Out on the sea, the crew is taking a breather. Usopp and Chopper worry furiously about Doflamingo coming to attack them. Kin'emon nearly gets into a duel with Zoro thinking he had robbed Ryuma's grave due to him having his sword, the Shusui, on him. Momonosuke is revealed to be taking a bath with Robin much to the envious anger of Sanji, Brook and Kin'emon. When they confront him over it, Nami punches all three for their supposed bullying. On being saved, he addresses Nami as a fair princess, which makes him receive a hug from Nami (much to the anger of the three perverts). Momonosuke rubs his face onto Nami's breasts on purpose, while grinning wickedly at the three. As the night goes on, most of the crew (Luffy, Zoro, Brook, Nami, Robin, Law and Momonosuke) sleep while others (Usopp, Chopper, Franky, Sanji, and Kin'emon) stay up looking after the Sunny. Momonosuke is shown to be snoring in the same bed as the two female crew members.
+
+Morning comes and a newspaper seagull delivers the paper that reads that Doflamingo abdicated his position as a Shichibukai as per Law's demands as well as his position of royalty in Dressrosa. However, there is also a picture of Luffy and Law and an article announcing their alliance, much to the crew's surprise. Also in the paper is news regarding Kid, Apoo and Hawkins alliance as well, though Law is unconcerned with it. He then begins to explain the next phase of his agenda to the crew.
+
+On Dressrosa, the island is in an uproar over the news while Doflamingo is in his office reading and listening to some music. Law's Den Den Mushi rings, and Doflamingo decides to answer it.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*After a brief confrontation with Kuzan, Doflamingo leaves Punk Hazard with Buffalo and Baby 5.
+*Kuzan arrived at Punk Hazard by riding on a giant penguin.
+*Kin'emon is angry and wants to fight Zoro because he believes that Zoro stole Shusui from Ryuma's grave.
+*It is announced through the morning newspaper that Doflamingo resigned his position as a Shichibukai and as the king of Dressrosa.
+*Doflamingo's bounty is printed below his photograph, indicating that he is a wanted man once more.
+*The paper also mentions that Luffy and Law have made a pirate alliance and there has been no reaction from the World Government yet.
+*Bepo's appearance in Law's wanted poster is similar to how Usopp is shown in Luffy's wanted poster.
+*It is confirmed in the newspaper that Kid, Apoo, and Hawkins have made an alliance.
+*Doflamingo receives another call from Law, which he answers.
+*This is the final chapter of the Punk Hazard Arc.
+
+## Characters
+*In the cover of the chapter, Zoro closes his left eye but he doesn't have his scar there.
+**Zoro sports a new personal Jolly Roger on his chest.
+
+## Characters
+
+Pirate, Marines, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Nami, Usopp, Sanji, Tony Tony Chopper, Nico Robin, Franky, Brook, Heart Pirates, Trafalgar D. Water Law, Bepo, Donquixote Pirates, Donquixote Doflamingo, Baby 5, Buffalo, Blackbeard Pirates, Kuzan, Eleven Supernovas, Eustass Kid, Scratchmen Apoo, Basil Hawkins, G-5, Smoker, Punk Hazard, Caesar Clown, Wano Country, Kin'emon, Kouzuki Momonosuke

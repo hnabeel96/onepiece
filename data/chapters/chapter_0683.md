@@ -1,0 +1,49 @@
+# Chapter 683: An Icy Woman
+
+Volume: 69  |  Arc: Punk Hazard Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_683 (CC-BY-SA)
+
+## Cover page
+
+Caribou's Kehihihihi in the New World Vol. 9 - "For the Sake of Brother, VS. G-5!!"
+
+The Caribou Pirates arrive at the G-5 base just as Caribou is about to be burned at the stake.
+
+## Short summary
+
+Monet locks Luffy in a ten-layered snow hut. She then begins to weaken him with her powers. Luffy, however, simply blasts through the floor with a Jet Spear and falls into the basement. However, Monet says that Luffy cannot get out of the basement unless he can fly.
+
+In B-block, Chopper, in his Monster Point, is trying to prevent the berserk children from entering the Biscuits Room. However, Chopper is unable to fight without hurting the children and is beaten down before the Rumble Ball wears off when Brook, Kin'emon, Zoro, Nami, Usopp, and Robin come to the rescue. Chopper informs them that he is trying to prevent the children from getting their candy with the aid of Mocha, who is trying to protect the candy. Robin and Mocha try to stop the children, but in vain. Monet suddenly appears, blocking the exit of the Biscuits Room with a snow barrier. Monet then tells Mocha not to keep the candy all to herself and share the candy with everyone.
+
+In the SAD Room, Vergo shows up, upon which Law attempts to use his Devil Fruit abilities to recapture his heart. Vergo steals it back from him and brutally beats him to the ground. Law manages to hit Vergo with a Counter Shock, but the attack is ineffective. Law tells Vergo that he is the one miscalculation in his plan. Vergo then prepares to finish off Law, but Smoker suddenly appears, stopping Vergo. Vergo and Smoker then prepare to fight.
+
+## Long summary
+
+In the research room, the guard is shocked when hearing that a kid turned into a dragon and asks the little girl where she saw it and she says she peeked into the Secret Room and kept it to herself and is now worried for Momonosuke. The guard lies saying he is fine and that she does not need to worry about him and that he is eating and tells the little girl she must not tell anyone else what she saw.
+
+In Caesar's lab, Luffy asks what Monet is doing and Monet makes a ten layer snow hut. Monet passes through the snow huts to see Luffy and asks how does it feel that ten layers of snow huts can not be easily broken. Luffy just says she is stalling for time and he will just break it in a jiffy and tells her to stop wasting his time. He says she can not beat him and she agrees stating she could not achieve victory in a fight with him, but tells him to not confuse victory with fighting ability. She then hugs him with her wings and Luffy notes how cold she is and her body are like ice and tells her to get off. Monet refuses stating he can no longer escape her hold and the coldness will sap away his strength and Luffy begins to become drowsy. She then points out that there is a bunch of snow build up around them and Luffy should lose consciousness soon and asks if it feels good. She tells him to just close his eyes slowly and relax, but Luffy manages to fight it off and use a Jet Spear to break free by breaking the ground. As Luffy begins to laugh, he ends up falling down below from destroying the floor. Monet comments on his hidden potential and tells him that falling from their location will have him end up in the ducts and into the garbage can deep inside the earth. She adds that unless he can fly, he will not ever get out and just comments to herself about how he just dug his own grave and says her farewells to him.
+
+In front of the Biscuits Room, Chopper in his Monster Point continues to hold off the children, telling them that he knows it is painful but they must endure it and not take any more candy knowing they want to go home. He tells them he will not let them get into the Biscuits Room. He is holding a kid and accidentally hurts him and Chopper apologizes as he did not mean to hurt him, only for the other children to attack violently around Chopper with pipes calling him a monster and state this has nothing to do with him and wants the candy stating it is theirs. Chopper tells himself it is no use stating unless he fights back he can not stop them. As Chopper falls over the kids note an opening and run to the Biscuits Room and Chopper tries to stop them only for the Rumble Ball to wear off and him turn back to normal. They all rush to the room with the intent to get candy and start trampling Chopper and he can not move and luckily is saved by Nami as the other Straw Hats and Kin'emon arrive as Nami and Usopp ask what is happening while Kin'emon shouts out his son's name. Chopper starts tearing up glad they came stating that Caesar is trying to make them into big violent fighters and he can not lay a finger on them and says they have to find a way to stop them. As they make their way to the Biscuits Room, Robin uses her Mil Fleur: Gigantes Mano and makes giant hands to stop the children. Chopper then tells Nami about the girl Mocha trying to help him and says she is in danger and is protecting the candy in the room now. Usopp notes this is bad and they will not stop at nothing to get that candy now.
+
+The kids say the hands are annoying and start attacking and biting Robin's hands, causing her to let go stating they are so violent and she can not stop them. The kids see Mocha and tell her to hand over the candy. Mocha, having regained her sanity, tells them to not eat it saying it is evil candy telling them to snap out of it that Chopper is trying to help them. She states if they do not listen they will not be able to go home and Chopper says it is useless and tells her to run. She starts running and the kids tell her to not eat the candy on her own and then she sees the exit closed with Monet in the front and asks her to help. Monet tells Mocha she can not keep the candy all to herself and should share with the rest. As Zoro notices her he asks who she is and Usopp points out she is the bird woman he saw before.
+
+In the SAD Production room, Law is seen bleeding and breathing heavily fighting Vergo. He uses Shambles to get his heart back and at the moment he does Vergo appears in front of him and delivers a powerful kick to the face and sends Law back to the iron bars behind him and he spits out blood. Vergo catches Law's heart and starts squeezing it causing Law to scream out in pain. Law manages to stand up with difficulty and Vergo hardens his arm and starts brutally punching Law over and over again causing Law's hat to fly off and Law manages to grab Vergo and use Counter Shock on him sending a large electrical surge in his body, but the attack did little damage. Vergo easily recovers and delivers' Joker's message of "what a shame" to Law and Law just smirks back at Vergo as he had calculated how to retrieve his heart back from Caesar and that Vergo is his only miscalculation. Vergo says Law should call him Vergo-san and retorts to squeezing Law's heart even tighter, causing Law to scream in agony as Vergo tortures him. Vergo then mentions how he is in the middle of something and 'he' just had to show up, referring to Smoker who just arrived, and says it does not matter what it takes, he plans to seal Smoker's lips permanently. As Law seems to have lost consciousness, Smoker responds that it'd be better to end things quickly to dispose of trash looking down on him and calls Vergo pirate Vergo. The two then prepare to fight.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*Monet's ability has to do with snow and cold temperatures. She is shown to be able to easily pass through her snow barriers, as well put someone to sleep by hugging them.
+*Luffy ends up in the basement during his fight with Monet, who then goes to the Biscuits Room.
+*Chopper is reunited with some of the other Straw Hat Pirates.
+*Chopper, Robin, and Mocha try to stop the children from getting the candy, but they fail to do so before Monet shows up to stop Mocha from running away with a piece of candy.
+*Law attempts to get his heart back from Vergo but is unsuccessful.
+*Law is seen without his hat on for the first time in the series after Vergo knocked it off from punching him.
+*Smoker shows up to fight Vergo.
+
+## Characters
+
+## Characters
+
+Pirate, Marines, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Nami, Usopp, Tony Tony Chopper, Nico Robin, Brook, Heart Pirates, Trafalgar D. Water Law, Donquixote Pirates, Vergo, Monet, Caribou Pirates, Caribou, G-5, Smoker, Yarisugi, Wano Country, Kin'emon, Sind, Mocha, Doran, Uzu, Biyo, Ginko

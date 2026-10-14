@@ -1,0 +1,42 @@
+# Chapter 786: Gatz
+
+Arc: Dressrosa Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_786 (CC-BY-SA)
+
+## Cover page
+
+Cover Page Request: "Luffy and a monkey making Law eat some bread that he hates" Pen-name Yokubari OFG
+
+## Short summary
+
+The people of Dressrosa cheer as Doflamingo remains down after Luffy's attack, but the Birdcage is still up, so Luffy prepares to deal a finishing blow. However, his Gear 4 runs out and he deflates, unable to move or use his Haki. Doflamingo then gets back up, still not defeated, and prepares to finish Luffy off. However, Gatz and the Corrida Colosseum gladiators who originally tried to capture Luffy appear and promise to protect the Straw Hat. Luffy states that he needs ten minutes to regain his Haki and reactivate Gear 4 to deal a final attack.
+
+While half of the fighters will stall Doflamingo, the other half will protect Luffy who is being carried away by Gatz. But suddenly, Jesus Burgess appears and rushes toward Luffy with the intent on killing him for his devil fruit. However, Sabo intercepts him.
+
+## Long summary
+
+The citizens of Dressrosa look on in shock as they see Doflamingo remain stunned on the palace mountain. They then begin to cheer for Luffy, whom they now recognize due to Riku Doldo III's speech. Luffy continues bouncing down the street while responding to the citizens speaking about him. Meanwhile, Viola, Hack, and Usopp reach the streets when they hear the noise. Viola then sees what is going on, and wonders aloud in shock if Luffy actually defeated Doflamingo. Riku looks toward the palace in silence, and on the Flower Field, Cavendish is confident that Doflamingo has been finished. However, Law simply tells him to look at the sky, and everyone in Dressrosa notices with shock that the Birdcage is still up and moving.
+
+Intent on bringing an end to the Birdcage, Luffy flies toward Doflamingo, sinking in his fist to deal a final blow. However, before he can unleash his attack, Gear 4's time limit expires and all the excess air spews out of Luffy's body, sending him crashing into the mountain and landing back on the streets, wheezing and unmoving. Right then, Jesus Burgess leaps down from the palace roof, announcing his plan to kill Luffy and steal the Gomu Gomu no Mi. Cavendish watches in shock as Burgess leaps past him and Law, and Koala hurriedly tries to contact Sabo via Den Den Mushi. Burgess then lands hard on the ground, causing the citizens to become shocked and slowly back away. Suddenly, the palace mountain begins to crack, and the astonished citizens realize that Doflamingo is still conscious. They try to run away from the inevitable conflict between the three powerful pirates, but the Birdcage has shrunken so much that there is nowhere left to run.
+
+Doflamingo smiles as he sees Luffy trembling on the ground, completely out of energy. Suddenly Gatz appears by Luffy and asks if the Straw Hat recognizes him from the Corrida Colosseum. Gatz had realized that Lucy was Luffy, and he asks the Block C winner if there was any way he could help. Luffy tells Gatz that he needs ten minutes, since he loses the use of his Haki for ten minutes after using Gear 4. Luffy knows that if he can avoid Doflamingo for ten minutes, he will be able to recover his Haki and deal a final attack. Doflamingo descends to the street, and Luffy affirms to Gatz that the Shichibukai's reign will come to an end if he is given ten minutes. Gatz then rouses up the Colosseum gladiators who originally went after Luffy's bounty instead of helping him fight the Donquixote Pirates, with Meadows apologizing for their actions. Rolling Logan tells Luffy that they will put their faith in Luffy as long as he does not think less of them if they die. Gatz, carrying Luffy on his shoulder, commanded half of the fighters to protect him while the other gladiators charge into battle against Doflamingo.
+
+However, Burgess intercepts their retreat, shocking Gatz. Burgess then attacks Luffy and Gatz, but he is kicked in the face by Sabo. Luffy then smiles as he sees his brother.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*Luffy's attack fails to incapacitate Doflamingo and the Birdcage remains active.
+*Luffy's Gear 4 wears off and he can't use Haki for ten minutes.
+**Luffy says he can beat Doflamingo with one last attack once his Haki recharges.
+*Gatz appears again and helps Luffy.
+*Burgess attempts to kill Luffy to get the Gomu Gomu no Mi but is stopped by Sabo.
+**This means Burgess may know a way of how to take Devil Fruit powers like Blackbeard did with Whitebeard, but the details about it is still unknown.
+
+## Characters
+
+## Characters
+
+Pirate, Straw Hat Pirates, Monkey D. Luffy, Usopp, Heart Pirates, Trafalgar D. Water Law, Beautiful Pirates, Cavendish, Donquixote Pirates, Donquixote Doflamingo, Blackbeard Pirates, Jesus Burgess, Dressrosa, Riku Doldo III, Viola, Tank Lepanto, Corrida Colosseum, Gatz, Mummy, Meadows, Rolling Logan, Revolutionary Army, Sabo, Koala, Hack (Fish-Man)

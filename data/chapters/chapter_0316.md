@@ -1,0 +1,23 @@
+# Chapter 316: Brother Soul
+
+Arc: Long Ring Long Land Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_316 (CC-BY-SA)
+
+## Cover page
+
+Gedatsu's Accidental Blue-Sea Life, Vol. 3: "How Carelessly I Survived".
+
+One of the island's residents digs the fallen "angel" out of the ground, revealing him to be none other than Gedatsu.
+
+## Short summary
+
+Luffy continues to fight despite falling prey to Foxy and his tricks. The fight continues from the kitchen into a room full of mirrors. Foxy unveils his last weapon, Gorilla Puncher 13. Luffy uses his wits to escape the death chamber and continues the battle outside. Foxy manages to knock Luffy down multiple times, but Luffy keeps getting back up because he is determined to save his crew.
+
+## Long summary
+
+Luffy, still under the effect of the Noro Noro beam, slowly starts propelling out of the kitchen. Foxy exclaims that 30 seconds have finally passed and the effect of the Noro Noro Beam wears off, hurling Luffy and making him fall into a dark room. Luffy gets up and wonders where Foxy went. Suddenly, Foxy appears on top of a machine known as the Gorilla Puncher 13. Foxy activates the machine and slowly starts to head towards Luffy. He follows through with a Noro Noro beam that misses Luffy, making the latter confused as to why the former would purposely miss. Foxy tells Luffy to turn around. Luffy notices a mirror behind him and was shocked to learn from Foxy that the Noro Noro Beam could be reflected by mirrors. After dodging the Noro Noro Beam, Foxy presses a button on the Gorilla Puncher and hits Luffy with one of the boxing gloves, severely burning the pirate. Far from finished, Foxy pulls out his mirror racket and sends multiple Noro Noro Beams at Luffy. Foxy taunts Luffy, exclaiming that he will never be able to get close to him while dodging both the punches and the Noro Noro beams. Immediately afterwards, Luffy turns around and smashes the mirror behind him. Foxy ironically says that it was a cheap move on Luffy's part. He then loses sight of him and gets surprised by a Gomu Gomu no pistol to the back. Foxy tries to retaliate with another Noro Noro Beam, but Luffy dodges it. Luffy falls and hangs on to the Gorilla Puncher 13. Foxy calls him a fool and attacks Luffy with Gorilla Puncher Golden Hit, badly burning him in the process. Back outside, Itomimizu commentates on the match while riding Chuchun. The Straw Hat Crew cheers Luffy on, knowing that he will come through for them. Suddenly, an explosion occurs on the ship. Foxy emerges from the smoke in triumph while Luffy is seen lying face down on the ground. The Straw Hats are shocked to see Luffy injured, questioning how he got burned by mere punches. Luffy gets back up once more to face Foxy. Foxy gets annoyed. He pulls out his Noro Noro Beam Sword and restrains Luffy's arm and legs. He then follows up with a Megaton Nine-Tail Rush attack. Luffy gets pushed back, but he gets back up once again. Foxy repeats the same combo, but Luffy gets back on his feet yet again. Foxy is stunned by this. Luffy yells that he will fight to the death in order to save his friend.
+
+## Characters
+
+Pirate, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Nami, Usopp, Sanji, Tony Tony Chopper, Nico Robin, Foxy Pirates, Foxy, Itomimizu, Chuchun, Ukkari Hot-Spring Island, Goro, Gedatsu

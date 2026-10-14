@@ -1,0 +1,25 @@
+# Chapter 197: The Leaders
+
+Arc: Arabasta Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_197 (CC-BY-SA)
+
+## Cover page
+
+Hatchan's Sea-Floor Stroll, Vol. 14: "Introducing the Macro Fish-Man Pirates".
+
+The figure spying on Hatchan reveals itself to be another fish-man, Macro, who heads his own pirate gang.
+
+## Short summary
+
+Koza has arrived to the castle and learns about the real person responsible for his country's sorrow. Vivi begs him to stop the rebellion, but when he rises a white flag in front of the rebel army to stop, he is suddenly shot by a bullet.
+
+## Long summary
+
+The mysterious figure calling Vivi's name from the previous chapter is revealed to be Koza, who is shocked to see members of the royal army, including Chaka and Cobra, beaten and immobilized by Crocodile, the "country's hero". Crocodile and Miss All Sunday's words and presence make Koza realize the current situation, and asks Vivi who stole Arabasta's rain. Crocodile tells Koza it was him, and also mentions how amusing it was to have Koza, and the royal and rebel armies dancing on the palm of his hand. While Crocodile continues mocking Koza, Cobra tells Koza not to listen to him, and suggests to him to go out and try to prevent anymore needless bloodshed from happening. As Chaka tells Koza that Alubarna will be destroyed in less than half an hour, Koza hurries away from the palace, only to be stopped by Vivi. Vivi shouts at Koza that telling the rebels about the bomb would create too much confusion and the war would not stop and no one will be saved that way, prompting Crocodile to praise Vivi's judgment. While Vivi tells Koza to try and stop the rebellion, Crocodile steps forward, not wanting that to happen, and attacks Koza, however a greatly injured Chaka manages to block the attack. Chaka says that as long as he has breath in him, he will fight, and Crocodile mentions that was what stupidity is. As Chaka offers to hold back Crocodile, Koza has a flashback of training under Chaka as a child.
+
+It is then announced that the rebels are making their way to the northern area and has almost reached the palace. Vivi and Koza yell to the confused royal army members to hold up white flags, signaling their surrender. Koza, wanting to stop the war altogether, also wishes to tell the rebel army that the entire fight was pointless. The rebels appear, only to realize the royal army, including Koza, are waving white flags. Koza attempts to tell the rebels the fight is over, however he is shot from behind by a few royal army members, shown to be Baroque Works members incognito. Thinking the royal army is rebelling, the rebels begin to attack.
+
+## Characters
+
+Pirate, Baroque Works, Macro Pirates, Macro, Gyaro, Tansui, Arabasta, Nefertari Cobra, Nefertari Vivi, Chaka, Pell, Koza, Farafra, Kebi, Toto, Crocodile, Nico Robin

@@ -1,0 +1,44 @@
+# Chapter 897: Pekoms' Cacao Island Escape Plan
+
+Volume: 89  |  Arc: Whole Cake Island Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_897 (CC-BY-SA)
+
+## Cover page
+
+The Stories of the Self-Proclaimed Straw Hat Grand Fleet Vol. 29: Hajrudin Arc - On the deserter list of Buggy's Delivery: The New Giant Warrior Pirates shipwright, Stansen.
+
+## Short summary
+
+Pekoms prepares to activate his Sulong form to help Luffy escape, even though he cannot control it. The duo come to Cacao Island, but are quickly overwhelmed by Oven's army of the Big Mom Pirates. Sanji comes in to rescue Luffy, but faces fierce opposition and he and Luffy are soon surrounded. However, the Germa 66 fleet then arrives and attacks the Big Mom Pirates.
+
+## Long summary
+
+Four minutes before the rendezvous time, the Thousand Sunny is visible from Cacao Island. The Straw Hats looked in awe at the number of Big Mom Pirates' members waiting for them, Jinbe tells them that those people are the 'Grand Fleet'. Behind them, Smoothie's crew asks their captain what they should do now, to which Smoothie replies to back up the back side of the fleet, so that the Straw Hats are cornered. Meanwhile on Whole Cake Island Mont-d'Or orders an unknown individual to link the transponder snails and that he heard about the situation on Cacao Island.
+
+Back on Cacao island, Sanji is waiting for Luffy's arrival. Everyone anticipates Luffy to come out from the Mirro-World. Oven's army starts shouting for Luffy to come out anytime. In the Mirro-World, Pekoms tells Luffy about his Sulong form that when he transforms into it, he will lose control and can only hear the voice of Pedro. He then reveals his reasoning for helping the Straw Hats is to fulfill Pedro's final wish, and he plans to use his Sulong form as a diversion while Luffy gets away. Brûlée pouts on him being a traitor and says it won't work only to be told by Pekoms to shut up and gets completely ignored.
+
+On Cacao Island, Brûlée's cry for help is heard from inside the mirror. As all the snipers ready their guns, Pekoms comes out with Brûlée as a human shield, and is recognized by everyone to his surprise when they ask him why he came out through the mirror and not Luffy. Pekoms tells them not to move and he removes his glasses before looking up at the full moon, ignoring the Big Mom Pirates' shouts for him to stop before he will go on a rampage. Enraged by the betrayal, Oven heats up Pekoms' gun and uses 'Heat Wave Fist' to suppress him with the help of the army. Luffy is punched out of his hiding place in Pekoms' mane, and Sanji uses a transponder snail to tell the other Straw Hat Pirates that Luffy has come out.
+
+Luffy tries to escape the ambush and jumps onto a rooftop, but is blocked by Raisin who pulls out his sword in order to strike Luffy. However, Sanji jumps out of hiding to save his captain and kicks Raisin away. Sanji grabs Luffy and asks if he won, to which Luffy replies yes and they escape through the sky. Oven calls them naive and says that he was prepared for this as some pirates use Geppo to face them. Meanwhile, on the island ground, the other pirates subdue and beat up Pekoms and try to gouge his eyes to stop him from ever using his Sulong form again. Distracted by Pekoms' cries of agony, Sanji and Luffy are attacked by Yuen and are struck down as the rest of the pirates surround them and shoot, only for the bullets to somehow bounce off.
+
+Suddenly, an explosion causes the ships at the dock to burn and draw everyone's attention. A pirate reports to Snack that it is another fleet attacking them, which are revealed to be the Germa 66. The Big Mom Pirates are surprised at seeing this, as it was reported that the Germa Kingdom should have been killed hours ago. The Germa fleet prepares for another attack, while the Vinsmoke children are revealed to have surrounded Luffy and Sanji and block the shots. Ichiji sarcastically thanks the Big Mom Pirates for the way they acted during the tea party, and says to Sanji that they saved him by coincidence as they also wanted a chance to stir things up.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*Stansen, seen for the first time since the timeskip, is revealed to be the shipwright of the New Giant Warrior Pirates.
+*Pekoms attempts to help Luffy escape Oven and his men by transforming into his Sulong Form, but Oven's forces manage to subdue Pekoms. 
+**It is revealed that Pekoms can't control his Sulong form well and could only regain his senses if Pedro is around.
+*Charlotte Raisin can use Armament Haki.
+*Luffy leaves the Mirro-World and arrives at Cacao Island.
+*Sanji is reunited with Luffy. 
+*Germa 66 arrives to help out Luffy and Sanji.
+*Snack's face is shown.
+
+## Characters
+
+## Characters
+
+Pirate, Straw Hat Pirates, Monkey D. Luffy, Nami, Sanji, Tony Tony Chopper, Brook, Sun Pirates, Jinbe, New Giant Warrior Pirates, Stansen, Big Mom Pirates, Charlotte Smoothie, Charlotte Oven, Charlotte Mont-d'Or, Charlotte Snack, Charlotte Montb, Charlotte Chiboust, Charlotte Brownie, Charlotte Raisin, Charlotte Yuen, Charlotte Decuplets, Charlotte Nougat, Charlotte Brûlée, Charlotte Prim, Charlotte Marble, Charlotte Myukuru, Charlotte Maple, Charlotte Panna, Pekoms, Mokomo Dukedom, Pedro, Germa Kingdom, Vinsmoke Reiju, Vinsmoke Ichiji, Vinsmoke Niji, Vinsmoke Yonji

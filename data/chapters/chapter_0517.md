@@ -1,0 +1,29 @@
+# Chapter 517: Bathing
+
+Volume: 53  |  Arc: Amazon Lily Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_517 (CC-BY-SA)
+
+## Cover page
+
+CP9's Independent Report Vol. 24: "CP9 Departs from St. Poplar".
+
+Sailing on the Candy Pirates' ship, the CP9 agents set sail to their next location.
+
+## Short summary
+
+After returning from sea, Hancock is approached by Elder Nyon who asks her to reconsider the rejection of the World Government's call before being thrown out as Hancock prepares to take a bath. A pirate explains the history of Hancock and why everyone must not look at her when she removes her clothes due to a curse put on her. Meanwhile, Luffy looks for a ship to use and decides to see one on the tallest building, that building being the palace, the roof of which he crashes into and lands in Hancock's bathhouse, much to her wrath.
+
+## Long summary
+
+As Hancock's ship returns to Amazon Lily, the gates are opened and the pirate empress is welcomed back. The loot obtained is inventoried and sorted while Ran hands a newspaper to Elder Nyon upon her request. In the palace, Hancock views a clay sculpture of herself and breaks it, considering it ugly. Calling over Enishida, Hancock asks where the guards went, to which she explains that a dangerous "monkey" was spotted and they went to eliminate it. As Hancock gets ready to relax, Elder Nyon appears before her.
+
+Knowing that the World Government sent a ship to call for her, Nyon asks that she heed their call. Hancock attempts to play cute but Nyon insists that she go to keep the island safe, having lost the Calm Belt as protection from the government and their only current defense being her status as a Warlord of the Sea. Telling her that the elderly and the children will die if the Kuja Pirates are arrested, Hancock writes off Nyon as scared, though she denies this. As orders that she be thrown out are issued, Hancock refers to her as the former former empress who betrayed them and throws her out of the palace personally.
+
+The large bell on the island then rings, signaling that the time for Hancock's bath has begun. The palace is evacuated and the streets fill with everyone from inside as going inside is not allowed. A young girl asks Ran why nobody is allowed inside when Hancock is taking a bath, to which Ran explains that Hancock and her two sisters once defeated a gorgon but were cursed as a result and so anyone who looked at their backs would be turned to stone. For everyone's safety, the gorgon was beaten but Hancock took the curse for it, for which the young girl compliments her.
+
+Meanwhile, the guards continue to pursue Luffy through the forest but the young pirate makes his way out and up to the walls. Looking for a ship, Luffy decides to ask an important person for one and, believing that important people would live in a large building, decides to enter the palace. Landing on the roof, Luffy accidentally crashes through and lands in water. Initially believing that he is drowning, he simply stands up upon noticing that it is shallow and realizes that he is in a bathhouse. A completely naked Hancock, notices and realizes that it is a man. Seeing Hancock from behind, Luffy acknowledges seeing something on her back, greatly angering her.
+
+## Characters
+
+Pirate, Kuja, World Government, Straw Hat Pirates, Monkey D. Luffy, Kuja Pirates, Boa Hancock, Boa Marigold, Boa Sandersonia, Ran, Cosmos, Daisy, Rindo, Blue Fan, Salome, Bacura, Yuda, Gloriosa, Enishida, Marguerite, Sweet Pea, Aphelandra, Kikyo, CP9, Rob Lucci, Kaku, Jabra, Blueno, Kumadori, Fukurou, Kalifa, Hattori

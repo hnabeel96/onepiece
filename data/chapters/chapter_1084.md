@@ -1,0 +1,55 @@
+# Chapter 1084: The Attempted Murder of a Celestial Dragon
+
+Volume: 107  |  Arc: Egghead Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_1084 (CC-BY-SA)
+
+## Cover page
+
+Color Spread: A color spread featuring various One Piece characters riding on a water slide.
+
+## Short summary
+
+During their mission, Sabo encounters Bonney where after discussing priorities, the two separate. Meanwhile, Cobra asks the Five Elders about the fate of his distant ancestor Lili, one of the World Government's founding members. Charlos makes another attempt to capture Shirahoshi, forcing Mjosgard to have Sai and Leo attack him. Imu overhears Cobra's conversation and steps out of the shadows mentioning Lili which shocks Cobra.
+
+## Long summary
+
+Sabo defeated several guards within Pangaea Castle when Jewelry Bonney appeared before him, to his surprise. She told him that since they were after the same thing, they should just work together now. Sabo accepted, revealing that he had heard that Bartholomew Kuma had a daughter. Once he got the keys to the slaves' collars, Bonney told Sabo that she had been keeping tabs on the Revolutionary Army's exploits, so she knew that they were trustworthy to care for her father's body. Sabo handed the keys to one of Karasu's soot crows and told Karasu to pass on the message that Morley and the others should get Kuma and the slaves to Headquarters as fast as possible. As Karasu accepted the keys, he told Sabo to be careful. Sabo then asked Bonney what she would do next, and she told him she would journey to Egghead to see if Dr. Vegapunk could undo his alterations to Kuma's mind.
+
+Before she could tell him what she would do if Vegapunk was unable to do so, Sabo sensed some guards and the two hid from them. The guards commented that they were short-staffed, and one of them mentioned that some guards had seen the "Lost Chamber", which piqued Sabo's attention. After Sabo and Bonney exited the castle, Sabo wished Bonney luck and she told him to look after her father for her.
+
+Elsewhere, the Five Elders asked King Cobra what he wanted to speak to them about. Cobra told them that he knew the World Government had been founded 800 years ago when twenty monarchs had come together, along with their families, to live as one clan, the World Nobles, and rule over their world. At first, the twenty monarchs had treated each other equally and installed an Empty Throne to ensure that no dictator would try to rise up from them, placing weapons before the throne to symbolize the vow of never sitting on it. Afterwards, new royal families had been hand-picked to rule the nations the founders could not watch over anymore, and to ensure a smooth transition, all references to the previous monarchs had been removed from their home countries.
+
+Cobra said that the sole exception was the monarch of his own kingdom: Queen Nefertari Lili, who had chosen to remain ruling over her people in Arabasta, which is why there are only nineteen weapons at the feet of the Empty Throne. The Elders confirmed his story and asked what his point was, and Cobra said that through all the accounts chronicling the period after the Void Century he managed to scrounge together, Lili's name was not mentioned once. To Cobra, he believed Queen Lili never made it back home, and the ruler of the country ended up being her younger brother. To that, he asked if they knew what exactly happened to her. Saint Jaygarcia Saturn said that because it was so long ago, the details of what exactly happened to her were lost to the annals of history. Cobra then asked the Five Elders what the secret name "D." meant. When one Elder asked what prompted this question, Cobra revealed that a short letter had been passed down from generation to generation by Lili.
+
+Outside in the public courtyard, Saint Charlos made his move on Shirahoshi, having Kuma tie her up in chains. Charlos started dancing over his "accomplishment" and gushed over the idea of riding her everywhere and harming her if she defied him. She started begging for someone to save her, but the bystanders were too scared to interfere and all ran away pretending they had not seen a thing. Her brother Fukaboshi rushed to save her, apologizing for looking away earlier, which had allowed Charlos to seize her. His brothers Ryuboshi and Manboshi joined him, but Charlos simply told Kuma to blast them as he proclaimed that he could buy permission to do whatever he wanted, especially against Fish-Men and Merfolk.
+
+Rebecca and Leo saw Shirahoshi being assaulted, and Sai asked Saint Donquixote Mjosgard if he could hit Charlos, to which Mjosgard said Sai could and he would take responsibility for it. Mjosgard told Fukaboshi to restrain himself since he was of royal blood, but for Leo and Sai, since the two were pirates, Mjosagard thought it was easier for them to escape since they were bound to no country. Charlos tried to blast Mjosgard for hitting him earlier, but Leo and Sai attacked Charlos simultaneously and practically flattened him with their attacks. All the nearby people started panicking over the possibility that Charlos was dead and that the Admirals would be summoned. As Kuma was about to fire another blast at Sai and Leo, Morley suddenly appeared from the ground and subdued Kuma, begging that they go home together. Karasu arrived with the keys, and Morley said they should all head down now.
+
+Meanwhile, in the throne room, Imu appeared before the Five Elders (who were surprised because Cobra was still present) and sat down on the Empty Throne, horrifying Cobra as Imu said Lili's name.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*Sabo meets up with Jewelry Bonney.
+**Bonney allows the Revolutionaries to take Kuma with them while she will head to Egghead to talk to Vegapunk about reversing her father's condition.
+**Sabo finds the keys to the slaves' exploding collars and hands them over to Karasu.
+*Sabo overhears some guards speaking about a room known as "The Lost Chamber".
+**According to one of the guards, those who look into this chamber tend to mysteriously disappear. 
+*Charlos manages to restrain Shirahoshi with Kuma's assistance.
+**Kuma attacks the Ryugu Kingdom's princes.
+**Mjosgard gives Sai and Leo permission to attack Charlos while ordering the Ryugu Kingdom princes to stand down.
+**Sai and Leo flatten Charlos' head, which was later reported as an attempted murder plot.
+**Morley and Karasu manage to snatch Kuma away.
+*King Cobra has his audience with the Five Elders.
+**He wants to know the mystery of what happened to his ancestor Lili who was one of the 20 monarchs that founded the World Government, but disappeared after its foundation with no record of her name.
+**According to Cobra, there is a letter written by Lili that has been passed down for generations among the Nefertari Family, seemingly containing references to the Will of D.
+**Imu overhears the conversation from their room.
+**Imu shows up and sits down on the Empty Throne, shocking Cobra who is still present.
+
+## Characters
+
+## Characters
+
+Pirate, World Government, Revolutionary Army, Straw Hat Pirates, Nami, Nico Robin, Zeus, Bonney Pirates, Jewelry Bonney, Tontatta Pirates, Leo, Kabu, Bian, Happo Navy, Sai, Thriller Bark Pirates, Perona, Kuja Pirates, Boa Hancock, Donquixote Pirates, Sugar, Beasts Pirates, Ulti, Nerona Imu, Five Elders, Jaygarcia Saturn, Marcus Mars, Topman Warcury, Ethanbaron V. Nusjuro, Shepherd Ju Peter, World Noble, Rosward Charlos, Rosward Rosward, Donquixote Mjosgard, Marines, Tashigi, Sabo, Bartholomew Kuma, Karasu, Morley, Koala, Arabasta Kingdom, Nefertari Cobra, Nefertari Vivi, Nefertari D. Lili, Ryugu Kingdom, Shirahoshi, Fukaboshi, Ryuboshi, Manboshi, Dressrosa, Rebecca, Wheel, Tritobu, Tontatta Kingdom, Mansherry, Zou, Carrot, Germa Kingdom, Vinsmoke Reiju, Wano Country, Kurozumi Tama, Yamato

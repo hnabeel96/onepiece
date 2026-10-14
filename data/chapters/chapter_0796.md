@@ -1,0 +1,50 @@
+# Chapter 796: Soldier-san's Conviction
+
+Arc: Dressrosa Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_796 (CC-BY-SA)
+
+## Cover page
+
+Color Spread: The Straw Hats at the ocean having fun with octopuses.
+
+## Short summary
+
+Three days later, Admiral Issho gets a surprise visit from Sengoku and Tsuru who came to see why he hasn't captured the Straw Hats yet. They later get a visit from Mansherry who is asking for blood donations. Gatz announces to the public of King Riku's return to the throne but the king had doubts if he could return happiness to the country. Rumors are circulating about Rebecca's father being a prince who died in a war, but the rumors were started by Kyros as a way of protecting her.
+
+In the Flower field, Luffy and everyone else have recovered and were forced to leave when Bartolomeo informs them that the Marines are finally coming to arrest them. However, the Straw Hats' allies have already prepared an escape route. Luffy wants to stay behind, stating he has unfinished business on the island.
+
+## Long summary
+
+Three days after the battle in Dressrosa, Sengoku and Tsuru arrive on the island. Sengoku contacts Issho and voices his surprise that Luffy is still on Dressrosa, but is told that Straw Hat was severely injured. Sengoku then jokes to Issho about his prostration and his argument with Sakazuki, but Tsuru tells them to be quiet and asks Issho why he is not pursuing Luffy and Law. Issho reveals that he rolled a die to decide, causing Sengoku to erupt in laughter and Tsuru to cry in anger. Issho says that for the past two days, the roll pointed against capturing them, but then gives the die to Tsuru, saying that if she rolled anything but a one, they would go after Luffy and Law.
+
+Suddenly, Mansherry comes to the Marine encampment, asking for a donation. Tsuru and most of the Marines fawn over her, to Maujii's anger. Mansherry reveals that even though the dwarves are only supposed to show themselves to the Royal Family, she wanted to come and heal everyone's wounds.
+
+On a podium in front of the palace plateau, Gatz announces to the citizens that Riku Doldo III would return to the throne after ten years, to the audience's jubilation. Inside the palace, Elizabello II sits with Riku and reflects how the citizens wanted wealth and power but now they just want peace. Riku hopes that he has what it takes to make his kingdom happy before passing on the throne to Rebecca, and a cautious Elizabello wonders if that is a good idea, remembering how strong-willed Scarlett was. Inside the palace, Rebecca has put on a dress looking very much like Scarlett's. An attendant reveals that she heard that Scarlett married the prince of a faraway country and so it was necessary for her to fake her death. Rebecca grimly remembers Riku telling her that they must pass on the lie because Kyros wants it.
+
+Meanwhile, Kin'emon and Kanjuro ride on one of Kanjuro's birds, talking about the rumor about Rebecca's father. The "prince" was from a country of beautiful lakes engulfed by war, but the prince died in that war, leading Scarlett and Rebecca to live in secret in Dressrosa. They then see Mansherry's flower medicine being sold by the Marines, and a long line has formed to get ahold of this miracle cure. Inside a tent, Sengoku watches Mansherry create the flowers by sucking people's blood, asking if Mansherry could take some from him next.
+
+At Kyros' house, Zoro tells Luffy about the rumor, but Luffy reacts with a mix of anger, sadness, rushing, hunger, and sleepiness while eating meat, annoying Zoro. Luffy attempts to shout the truth, but Usopp tells him to go back to sleep. However, Kyros reveals that he was the one who started the rumor, due to few knowing who Rebecca's father was. He says that he was not the kind of person to be in the Royal Family and that the citizens knew that. Luffy cries out in anger, but Kyros says that he sent Rebecca a letter explaining everything and that he dealt with Riku about it too. Luffy struggles to buy it, when Kyros gets a call from Leo and Bartolomeo comes rushing in. After Bartolomeo expresses his sheer happiness at seeing five of the Straw Hats, he reveals that Sengoku and Tsuru have arrived. The Straw Hats react in shock, and Leo tells Kyros that the Marines are on the move.
+
+The die is rolled, and a six comes up. Issho then orders his men to capture the Straw Hats, Law, and all the criminals being housed at the Royal Palace. The Straw Hats, the samurai, and Law make arrangements to leave, but realize they do not have a ship. However, Bartolomeo tells everyone to follow him to the harbor, as allies from the Colosseum are waiting at points along the route, and there would be a ship there. The Straw Hats get ready to go as the Marines rush toward Kyros' house. Bellamy reveals he can stand due to Mansherry's healing and asks Law why he didn't kill him, and Law replies that Luffy said he was a friend. The Straw Hats, Kin'emon, Kanjuro, Law, Bellamy, and Bartolomeo then run out of the house, hoping to not encounter Fujitora. However, Luffy stops, saying he had something to do and promising to catch up with everyone later. Rebecca hears that Luffy and the others were escaping, and says sadly that she did not get to thank him yet. Meanwhile, Issho prepares to hunt Luffy down.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*Sengoku and Tsuru arrive at Dressrosa.
+**This is their first post-timeskip manga appearance.
+**Sengoku had a post-timeskip appearance in One Piece Film: Z. Even though it was non-canon, the character design looks the same.
+*Mansherry's healing abilities can be increased using donated blood.
+*Riku Doldo III returns to the throne but intends to give it to Rebecca in the future.
+*Rebecca's relationship to Kyros remains a secret to the public.
+*It is revealed that Law was the one who brought Bellamy to Kyros' house due to Luffy calling the latter a friend.
+**It is also said that Bellamy was healed by Mansherry and he flees the house with the others.
+*Issho now decides to go after Luffy and his allies.
+**Upon hearing this news, the Straw Hats decide to leave Dressrosa. However, Luffy stays behind claiming he has unfinished business.
+
+## Characters
+
+## Characters
+
+Pirate, Marines, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Nami, Usopp, Sanji, Tony Tony Chopper, Nico Robin, Franky, Brook, Heart Pirates, Trafalgar D. Water Law, Barto Club, Bartolomeo, Beautiful Pirates, Cavendish, Happo Navy, Sai, Donquixote Pirates, Bellamy, Issho, Tsuru, Hototogisu, Sengoku, Wano Country, Kin'emon, Kurozumi Kanjuro, Dressrosa, Riku Doldo III, Kyros, Viola, Rebecca, Gatz, Tontatta Kingdom, Mansherry, Leo, Maujii, Inhel, Prodence Kingdom, Elizabello II, Corrida Colosseum, Hajrudin, Suleiman

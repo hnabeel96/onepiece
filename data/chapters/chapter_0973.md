@@ -1,0 +1,52 @@
+# Chapter 973: The Kouzuki Clan
+
+Volume: 96  |  Arc: Wano Country Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_973 (CC-BY-SA)
+
+## Cover page
+
+"Gang" Bege's Oh My Family Vol. 21: "Gotti's counterattack"
+
+Gotti attacks the Marines.
+
+## Short summary
+
+Following Oden's execution, the Nine Red Scabbards raced to rescue his family in Oden Castle, which Kaidou had set ablaze as he confronted Momonosuke. Toki sent Momonosuke 20 years forward in time with Kin'emon, Kanjuro, Raizo, and Kikunojo while Kawamatsu took Hiyori to safety. Toki then appeared in front of the onlooking citizens and gave her prophecy before she died.
+
+Denjiro went to a hut, and emerged after a long period of time with his appearance having changed due to his rage. He went to the Flower Capital and started attracting followers, calling himself Kyoshiro. As Kyoshiro, Denjiro rose to become a yakuza boss and entered Orochi's service as his bodyguard. Seven years after Oden's death, he took in Hiyori after finding her on the street, and raised her to become Komurasaki as they prepared for the day of the final battle.
+
+## Long summary
+
+As the Roger Pirates were leaving Skypiea, Kouzuki Oden lifted his son above his head, allowing him to see the horizon, and told him that this is just a small part of the vast world outside Wano Country. During their travels, Oden started teaching Momonosuke various things, much to the surprise of the rest of the crew regarding the subjects he is teaching his young boy. After Oden returned from his travels, Oden spent time with his family, told his retainers about Zou, and listened to his daughter music.
+
+As the Scabbards ran from the Beasts Pirates, Shinobu brought the samurai their weapons, allowing them to cut through the enemy. Shinobu then asked if she could became one of the family retainers, to which Kin'emon replied that none of them asked to become one, so it is up to her to decide, which she tearfully accepted. At the back of the group, Inuarashi and Nekomamushi started to argue, blaming the other for being Kaidou's spy, which ended with them being caught by one of the Numbers. Denjiro and Ashura Doji stayed back to help them, while the rest head forward to Kuri.
+
+At Oden Castle, The Beasts Pirates surrounded the place, as a fire was set below it. Inside, Kouzuki Toki held her children as the pirate broke in. After knocking her out, Kaidou held Momonosuke by the throat on the roof, planning to kill him to end the Kouzuki lineage. Momonosuke replied that he will succeed his father, as a great warrior. Kaidou then tossed Momonosuke inside the burning castle as he flowed away. The Scabbards then crushed in, and Toki called them forward to instruct them about the plan.
+
+After Kin'emon group was sent away, and Kawamatsu escaped with Hiyori, Toki rode to Bakura Town, to deliver her prophecy, as she recalled her life with Oden, before collapsing from her wounds. Fearful of the prophecy, Orochi could not stop shivering. Meanwhile, Ashura, Kawamatsu, and Denjiro prepare themselves for the 20 years to come.
+
+Sometime later, Denjiro's grief and anger, transformed him, making his appearance unrecognizable. Denjiro then headed to the Flower Capital, where he introduced himself as "Kyoshiro", and gathered new followers. With his new reputation, Kyoshiro met with Orochi, and began serving him as the Yakuza boss, taking Hyogoro's position. At the same time, the citizens of the capital began noticing Kyoshiro tired appearance, calling him "Dozing", unbeknownst to them that the reason for this was Denjiro spent his nights stealing money as the "Ushimitsu Kozo".
+
+Thirteen years ago, after Hiyori left Kawamatsu, she was found and brought to Kyoshiro, who recognized her and brought her in. After identifying himself, Denjiro swore to protect Hiyori in Kawamatsu place, and trained her to become "Komurasaki", hiding until the day of the battle foretold by Toki.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*The following are shown:
+**Inuarashi and Nekomamushi getting caught after they escape from the execution site.
+***It appears that Inuarashi and Nekomamushi blame each other for Oden's death, which was the origin for their feud.
+**Denjiro and Ashura Doji separate from the rest of the Nine Red Scabbards.
+**Kaidou threatens to kill Momonosuke during the destruction of Oden Castle but chose to leave him in the burning castle instead.
+**Kouzuki Toki escaped Oden Castle, but she died after giving her prophecy.
+**The Kyoshiro Family's rise to power in the Flower Capital.
+**Denjiro finds Hiyori after her separation from Kawamatsu.
+***Denjiro is revealed to be both "Kyoshiro" and "Ushimitsu Kozo".
+**Hiyori becoming "Komurasaki".
+
+## Characters
+
+## Characters
+
+Pirates, Wano Country, Kouzuki Oden, Kouzuki Toki, Kouzuki Momonosuke, Kouzuki Hiyori, Kin'emon, Kurozumi Kanjuro, Raizo, Inuarashi, Nekomamushi, Kikunojo, Ashura Doji, Kawamatsu, Denjiro, Shinobu, Kurozumi Orochi, Chocho, Beasts Pirates, Kaidou, King, Jaki, Roger Pirates, Gol D. Roger, Silvers Rayleigh, Shanks, Sunbell, Doringo, Fire Tank Pirates, Gotti, Rolling Pirates, Charlotte Lola

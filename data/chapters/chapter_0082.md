@@ -1,0 +1,28 @@
+# Chapter 82: OK, Let's STAND UP!
+
+Volume: 10  |  Arc: Arlong Park Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_82 (CC-BY-SA)
+
+## Cover page
+
+A five-tier display of the Straw Hat Pirates, each depicted with their respective number within the crew. Luffy, Zoro, Sanji, and Usopp are all preparing for battle under the caption "STAND BY"; Nami (still wearing Luffy's hat) weeps, captioned under "STAND THE PAIN".
+
+## Short summary
+
+Luffy confronts Arlong while the rest of the crew fight the other fish-men.
+
+## Long summary
+
+After Luffy's explosive entrance, Arlong identifies himself, to which Luffy does likewise as he walks towards him. He is stopped by two of Arlong's men, stating that he needs to speak to them before continuing, but Luffy simply slams the two's heads together and knocks them out, which shocks Arlong and the other crew members. Arlong asks what another pirate wants with him, but Luffy ignores his attempts at diplomacy and throws a huge punch in the fish-man captain's face, sending him crashing into the opposite wall, appalling the rest of the Arlong Pirates. While doing so, he remembers Nami's tearful plea for help. Arlong doesn't seem to be hurt despite what just happened, and instead angrily wonders what Luffy is doing, as Luffy furiously shouts that Arlong made his navigator cry.
+
+After this declaration of war, the fish-men attack Luffy. However, they are easily knocked back by a few kicks from Sanji, further angering Arlong. As the rest of the crew enter, Sanji berates Luffy for rushing in ahead, but Luffy replies that he won't lose. Sanji retorts he wasn't worried about Luffy, and simply wanted him to leave some fighting for the rest of them. In the very back Usopp says he doesn't mind if Luffy doesn't share, and Zoro needles him over his lack of courage. The rest of the pirates are surprised to see Zoro, with Hatchan particularly enraged after Zoro tricked him, and they are shocked to see that Usopp is still alive as well. Just outside, The rest of the villagers are astonished by the Straw Hat's abilities. Johnny and Yosaku state that even even those four can't defeat the fish-men, there's no hope for the East Blue, and they again make their dedication to preventing the villagers from interfering clear. Genzo demands to know why these men are going so far for their sake, and the pair simply declare that it's enough of a reason that they made Nami cry. Arlong realizes that the four are here for Nami, but he simply laughs, asking what humans can possibly do to fish-men. Hatchan states that Arlong doesn't have time to waste on them, as he summons Momoo with his trumpet-call, to the horror of the villagers and Usopp, as it's revealed he was the one who destroyed Gosa. However, Momoo is still hurt from his earlier encounter with Luffy and Sanji, who are not very surprised to see him again. Remembering the beating he received at their hands, Momoo turns and runs, to Hatchan's bewilderment. Arlong then demands to know if Momoo is running, and while he says he won't stop him, he smiles evilly while doing so. Momoo freezes and begins shaking in fear before deciding he's more afraid of Arlong than he is of the Straw Hats, and turns around and charges them, with the rest of the fish-men following. As the Straw Hat crew ready for a fight, Luffy angrily states that this is a waste of time. He stomps the ground hard enough to embed himself in the rock up to his ankles, winds his body up, and stretches his arms out to grab Momoo's horns, shocking the fish-men with his reveal of his Devil Fruit abilities. Zoro shouts for Sanji to run for it, as he has a bad feeling about what Luffy's about to do, which is confirmed as Luffy uses is wound up body to swing Momoo around him in a giant circle, slamming him into fish-men and the pillars holding up the canopy of the tower, collapsing them. Luffy then sends the unconscious sea cow flying off into the water, as he dramatically turns to Arlong and states that he's only here to beat up him. Arlong, now thoroughly enraged, declares that's perfect, as he now plans on killing Luffy himself. Hatchan, Kuroobi, and Chew prepare to enter the fight themselves, which Zoro is excited about. Meanwhile, Usopp and Sanji angrily berate Luffy for his reckless move.
+
+## Notes & trivia
+
+*This is the first—and as of 2021, only—chapter to use English spelling not only for the title, but the chapter heading as well. It appears to indicate that Eiichiro Oda's preferred translation of "話" is "episode", rather than "chapter".
+*Luffy's Gomu Gomu no Kazaguruma attack is inspired from Genzo's hat (of Chapter 80).
+
+## Characters
+
+Pirate, Bounty Hunter, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Usopp, Sanji, Arlong Pirates, Arlong, Hatchan, Chew, Kuroobi, Nami, Kaneshiro, Shioyaki, Momoo, Cocoyasi Village, Nojiko, Genzo, Nako, Yosaku, Johnny

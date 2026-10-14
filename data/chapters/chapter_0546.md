@@ -1,0 +1,53 @@
+# Chapter 546: Fish-Man Pirate Captain Jinbe, Warlord of the Sea
+
+Volume: 56  |  Arc: Impel Down Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_546 (CC-BY-SA)
+
+## Cover page
+
+Straw Hat's Separation Serial: Robin's So cruel... Final Volume "When the liberators of slaves, the Revolutionary Army arrives at Tequila Wolf".
+
+## Short summary
+
+Luffy and Mr. 3 confront Magellan together as the rest of the prisoners break out into the open, only to find no Marine warships to steal. However, Jinbe takes Crocodile, Mr. 1, and Buggy and launches them aboard a battleship using Fish-Man Karate.
+
+## Long summary
+
+## Level 1, the Crimson Hell
+
+Mr. 3 tells the prisoners and others to stop hanging about and to run, as he is using his Doru Doru no Mi to make a Candle Wall against Magellan's Hydra. As Mr. 3 explains his ability to Magellan, Crocodile says that he is still surprised the way certain Devil Fruits react to each other. The prisoners cheer Mr. 3 on as does Luffy, saying that he forgot that Mr. 3 had the Doru Doru ability. Mr. 3 tells them to hurry, stating that he wants to get out as soon as possible as well. Luffy turns to Jinbe and tells him to go get a battleship, saying that he could hold off Magellan for a bit. Jinbe reluctantly leaves, telling Luffy to be careful.
+
+As Luffy says to Mr. 3 to get ready to fight, Mr. 3 instantly disagrees, saying that the only thing he can do against Magellan was to defend. A number of prisoners also decide to stay and help Luffy and Mr. 3.
+
+Luffy is then seen with wax armor, crying because of the armour's coolness. Magellan then takes this chance and produces another Hydra and attacks, only to be stopped by another Candle Wall. Luffy jumps out of the way and uses Gomu Gomu no Champion Rifle on Magellan, hitting him directly. As Magellan shudders, Luffy celebrates as he can touch Magellan without getting poisoned. The prisoners that stayed behind had found cannons and Mr. 3 had used his power to create a wall with cannon barrels sticking out for cover. They fire upon Magellan who is then set on fire.
+
+## Impel Down, Main Entrance
+
+Mr. 2 Bon Kurei is seen standing on a jailer's head, saying that there was no one to stop them now. However, Mr. 1 tells him that Mr. 2 is an amateur for letting down his guard so easily. As Mr. 2 asks why, Mr. 1 states that there were 10 battleships outside, with 800 Marines stationed on each one. Even if they were to take over one, they would be taking the other 9 at the same time. As the rebellion approach the doors to the outside world, everyone is shouting for freedom and that if they were free, it would be heaven whilst if they were caught, it would be Hell.
+As they enter the outside world, there are no ships to be seen, only blue seas.
+Every prisoner is surprised and horrified at the fact that they would end up in Impel Down after all. Crocodile says that the enemy wasn't as stupid as previously thought with Sea Kings in the Calm Belt.
+Jinbe however points out that the Marine warships were still visible in the mist. A prisoner complains that they were too far away to reach, at which Jinbe tells them not to worry.
+
+## Outside Impel Down, Calm Belt
+
+Jinbe hauls one of the doors of the gates to Impel Down, throwing in the sea. The prisoners cheer on Jinbe as Buggy, Mr. 1 and Crocodile jump onto the makeshift boat. A prisoner says that seeing a Warlord of the Sea raises their hopes of survival. Even though Buggy has a number of loyal supporters, he thinks to himself that he'd rather be safe with two Warlords of the Sea than be close to be Magellan. A cannon ball explodes in the water, right next to the door-boat.
+
+As the Marines identify the Knight of the Sea, they begin to target him. To Buggy's surprise, Jinbe reveals he will be shooting the door-boat onto a Marine warship. Buggy begins to panic, believing that Jinbe had abandoned them. Crocodile tells him to shut up and be calm.
+
+Underwater, Jinbe uses Fish-Man Ju-Jitsu: Mizu-Gokoro which appears to be a move that gives Jinbe to hold water and create a current using it. Jinbe uses the current to shoot the door-boat over in an arch, landing on a Marine warship. As Mr. 1 and Crocodile land on their two feet, Buggy falls down face first. 
+The Marines quickly surround the three intruders, stating that since they were all fruit users, if they were in the sea, they would be powerless. Mr. 1 and Crocodile give the Marines menacing glares. As the Marines prepare to fire upon them, Jinbe uses Fish-Man Karate: Spear Wave, which goes straight through one side of the ship and out the other in a diagonal. Jinbe apologizes for being careless and ends the chapter.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*The revolutionary army liberates Tequila Wolf.
+*It is revealed that the Doru Doru no Mi can stop the Doku Doku no Mi in battle.
+*Fish-Man Jujutsu is introduced.
+
+## Characters
+
+## Characters
+
+Pirate, Impel Down, Seven Warlords of the Sea, Marines, Straw Hat Pirates, Monkey D. Luffy, Nico Robin, Buggy and Alvida Alliance, Buggy, Magellan, Jinbe, Crocodile, Daigin, Revolutionary Army, Bunny Joe, Baroque Works, Daz Bonez, Galdino, Bentham

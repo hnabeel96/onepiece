@@ -1,0 +1,52 @@
+# Chapter 710: To Green Bit
+
+Arc: Dressrosa Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_710 (CC-BY-SA)
+
+## Cover page
+
+Color Spread: The Straw Hats are dressed up as kung fu characters.
+
+## Short summary
+
+At the arena, Luffy goes to talk to Bellamy, who is being carried away along with the other defeated fighters. Bellamy tells Luffy that his cheering crushed his pride, unknowingly revealing Luffy's identity to Bartolomeo who overheard them.
+
+With the Caesar Exchange team, the group is having difficulty fending off the fighting fish on the bridge to Green Bit. As they fight their way through, the bridge gets destroyed in front of them and a large fighting fish attempts to ram them, but is caught in a net by an unseen group before it could reach them. Usopp tries to call them to help them across, but instead the unknown fishermen hasten their retreat with their prize.
+
+With no other choice, the team decides to fly across with help from Caesar Clown. Upon their arrival to Green Bit, the group discovers a Marine ship that crashed and believed that the Marines had landed on the island. With fourteen minutes left before the exchange, Robin and Usopp begin to scout the island as Law takes Caesar to the meeting point.
+
+As they explore, Robin and Usopp discover a squad of Marines who are getting attacked by the forest's inhabitants, losing all of their belongings. As soon as the Marines fled, Robin uses her Devil Fruit power to capture the fast and seemingly invisible thieves. Usopp asks her what she has caught, and she tells him that she believes they are dwarves.
+
+## Long summary
+
+After the B block battle royale has finished Bellamy is being taken away on a stretcher and as he passes Luffy he comments that he has not changed a bit, Luffy on the other hand disagrees and that he has changed. Bellamy laughs at this and tells Luffy that he is the one that has changed, commenting on his exceptional Haki, he then tells Luffy that the whole rooting for him thing has crushed his pride and calls him "Straw Hat", which gets the attention of Bartolomeo who is standing a couple feet away.
+
+At the bridge to Green Bit the "Caesar Exchange Team" is making their way across the iron bridge with 45 minutes left until the agreed upon time to exchange Caesar Clown. Unfortunately for them they are being attacked by a school of Fighting Fish who are so big that the iron bridge bends easily under their weight, which prompts Robin to wonder if they really are fish to which Law responds that they are, although Usopp disagrees and Caesar says they are the same as sea monsters. But Law does not seem very agitated by the fish and comments that it is not a problem that Usopp and Robin cannot handle, which confuses Usopp who believes that since Law is a Shichibukai he should be the one dealing with the fish. The school of fish starts to attack the bridge again forcing Robin and Usopp to deal with them, much to the happiness of Law, but realizing that there are too many fish to deal with they decide to make a run for it. Law also tells Usopp to take off Caesar's handcuffs so that he may help out, stating that Caesar will not run away as long as he is still in possession of Caesar's heart, which angers Caesar. Caesar helps out by defeating some of the fish while the other three run, Usopp then asks Law again as to why he is not fighting to which Law responds that he has to save all his energy for his fight with Doflamingo much to Caesar's shock.
+
+The group then encounters some more bad luck as the next part of the bridge has been destroyed by the fish as well as the fact that it is surrounded by fog and what is worse another fighting fish jumps out of the water to attack the group. Fortunately the fish is stopped by some kind of fishing net much to the surprise of the group, voices are then heard on the other side of the bridge which makes the group wonder who it may be and Usopp calls out asking if anyone is on the other side and if they can help them get across. This however surprises and scares off the mysterious strangers, Law then makes Caesar use his gas powers to fly the group over to Green Bit much to the annoyance of Caesar.
+
+Upon arriving at Green Bit the group can not find any traces of the people who captured the fish and notice both the large number of wrecked ships and the giant, lush forest of Green Bit. Law then observes that the southeast beach is just up ahead while Usopp notices a Marine ship that had crashed into the island and Robin uses her binoculars to confirm that the ship had damaged the plants and trees just recently. Robin also notes that the ship itself is not very damaged and Caesar starts to get paranoid that the exchange has been compromised and complains to Law who is wondering how to make his next move. Caesar begs Law to call off the exchange as the Marines are there and he is an enemy of the Marines, but Law refuses, noting that since he is an ally of the Straw Hat Pirates the Marines are now his enemy too and that he will need Robin and Usopp's skills to check out the forest and make sure there is nothing strange going on.
+
+Robin and Usopp then leave to search the forest with 14 minutes until the exchange takes place with Robin taking the lead and Usopp trailing behind. The two then notice a bunch of Marines in a clearing talking with an unknown person, the Marines ask if he is a Straw Hat to which the unknown person comments that he is not and that his name is Leo. Leo then asks whether the Marines are good guys or bad guys, to which the Marines respond that they are good guys, prompting Leo to ask that they lay down their weapons. Unfortunately the Marines do not and in the blink of an eye they are stripped down to their underwear. The Marines run away while Robin uses a new technique to try and capture the culprits, whom she believes are dwarves.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*Bartolomeo finds out that Monkey D. Luffy is in the Colosseum.
+*Law takes Caesar's heart so he cannot escape after freeing him from the seastone to fight the fighting fish.
+*Law states that the more he uses his powers, the more it depletes his strength.
+*Law, Robin, Usopp, and Caesar cross the bridge and arrive at Green Bit.
+*A Marine ship has crashed onto the island.
+*Robin and Usopp split up from Law.
+*A group of Marines are stripped by mysterious attackers.
+*Robin theorizes that dwarves inhabit Green Bit.
+*Robin reveals two new attacks, one of them an extension of Spank with larger arms and the other one entirely new.
+*There are fourteen minutes left until the exchange when Robin and Usopp leave to search the forest.
+
+## Characters
+
+## Characters
+
+Pirate, Marines, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Nami, Usopp, Sanji, Tony Tony Chopper, Nico Robin, Franky, Brook, Heart Pirates, Trafalgar D. Water Law, Donquixote Pirates, Donquixote Doflamingo, Bellamy, Barto Club, Bartolomeo, G-5, Smoker, Punk Hazard, Caesar Clown, Tontatta Kingdom, Leo, Kabu

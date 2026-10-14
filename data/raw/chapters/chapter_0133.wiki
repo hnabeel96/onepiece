@@ -1,0 +1,72 @@
+{{Chapter Box
+| title = Adventure in a Nameless Country
+| jname = 名もなき国の冒険
+| rname = Na mo Naki Kuni no Bōken
+| ename = Adventure in a Nameless Country
+}}
+
+'''Chapter 133''' is titled "Adventure in a Nameless Country".
+
+==Cover Page==
+[[Cover Page#Color Spread|Color Spread]]: [[Monkey D. Luffy|Luffy]], [[Sanji]], and [[Nami]] cross a snowy land on a longboat-esque sledge, apparently searching for [[Roronoa Zoro|Zoro]]. Luffy is showing Zoro's [[Bounties|wanted poster]] to a goat-like monster, getting only a confused look in return.
+
+==Short Summary==
+The [[Straw Hat Pirates|Straw Hats]] are guided by [[Dalton]], the guard captain, to [[Bighorn]], a village of [[Drum Island]]. There is only one doctor on the island, Dr. [[Kureha]], who lives in a castle at the top of a steep mountain. To reach her quickly, [[Monkey D. Luffy|Luffy]] and [[Sanji]] decide to climb the mountain, carrying [[Nami]] on their back.
+
+==Long Summary==
+[[Dalton]], the guard of the island, leads the [[Straw Hat Pirates|Straw Hats]] toward his village. [[Roronoa Zoro|Zoro]] and [[Karoo]] stay behind to guard the [[Going Merry]]. The island seems to be in an important time of its history since strange things are hinted: it has no name, the villagers are making a police force, and an election is about to occur. But to the Straw Hats' misfortune, there is only one doctor—a 140 year old lady, Dr. [[Kureha]]—whom the villagers call a witch. She lives in a castle at the top of a steep mountain and only comes down to treat patients when she so desires. However, according to Dalton, she is very skillful at her practice.
+
+With [[Nami]]'s fever climbing, [[Monkey D. Luffy|Luffy]] decides to climb the mountain instead of waiting for the doctor. Nami agrees and Luffy and [[Sanji]] depart with the sick girl on Luffy's back.
+
+Dalton explains to [[Nefertari Vivi|Vivi]] and [[Usopp]] that their country has recently been attacked by a handful of pirates led by [[Marshall D. Teach|Blackbeard]]. However, in their misfortune, it allowed them to get rid of their king tyrant: [[Wapol]]!
+
+==Quick Reference==
+===Chapter Notes===
+*Dalton is formerly introduced as [[Drum Island|Drum]]'s guard captain.
+*Wapol used to be the king of Drum but fled when the island was rampaged by [[Blackbeard Pirates]].
+*The only doctor of Drum is a witch named Dr. Kureha. She lives with a [[Tony Tony Chopper|weird creature]].
+
+===Characters===
+{| class="CharTable"
+!colspan="2"| [[Pirate]]s
+! Citizens
+! [[Animal Species|Animals]]
+|-
+|
+;[[Straw Hat Pirates]]
+*[[Monkey D. Luffy]]
+*[[Roronoa Zoro]]
+*[[Nami]]
+*[[Usopp]]
+*[[Sanji]]
+|
+;[[Blackbeard Pirates]]
+*[[Marshall D. Teach|Blackbeard]] ''(shadowed)''
+*[[Van Augur]] ''(shadowed)''
+*[[Jesus Burgess]] ''(shadowed)''
+*[[Doc Q]] ''(shadowed)''
+*[[Laffitte]] ''(shadowed)''
+----
+;[[Bliking Pirates]]
+*[[Wapol]] ''(flashback)''
+|
+;[[Drum Island]]
+*[[Dalton]]
+*[[Kureha]] ''(shadowed)''
+*[[Tony Tony Chopper]] ''(shadowed)''
+*[[Negikuma Maria]]
+----
+;[[Arabasta]]
+*[[Nefertari Vivi]]
+*[[Karoo]]
+|
+*[[Animal Species/Arabasta Saga#Hiking Bear|Hiking Bear]]
+|}
+
+
+==Trivia==
+*In the chapter's initial publishing in ''[[Weekly Shonen Jump]]'', the first story page was printed in full color.
+
+==Site Navigation==
+{{Drum Island Arc}}
+[[de:Na mo naki Kuni no Bōken]]

@@ -1,0 +1,82 @@
+{{Chapter Box
+| title = Amigasa Village
+| image = 
+| jname = 編笠村
+| rname = Amigasa-mura
+| ename = Amigasa Village
+}}
+
+'''Chapter 912''' is titled "Amigasa Village".{{Sort}}
+
+==Cover Page==
+[[Cover Page#Color Spread|Color Spread]]: The [[Straw Hat Pirates]] doing individual sports.
+
+[[Monkey D. Luffy]]: Karate, [[Roronoa Zoro]]: Baseball, [[Brook]]: Soccer/Association football, [[Nami]]: Tennis, [[Sanji]]: Swimming, [[Franky]]: Basketball, [[Tony Tony Chopper]]: Boxing, [[Nico Robin]]: Horseback riding, and [[Usopp]]: Shooting. (Counterclockwise from bottom)
+
+==Short Summary==
+[[Monkey D. Luffy|Luffy]] reveals to [[Tama|O-Tama]] that [[Ace]] has died, causing her to pass out. Her master [[Tenguyama Hitetsu]] reveals that Tama grew close to Ace after he arrived at Wano Country and saved their home, Amigasa Village, from a famine. However, Amigasa Village was destroyed by [[X Drake]] during the [[Beasts Pirates]]' takeover.
+
+Luffy decides to take Tama to a doctor at the nearest town, and borrows Hitetsu's cursed [[Famous Blade]] [[Nidai Kitetsu]] without Hitetsu's permission. Luffy and Tama arrive at a massive polluted wasteland when they run into [[Roronoa Zoro|Zoro]] saving a [[Tsuru (Wano)|woman]] from attackers. [[Basil Hawkins]] then comes to confront Luffy and Zoro as they reunite, and the two of them prepare to fight.
+
+==Long Summary==
+[[Monkey D. Luffy|Luffy]] makes it clear to [[Tama|O-Tama]] that he knows [[Ace]] as well, only to then reveal that he is dead. Tama is greatly shocked and refuses to believe Luffy before passing out. Her master, [[Tenguyama Hitetsu]], berates Luffy for being insensitive and not waiting for a better time to reveal that. He reveals that he is a bladesmith who, like Tama, has been waiting here for someone. This was once a place called Amigasa Village, but [[X Drake]], who had become a headliner in the [[Beasts Pirates]], had destroyed the village after defeating the five samurai guarding it. The Flower Capital was now the only prosperous place left in [[Wano Country]], as [[Kaidou]]'s tyranny had turned everything else into a lawless wasteland. About four years ago, Amigasa Village was going through a famine. Everyone had nearly starved to death when Ace and his crew washed ashore, and the villagers tied them up and took their food. Ace escaped but was fine with what happened, and decided to stay in the village for a few weeks, which was when he grew close to Tama.
+
+Luffy decides to go looking for a doctor as well as food and water in order to repay Tama, and Hitetsu has him change into a kimono. While Hitetsu cannot accompany Luffy, he tells the pirate to look for someone to lend him money, or to find one of his allies who will help for free. Luffy decides to take a sword with him to make him look like a samurai, but Hitetsu tries to stop him, revealing that it is the cursed [[Famous Blade#21 Great Grade Blades|Great Grade]] sword [[Nidai Kitetsu]] that his ancestor [[Kotetsu]] made. Luffy does not care, and races off with Tama despite Hitetsu not wanting the sword's curse to harm Tama. [[Komachiyo]] approaches Luffy to give him and Tama a ride, and Tama regains consciousness as she continues asserting that Luffy is lying about Ace's death. She remembers wanting to join Ace's crew, and Ace told her that if she was strong when he came back, he would take her along. Tama hits Luffy as she keeps refusing to believe him, when the two of them come to a massive wasteland outside of the forest of [[Kuri]]. Luffy sees several large animals running around and wants to hunt them, but Tama reveals that they are poisonous due to drinking the contaminated river water. She then reveals that Kaidou and the shogun have their own clean farms to eat from before passing out again, and Luffy has Komachiyo head for the quarry and the weapons factory in the distance.
+
+Luffy then hears someone chasing after a woman, and wonders if it is [[Sanji]], but sees that it is two scouts trying to rob her. The scouts are then suddenly cut down, and as Luffy sees their attacker rummaging around for booze, he realizes that it is [[Roronoa Zoro|Zoro]]. Luffy calls out to Zoro, and the two happily reunite. Zoro reveals that he has been hunting the animals around here, which has given him a stomachache. Before they can get going to help Tama, however, they are then confronted by [[Basil Hawkins]], who recognizes the nationally-wanted criminal Zoro and the intruder Luffy. Hawkins says that to survive in Wano Country, they can only either follow the strong or live in hiding, and Luffy and Zoro prepare to fight, saying they will apologize to [[Kin'emon]] later for causing a disturbance.
+
+==Quick References==
+===Chapter Notes===
+*[[Monkey D. Luffy|Luffy]] reveals [[Portgas D. Ace|Ace]]'s death to [[Tama|O-Tama]] and her master, [[Tenguyama Hitetsu]].
+**Tama's past with Ace is explained.
+**Hitetsu reveals he is also waiting for someone.
+*[[X Drake]] had a role in destroying Tama's village.
+**He is also revealed to be one of the [[Beasts Pirates]]' headliners.
+*According to Hitetsu, the only prosperous place left in [[Wano Country]] is the capital, where [[Kurozumi Orochi]] resides.
+*Luffy takes a [[Kitetsu]] sword from Hitetsu, which is revealed to be [[Nidai Kitetsu]].
+*While taking Tama to a doctor, Luffy reunites with [[Roronoa Zoro|Zoro]] and they encounter [[Basil Hawkins]].
+**Zoro has somehow reacquired [[Shusui]].
+**According to Hawkins, Zoro is now known as a criminal throughout the country going by his Zorojuro alias.
+
+===Characters===
+{| class="CharTable"
+! colspan="2"|[[Pirates]]
+! Citizens
+|-
+|
+;[[Straw Hat Pirates]]
+*[[Monkey D. Luffy]]
+*[[Roronoa Zoro]]
+*[[Nami]] ''(cover)''
+*[[Usopp]] ''(cover)''
+*[[Sanji]] ''(cover)''
+*[[Tony Tony Chopper]] ''(cover)''
+*[[Nico Robin]] ''(cover)''
+*[[Franky]] ''(cover)''
+*[[Brook]] ''(cover)''
+|
+;[[Hawkins Pirates]]
+*[[Basil Hawkins]]
+----
+;[[Drake Pirates]]
+*[[X Drake]] ''(image)''
+----
+;[[Spade Pirates]]
+*[[Portgas D. Ace]] ''(flashback)''
+*[[Mihar]] ''(flashback)''
+*[[Aggie 68]] ''(flashback)''
+*[[Ducky Bree]] ''(flashback)''
+|
+;[[Wano Country]]
+*[[Tenguyama Hitetsu]]
+*[[Tama]]
+*[[Komachiyo]]
+*[[Tsurujo|Tsuru]]
+|}
+
+
+==Trivia==
+*This chapter was released with the [[Chapter 1 (Shokugeki no Sanji)|first chapter]] of [[Shokugeki no Sanji]].
+
+==Arc Navigation==
+{{Wano Country Arc}}

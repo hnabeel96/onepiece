@@ -1,0 +1,33 @@
+# Chapter 63: I Won't Die
+
+Arc: Baratie Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_63 (CC-BY-SA)
+
+## Cover page
+
+Richie Crew's Adventure Chronicles, Conclusion: "The Pulverization of the Richie Crew".
+
+Richie "leads" his new crew into a quick, brutal defeat at the hands of the Kumate Tribe.
+
+## Short summary
+
+Luffy runs after Don Krieg as he is upset for the way he has treated Gin. Meanwhile, Patty and Carne give Gin extracted antidote from a gas mask, as he is suffering from Krieg's poison bomb.
+
+Don Krieg is amused by Luffy's move and fires several spikes at him from his weapon. Luffy does not waver and accepts the pain in order to get closer to the enemy. Finally, Luffy reaches Don Krieg after sustaining several stab wounds and readies an attack. Krieg protects himself behind a cape made of spikes at the last second. Despite this protection, Luffy lands a confident punch to Krieg's jaw through the spiked cape, sending him to the ground. Luffy proclaims he will not die here.
+
+## Long summary
+
+After Don Krieg shoots the MH5 gas bomb, he further angers Luffy and Sanji by claiming that Gin is garbage and it's proper to die by his own hands as his commander. Krieg's crew cannot believe what is happening to Gin at Krieg's hands. Patty and Carne emerge from the restaurant, and Sanji immediately calls to them for any antidote the Baratie may have. They show a little hesitance to help an enemy, but Sanji urges them to comply. Zeff lets them know that they need to put a gas mask on him right away, to use whatever antitoxin might be left in it. Then take him up to the upper deck for clearer air, as this could be the only way to save him. Patty and Carne are amazed by this quickly-placed wisdom, until Sanji snaps them out of their stupor, and they rush to help. 
+
+Luffy becomes angry with Krieg and tells Gin that he can't die and has to survive to spite his terrible captain. Krieg estimates that Gin has about an hour left to live. Luffy promises to beat Krieg no matter what, but Gin is still certain that he cannot beat Krieg. He gets carried off, and Luffy turns to confront the pirate captain, but he is held back by Sanji who doesn't want him to get killed. But Luffy brushes the hand away and firmly states, "I won't die," then rushes headlong toward Krieg, fearing no bullets or stakes. Sanji is forced to accept Luffy's decision, and Krieg smirks at Luffy's stubbornness - what he perceives to be reckless foolishness.
+
+Don Krieg mocks his repeated attempts as he tosses bombs at the bridge in front of him, welcoming Luffy to his grave. The explosion again creates a wave that obscures the bridge in sheets of water, and Krieg fires another round of stakes. Sanji hears the stakes come in contact with Luffy, and Krieg notes how his enemy would rather die than retreat with mild intrigue. Defying all norms, Luffy crosses through the mist, now sporting a stake in his side and his left shoulder, but otherwise undeterred. He uses Krieg's tactic against him when he flips forward to crash the surface of the water with an outstretched leg. He stretches his arm behind him with the intent of punching him through the screen of water. Krieg sees that he is determined to land a hit no matter the cost, so he thinks fast and implements his porcupine cape, a cloth studded with spikes large enough to cover his whole body. He thinks himself invulnerable, but Luffy delivers a solid blow to his jaw, despite his fist meeting the field of spikes. For the first time in the fight, Krieg has been sent sprawling to the ground. 
+
+Luffy asks Krieg then, if this is his grave or Krieg's, as he pulls the stake from his shoulder. He proclaims that he doesn't have sneaky weapons like Krieg, but he's still a viable fighter who won't die here. Sanji watches on and claims that Luffy is crazy, but Zeff tells him to watch Luffy fight. While Zeff talks to Sanji, the situation with Gin unfolds, as Patty and Carne tend to him on the top deck of the restaurant.  They try to make sure he breathes, and Patty suggests making some food for him, to which Carne replies that he has already been poisoned once today. They start arguing, but get interrupted upon hearing Gin start to hack and cough. Zeff continues relating to Sanji that it's not often that a person comes along who will not quit fighting once he has his eyes set on a particular goal. Regardless of if Luffy wins or loses this fight, that's the kind of man Zeff respects, and this gets Sanji thinking.
+
+The Krieg pirates are getting nervous, and the chefs start cheering Luffy on, having been won over by his spirit. Krieg gets up off the ground and punches at Luffy in a rage, catching him on the shoulder guard, and smirking as he fires the built-in cannon. But he pays for this miscalculation, when Luffy escapes before the blast and hooks his foot around Krieg's neck, bringing him down a second time.
+
+## Characters
+
+Pirate, Straw Hat Pirates, Monkey D. Luffy, Krieg Pirates, Krieg, Gin, Buggy Pirates, Richie, Baratie, Zeff, Sanji, Patty, Carne, Kumate Tribe

@@ -1,0 +1,93 @@
+{{Chapter Box
+| title             = The Times They Are A-Changin'
+| jname             = {{Ruby|The|ザ}} {{Ruby|Times|タイムズ}} {{Ruby|They|ゼイ}} {{Ruby|Are|アー}} {{Ruby|A|エー}}-{{Ruby|Changin'|チェンジン―}} ―時代は変わる―
+| rname             = Za Taimuzu Zei Ā Ē-Chenjin ―Jidai wa Kawaru―
+| ename             = The Times They Are A-Changin'
+| page              = 17}}
+'''Chapter 572''' is titled "The Times They Are A-Changin'".
+
+==Cover Page==
+[[Straw Hat Pirates|Straw Hats]] and Animals: [[Nefertari Vivi|Vivi]] is relaxing and reading a book while sitting on the sloth.
+
+==Short Summary==
+[[Monkey D. Luffy|Luffy]] and [[Portgas D. Ace|Ace]], now free, fight their way through the [[Marine]] soldiers as [[Sengoku]] grumbles in disgrace. [[Squard]] charges in with one of [[Edward Newgate|Whitebeard]]'s ships, but Whitebeard stops it, saying that his crew must return to the New World alive. As [[Whitebeard Pirates|his crew]] and allies look on in amazement, Whitebeard states that it is time to settle matters with the Marines.
+
+==Long Summary==
+All of Whitebeard's allies cheer on [[Monkey D. Luffy|Luffy]] and [[Portgas D. Ace|Ace]] for their efforts, while the Impel Down escapees stand amazed at Luffy's feats up to that point. The [[Marines]] brace themselves to stop Ace and Luffy, who get ready to break through. As the Marines open fire, Ace and Luffy easily fight back against the soldiers. Whitebeard's forces try to create a path for Luffy and Ace, while the Marines continue to attempt to execute the two. [[Kuzan|Aokiji]] fires a mass of ice at them, which Ace blocks with an enormous wall of fire. [[Sengoku]] grumbles in disgrace that he had allowed the two to get away; [[Donquixote Doflamingo|Doflamingo]] suggests they let them get away to make things more interesting, which Vice Admiral [[Momonga]] scolds him for; [[Sakazuki|Akainu]] swears that he will not allow any of them to leave; the Marines come across [[Galdino|Mr. 3]], who is lying exhausted from his actions.
+
+Whitebeard's extra ship suddenly comes plowing through Marineford, being driven by [[Squard]]. Squard reveals that he wishes to stall the Marines while the others escape. [[Polo Marco|Marco]] comments on Squard's stupidity as an ally unlocks the Seastone cuffs around him. As the ship pulls closer into the city, it screeches to a halt, as Whitebeard stops it with one hand. Whitebeard shouts out that Squard had done nothing, as he was reaching the end of his lifespan anyway; he then says that he's about to deliver his final "captain's order". While his men try to talk him out of it, [[Edward Newgate|Whitebeard]] bellows out that they must part ways, and that they must all return to the [[New World]] alive at all costs. He claims that he is nothing more than a remnant of an era gone by, delivering an enormous quake into the city of Marineford. Reminiscing, the crew of his past ask Whitebeard what he wants if he does not desire treasure, and to the crew of his present he says that he has had a long journey, and is ready to settle things with the Marines.
+
+==Quick References==
+===Chapter Notes===
+*[[Edward Newgate|Whitebeard]], satisfied with [[Portgas D. Ace|Ace]]'s freedom, gives [[Whitebeard Pirates|his crew]] and allies one final order.
+*The chapter's title is based on [[Wikipedia:Bob Dylan|Bob Dylan]]'s song, "[[Wikipedia:The Times They Are a-Changin'|The Times They Are a-Changin']]".<ref name="watchmen">[[SBS]] ''One Piece Manga'' - [[SBS Volume 59]], fan question: is the title of Chapter 572 based on Bob Dylan's song?</ref>
+
+===Characters===
+{| class="CharTable"
+! colspan="2"|[[Pirate]]s
+! [[Marines]]
+! [[Seven Warlords of the Sea]]
+! Others
+|-
+|
+;[[Whitebeard Pirates]]
+*[[Edward Newgate]]
+*[[Polo Marco|Marco]]
+*[[Portgas D. Ace]]
+*[[Vista]]
+*[[Blamenco]]
+*[[Rakuyo]]
+*[[Blenheim]]
+*[[Curiel]]
+*[[Kingdew]]
+*[[Haruta]]
+*[[Atmos]]
+*[[Fossa]]
+*[[Izou]]
+*[[Skull]]
+|
+;[[Whitebeard Pirates#Allies|Whitebeard Alliance]]
+*[[Squard]]
+*[[Epoida]]
+*[[Karma]]
+*[[Andre]]
+*[[Wallem]]
+*[[A O]]
+*[[Zodia]]
+*[[Great Michael]]
+*[[Monkey D. Luffy]]
+|
+;[[Fleet Admiral]]
+*[[Sengoku]]
+----
+;[[Admiral]]s
+*[[Sakazuki|Akainu]]
+*[[Kuzan|Aokiji]]
+----
+;[[Vice Admiral]]
+*[[Momonga]]
+|
+*[[Donquixote Doflamingo]]
+----
+;Former
+*[[Jinbe]]
+|
+;[[Revolutionary Army]]
+*[[Emporio Ivankov]]
+----
+;[[Baroque Works]] (disbanded)
+*[[Galdino]] (K.O.)
+----
+;[[Noble]]s
+*[[Nefertari Vivi]] (cover page)
+|}
+
+
+==References==
+<references />
+
+==Site Navigation==
+{{Marineford Arc}}
+[[ca:Capítol 572]]
+[[it:Capitolo 572]]
+[[es:Capítulo 572]]

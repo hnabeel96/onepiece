@@ -1,0 +1,38 @@
+# Chapter 529: Level 2 Wild Beast Hell
+
+Volume: 54  |  Arc: Impel Down Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_529 (CC-BY-SA)
+
+## Cover page
+
+Straw Hats and Animals: Luffy is riding on the back of a beetle at night. The beetle apparently has lights coming from its eyes.
+
+## Short summary
+
+Jinbe informs Ace about the protection Whitebeard has given to Fish-Man Island and many other locations, and states his desire to escape in order to stop the war. Luffy, Buggy, and Mr. 3 encounter the sphinx and fall down into Level 3.
+
+## Long summary
+
+Jinbe states that the World Government knows him as a "pirate-hating pirate". However, he said to Portgas D. Ace, who is in the same cell, that the Whitebeard Pirates are a different story. He reveals while Portgas D. Ace, the Fire Fist, Second Division Commander was sailing the seas, Jinbe had visited Whitebeard's ship several times. Ace is reminded of a time when Jinbe had nearly killed him in a fight.
+
+Jinbe goes on to say that the only reason there is peace on Fish-Man Island is because of "good ol' Whitebeard." As we know, most pirates have to pass through Fish-Man Island, which is in the Red Line, to get to the New World. Jinbe states that since the beginning of the great Pirate Age, humans in their hordes passed through Fish-Man Island, followed by the Marines, chasing after them. When humans passed through, many fish-men and mermaids were kidnapped, and when the fish-men were about to give up forever, Whitebeard appeared and declared that Fish-Man Island was now his territory. Jinbe states that he will never forget that day. From that day forth, no finger was ever laid on a fish-man again, due to Whitebeard's reputation. It is also assumed by Jinbe that more islands are being protected by Whitebeard's name and that if Whitebeard were to die, then the sea would turn back to the olden days.
+
+Jinbe says that he wants to get out of Impel Down to stop the fighting and free Ace. He says that he is waiting for a miracle to happen, when he is interrupted by a laugh. This person comments on the situation, saying it was "fine". He says that his blood was racing, as there was a one-in-a-lifetime chance to kill Whitebeard. Jinbe recognizes him but Ace laughs, asking if he was going to take Whitebeard's head. The voice replies, not just him and the entire Level chorus in agreement. Prisoners celebrate that Whitebeard could die, shouting "time to put an end to the Age of Whitebeard." The voice tells Jinbe and Ace that there are lots of "silver medalists", people who choked back their tears as they were beaten by Whitebeard or Roger.
+
+Images show up on a monitor's screen: a Basilisk knocked out, its unconscious body flattening the Level 2 Monitor Room. A jailer spots the perpetrators on a monitor, saying that they are three rather than the first assumption of two intruders. Luffy, Buggy and Mr. 3 are battling puzzle scorpions and manticores. Buggy mistakes the manticores for the Boss of Level 2 but Mr. 3 shoots down the idea, saying manticores were man-eating lions with human parts. A manticore speaks and says, "Give us the Keys!" which surprises Luffy. Mr. 3 explains that the human part of the manticores gave them speech and that they were repeating what the prisoners were saying. As if on cue, the manticores shout out names of traditional Japanese underwear. One manticore says, "beef steak," at which point Luffy turns around but is forced to keep running, after being told not be distracted.
+
+Mr. 3 is surprised that Luffy is trying to get in, rather that out to save Ace. Mr. 3 tries to leave but is stopped by Luffy, who tells him where to go. Mr. 3 decides to help Luffy only to escape on his own, remembering that the stairs from Level 1 lead down to level 3 also. Mr. 3 bumps into what appears to be a dead end, only to be a Sphinx, a human faced, feathered lion. Being the boss of Level 2, it chases the trio around, shouting random names of noodles. The Sphinx tries to flatten the trio while the prisoners comment on the Sphinx, saying it is going wild. Luffy also comments, saying that it is strong. However, Mr. 3 and Buggy formed the "Jailbreak Gang" and started Operation Use-Straw Hat-Luffy-As-Bait. To their horror, Luffy used "Gomu Gomu no Bazooka" on its head, making it angrier. Buggy flies towards the ceiling, using his Bara Bara no Mi. The Sphinx flattens Mr. 3 who crumbles, which turns out only to be a statue of him, due to his Doru Doru no Mi powers. Mr. 3 continues to make wax figures of himself, which the Sphinx destroys all of them, resembling a game of "whack-a-mole". The ground starts to shake and Level 3 Monitor Room reports a great commotion on Level 2. Buggy and Mr. 3 run for the door to stairway when the floor collapses, due to the Sphinx smashing the wax figures. The Sphinx, Luffy, Mr. 3, and Buggy fall into Level 3.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*Fish-Man Island is under Whitebeard's protection.
+*Luffy, Buggy, and Mr. 3 fall down to Level 3, along with the Sphinx.
+
+## Characters
+
+## Characters
+
+Pirate, World Government, Seven Warlords of the Sea, Straw Hat Pirates, Monkey D. Luffy, Buggy and Alvida Alliance, Buggy, Whitebeard Pirates, Edward Newgate, Portgas D. Ace, Impel Down, Basilisk, Sphinx, Manticores, Puzzle Scorpions, Jinbe, Crocodile, Baroque Works, Galdino, Marianne

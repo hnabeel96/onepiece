@@ -1,0 +1,30 @@
+# Chapter 52: The Oath
+
+Arc: Baratie Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_52 (CC-BY-SA)
+
+## Cover page
+
+Color Spread: Eight headshots in two tiers, the top focusing on the Straw Hat Pirates—Nami, Zoro, Luffy, and Usopp—and the bottom on the Baratie principals—Krieg, Mihawk, Zeff, and Sanji. In-between, Patty, Johnny, and Yosaku squeeze themselves into various letters of the "ONE PIECE" logo.
+
+## Short summary
+
+Roronoa Zoro has been utterly defeated and nearly killed by Dracule Mihawk. Luffy attacks Mihawk out of anger, but he reveals that Zoro is still alive. Johnny, Yosaku, and Usopp recover Zoro's body from the ocean and administer what first aid they can. After regaining consciousness, Zoro tearfully promises his captain that he will never lose again until he defeats Mihawk and becomes the World's Greatest Swordsman. After Mihawk's departure, Usopp, Zoro, Johnny, and Yosaku set off to retrieve Nami. Luffy on the other hand stays back and decides to help the chefs of the Baratie against Don Krieg.
+
+## Long summary
+
+Luffy, Usopp, Johnny and Yosaku are horrified at the cut Zoro has received, while the Krieg Pirates are in pure disbelief that someone as strong as Zoro stood no chance against the power of the Grand Line. Remembering Zoro's earlier words that his ambition meant he no longer had any attachment to his own life, Sanji is still perplexed that Zoro wouldn't throw it away if it meant certain death. He states that it should be simple, yelling out to Zoro as he falls into the ocean. After having seen his first friend utterly defeated, Luffy charges against Mihawk full of rage while Johnny and Yosaku dive in to save Zoro. He does so by extending his arm all the way over to Mihawk's location, shocking everyone present, as they were unaware he was a Devil Fruit user. He is easily avoided, as Mihawk deduces that he is one of Zoro's friends. Instead of fighting, the swordsman tells him that Zoro is not dead.  
+
+As Johnny and Yosaku recover Zoro's body from the ocean, Dracule Mihawk re-introduces himself, telling Zoro that it is much too early for him to die. Mihawk implores Zoro to learn more about both the world and himself, and to become strong. He promises that no matter how long it will take, he shall await him at the top in his strongest form. He encourages Zoro to press on with his strong will and surpass his sword, but more importantly, surpass him. While Usopp, Johnny, and Yosaku attempt to resuscitate Zoro, Mihawk turns to Luffy and asks him his goal. When Luffy answers "Pirate King", Mihawk smiles and casually tells Luffy that will be much more difficult than surpassing him. Luffy is undeterred by this, and asks Usopp if Zoro is ok. Usopp says that he's still alive, and only lost consciousness. Johnny and Yosaku plead for Zoro to say something, and to everyone's shock, he lifts his blade in the air. He apologizes to his captain for making him worry, repeating his earlier sentiment to him that he would be in a real dilemma as Pirate King if Zoro was not the World's Greatest Swordsman. Fighting against his pain and coughing up blood, he tearfully vows to Luffy that until the day he defeats Mihawk and becomes the World's Greatest Swordsman, he will never lose again. He asks his captain as future Pirate King if he has any issues with this, which Luffy happily denies. Satisfied by these spirits, Mihawk turns to leave without paying much attention to the Don Krieg pirates who he was looking for in the first place. He tells Luffy that him and Zoro make a good team, and wishes to see them again in the future. This new nonchalant attitude towards Krieg angers him, and he attempts to fire on Mihawk. The swordsman deals another devastating blow to what's left of the galleon, sending Krieg's men flying. When the dust settles, Mihawk is no longer present. 
+
+Having jumped back aboard the Baratie in the wake of Krieg and Mihawk's clash, Luffy tells Usopp to go on ahead and get Nami. Usopp promises to do so, then asks Luffy to stay here and convince Sanji to join them. He suggests that when they have five people in the crew, they should go to the Grand Line, and Luffy agrees. Sanji notices that Don Krieg's men are starting to plot something. Luffy decides to make a deal with Zeff: if he gets rid of them, it will settle his debt with him.
+
+## Notes & trivia
+
+*In the chapter's initial publishing in Weekly Shonen Jump, the first story page was printed in full color.
+*This chapter's cover was redrawn by  on the series 22nd anniversary one-shot Roronoa Zoro Falls Into the Sea as part of the One Piece Cover Comic Project.
+
+## Characters
+
+Pirate, Bounty Hunter, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Nami, Usopp, Krieg Pirates, Krieg, Baratie, Zeff, Sanji, Patty, Dracule Mihawk, Yosaku, Johnny

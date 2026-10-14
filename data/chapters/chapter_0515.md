@@ -1,0 +1,27 @@
+# Chapter 515: Adventure on the Island of Women
+
+Volume: 53  |  Arc: Amazon Lily Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_515 (CC-BY-SA)
+
+## Cover page
+
+CP9's Independent Report Vol. 23: "Too Beautiful to Behold, A Flower of Thanks".
+
+A small girl gives Kalifa a flower as a gift of gratitude for saving them, while Fukurou, Kumadori, and Jabra are overcome by emotion at the sight.
+
+## Short summary
+
+Luffy finally awakens and finds himself naked and in solitary confinement. As the citizens gather to see him, Kikyo tries to execute Luffy with her Haki imbued arrows. Luffy escapes his cell and avoids being recaptured. He decides to take Marguerite along with him for questioning. After escaping into the jungle, Luffy gets his Vivre Card back from Marguerite and learns that the empress of Amazon Lily is also a pirate.
+
+## Long summary
+
+The narrator explains that the name of this island country is Amazon Lily (it is the place Kuma sent Luffy to), with the entire population being women. It is a place where men are forbidden. The narrator further explains that when some venture out to sea to conceive offspring, they return to bear their children, but oddly enough, they are always born female. It is then revealed that in a large mountain with an arch-like monolith shaped like a heart, there is a large hole with a village inside. The narrator then says that the village and the country itself are built like a large fortress. The narrator reveals that all the work and all of the manual labor is done by the women, who are raised as warriors from birth and are strong and hearty, but also have an elegance and an air about them. A man driven to foolishness by greed has no place there. More than anything else, the women of this country are strong. In this country, strength is beauty. If a man ever approached this country, he would simply disappear.
+
+At the prison, many of the women are gathering to see Luffy wake up (who is completely naked). As Luffy wakes up and stretches, the women are shocked and astonished by his physical appearance, as his chest is flat, has unkept hair, and considered him to be weak due to being so thin. They also comment on how he was eating while sleeping. Luffy, slightly drowsy after waking up, says that it's noisy, shocking the women even more after hearing him speak. He then wonders where he is and what he was doing, but then finally recounts what happened back in the Sabaody Archipelago and up until he ate the mushroom. Luffy scratches his head, but immediately realizes that his hat is gone, and wonders where it is. He realizes that Sweetpea has it, and uses his rubber powers to stretch to get it back. The women are, again, astonished by seeing Luffy's arm stretch, and one of them writes into a notebook concluding that all men are able to stretch their arms like Luffy. She then asks what the young pirate's name is, which he reveals to be Luffy.
+
+Luffy looks down below to realize that he's naked, which the women point out how he's so slow. The girl with the notebook then writes again, concluding that men are dull and cover their heads before their whole bodies. A curious Marguerite tells Luffy that before he gets dressed, she asks what the bag between his legs is (referring to his scrotum and testicles). Luffy is perplexed by the women's naiveté because they should know about this stuff, and he refers to them as "weird" and "his balls". Marguerite is confused and asks what he means by "balls". Luffy asks if it's obvious and claims that they're "balls made of gold" (he's using slang for testicles to point out their importance to him). The women actually believe that they are literally made of gold, and one says that they're gorgeous. Marguerite naively asks Luffy if he could take them out to show them, but Luffy, horrified and shocked at their idea, refuses for obvious reasons and asks if they're trying to kill him. Kikyo tries to finish Luffy off with some arrows, but he escapes by breaking through the ceiling of his prison. He avoids getting recaptured by the Kuja and he takes Marguerite with him so he can ask her some questions. The two of them escape into the jungle. Luffy gets his Vivre Card back from her and learns more about the island and how the empress is a renowned pirate. Meanwhile, Kikyo and the rest of the Kuja try to track Luffy down as fast as possible because the snake princess has returned.
+
+## Characters
+
+Pirate, Kuja, World Government, Straw Hat Pirates, Monkey D. Luffy, Poppy, Pansy, Marguerite, Sweet Pea, Aphelandra, Nerine, Kikyo, Belladonna, CP9, Kalifa, Jabra, Kumadori, Fukurou

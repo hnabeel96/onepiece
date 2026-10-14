@@ -1,0 +1,29 @@
+# Chapter 294: Raigo
+
+Volume: 31  |  Arc: Skypiea Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_294 (CC-BY-SA)
+
+## Cover page
+
+Ace's Great Blackbeard Search, Vol. 19: "Pirates Set the Fire In Spite. It Mustn't Reach the Top-Secret Intel!!"
+
+Though the scout ship has (mostly) successfully evacuated, the fire is too big to extinguish; everyone, including Vice-Admiral Comil, despairs over what it will do to the papers onboard.
+
+## Short summary
+
+Enel reaches the top of Giant Jack only to find nothing, but manages to see Luffy just below him. Enel then proceeds to attack him using his Goro Goro no Mi powers to knock him off edge of the cloud. Despite being knocked off, Luffy manages to get back onto the cloud. He is then greeted by Nami who had ran over him with the Waver, and she tells him they must get away. Luffy refuses because he wants to ring the Golden Bell, as it will send a message to Mont Blanc Cricket to prove that the tale of his ancestor Mont Blanc Noland finding the Legendary Golden City, Shandora, wasn't a lie.
+
+## Long summary
+
+Enel finally reaches the summit of Giant Jack, noting that he is likely the first person to ever reach this height. As he begins surveying for the Golden Bell however, he hears Luffy running up the beanstalk, the large golden ball molted on his arm ringing with each step. Luffy himself briefly stops at the ruins of God's Shrine, wondering if he's reached the top. Enel addresses Luffy, expressing his surprise that he managed to drag the huge golden ball all the way up the beanstalk with him. Luffy charges Enel demanding that he stop running and fight him, but Enel strikes the top portion of Giant Jack with lightning, causing it to break and fall over. This sends Luffy plummeting back down, admonishing Enel for his under-handed tactics. 
+
+From the Straw Hats location near the beanstalk, Wyper is attempting to climb as well despite the group's protest that he will get himself killed. Usopp however, notices something falling down towards them. It turns out to be the charred beanstalk, and they just barely manage to dodge it falling on them. This causes Robin to wonder just what's going on towards the top of the beanstalk, and Aisa reminds Wyper not to get himself hurt. Wyper expresses his frustration, knowing how close he is to the bell and fulfilling Kalgara's wish. 
+
+Towards the top of Giant Jack, Luffy has managed to break his fall by stretching his arm completely around the circumference of the beanstalk. Enel notices him still hanging on, and decides to taunt him. Enel asks him to stay right where he is, as he has something "special" to show him. Enel disappears, and Luffy suddenly notices a huge opening in the sky above Angel Island. Rather than wait around Luffy decides that now is the best time to try and board the Maxim, and he hoists himself back up to the ruins of God's Shrine. Before he can make another move however, he gets completely run over from behind by Nami in her waver. Luffy wonders how Nami got there, and she explains that Sanji and Usopp helped save her, much to Luffy's delight. As they begin to discuss their next move, they notice a huge spherical cloud appearing in the opening above Angel Island. The Skypieans present at Angel Island notice this as well, and frantically begin trying to escape. Nami points out that the cloud is much more condensed with electricity than normal, as the Straw Hats notice it from their location as well. Gan Fall is absolutely horrified at what he sees. Enel reappears aboard the Maxim, boasting his superiority in the skies with the Ark Maxim. The Shandians, the Skypieans that managed to escape Angel Island to the White Sea in ships, as well those still present on Angel Island all look on in absolute terror as Enel drops "Raigo" on Angel Island. In a blinding flash of light the entire island is decimated by lightning, leaving nothing but a gigantic crater in its place. 
+
+The onslaught of lightning strikes immediately resumes, much to Usopp's chagrin. Gan Fall is beside himself with grief, extremely distraught that Enel could be such a heartless monster. Back at God's Shrine, Nami implores Luffy to get aboard her waver so that they may escape back to the Going Merry. Luffy refuses, to her shock. He explains that although he no longer needs to save her, he still has business that he needs to take care of. Nami assumes that he means fighting Enel, but he reminds her that the Golden Bell is here. Nami states that while the gold is indeed important, Enel still has the capability of destroying the entire island, and Luffy along with it. Luffy reminds Nami that she has seen the golden city of Shandora now with her own eyes, so they now have proof that Mont Blanc Noland's story was not a lie. In a brief flashback, Luffy remembers Mont Blanc Cricket stating that his ambition to find the golden city was not for the sake of clearing his ancestor's name, but for settling a duel between himself and the man who ruined his life. Luffy is determined to tell Cricket that his ancestor wasn't lying, and that the golden city has been right here in the sky all these years. Luffy states that if he is able to ring the bell really loud, Cricket should be able to hear it, and thus stop endangering his life by constantly diving into the depths of the ocean to find the city. Luffy refuses to let Enel take that bell away, for that reason. He announces his intention to ring the bell so loud that everyone on the blue seas will hear it, and that he is staying here no matter what until he does.
+
+## Characters
+
+Pirates, Skypiea, Marines, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Nami, Usopp, Sanji, Tony Tony Chopper, Nico Robin, God's Army, Enel, Shandia, Wyper, Aisa, Shandia Chief, Skypieans, Gan Fall, Pierre, Conis, Su, Vice Admiral, Comil, Jaya, Mont Blanc Cricket, Lvneel Kingdom, Mont Blanc Noland

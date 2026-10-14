@@ -1,0 +1,31 @@
+# Chapter 472: Down
+
+Volume: 49  |  Arc: Thriller Bark Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_472 (CC-BY-SA)
+
+## Cover page
+
+Enel's Great Space Operations, Vol. 36: "The Name of That Moon City was Birka. When It Ran Fallow, They Set Out for the Blue Planet".
+
+Another mural contains an even greater revelation: it was this race of moon-people that settled, and named, Enel's homeland Birka.
+
+## Short summary
+
+Jumping into the courtyard, Oars confronts the Straw Hat Pirates. Wondering how they could take down the giant zombie, Oars attempts to crush them with his own creative technique. Avoiding this, Franky announces they should use Tactics Fifteen. This however fails as Robin refuses to join in. Following up with a series of combination techniques, the Straw Hat Pirates succeed in knocking down Oars by attacking each limb separately and stunning the zombie. Watching from afar; the zombies refuse to acknowledge the idea of somebody being able to take down Oars. Back inside the mansion, Nami had successfully escaped Absalom and finds the treasure room empty. Going to the Thousand Sunny, several zombies at the command of Perona are loading the ship with supplies as she plans to escape the chaos unfolding on the island; only for her to be stopped by the surprise arrival of the Warlord Bartholomew Kuma.
+
+## Long summary
+
+While the Straw Hat Pirates comment on their plan to take down the giant zombie, Oars leaps into the courtyard and comments on how strong the pirates are. Declaring his intent to crush them, Oars jumps into the air again only to come down with a new technique unique upon himself; Gomu Gomu no Shirimochi. Avoiding this, the pirates scatter as Usopp mentions how ridiculous the technique is. Franky then calls out to Usopp and Chopper, announcing it was time to use Tactics Fifteen. Combining through a mecha-like transformation alongside Zoro and Sanji, they form Pirates Docking 6: "Big Emperor" with Franky as the main body, Chopper as the head, Usopp as a claw-like arm; and Zoro and Sanji acting as the legs. Quickly realizing Robin had not joined in, they try to convince her to 'dock' as well. She however refuses due to it being so embarrassing. Surprisingly Oars had also been watching in awe, and is equally disappointed that Robin would not join. Lashing out, Franky, Chopper and Usopp are sent careening into a nearby rock while Zoro and Sanji quickly run towards their opponent, shocked that they had even joined in and choosing to forget completely.
+
+Kicking a large rock towards Oars, Sanji mentions his need to finish the fight quickly so he can save Nami only to draw attention to himself. Zoro is then seen putting his swords into Franky's Heavy Nunchaku asking for permission to use them, also asking Robin to hold one of Oars' arms down as he runs off. Seeing an opportunity, Usopp quickly fires his Tokuyo Abura Boshi underneath the hand Oars' was using as support, throwing off the giant's balance. During this moment, Sanji launches Zoro towards Oars at high speeds using Armée de L'Air Power Shoot, giving the swordsman the chance to land a direct blow on Oars' left arm with Dai Gekken. In order to throw the giant's balance off even more, Robin is able to hold down his left arm using Cien Fleur: Big Tree leaving the zombie with only a single leg to stand on. Coming up from the ground, Franky and Chopper are shown climbing Franky's Franky Sky Walk. Mentioning on how the staircase will not last long, both pirates leap towards Oars' head and connect their Super Frapper Gong combination technique with his jaw, Chopper explaining that a blow like that would cause his brain to shake inside his skull.
+
+Stunned and off-balance, Oars can do nothing to defend himself as Sanji races towards him, taking out his last leg with an Anti-Manner Kick Course which flips and knocks the giant zombie down. Celebrating their achievement, the soldier zombies watching from a distance struggle to fathom the idea of somebody being able to knock down Oars, claiming even a thousand men would not be capable of it. Enraged at this turn of events, Oars swears to send the offending pirates flying.
+
+Finally having escaped Absalom with the help of Lola, Nami returns to the mansion in search of the treasure room. Thinking back to what Lola had told her about Luffy's zombie, she correctly deduces that his zombie must have been the giant one she had seen previously in the freezer. Acknowledging the danger, Nami is still determined to find the treasure as to not leave empty-handed, but upon locating the treasure room she discovers it unlocked and empty.
+
+Back at Thriller Bark's shore, Perona is seen ordering several of her zombie subordinates to fill the Thousand Sunny with treasure and supplies, planning to escape from the danger now posed to her by the battle raging on the island. Commenting on how she had only joined Moria for fun, now that her life was at risk she hoped to get away as fast as possible. On the dock, the zombies take quick notice of a new arrival who they note for looking like a bear. The mysterious new visitor inquires as to where Moria is.
+
+## Characters
+
+Pirate, Straw Hat Pirates, Roronoa Zoro, Nami, Usopp, Sanji, Tony Tony Chopper, Nico Robin, Franky, Thriller Bark Pirates, Perona, Absalom, Oars, Lola (Zombie), Seven Warlords of the Sea, Bartholomew Kuma, Moon, Enel, Spacey, Macro (Automaton), Galaxy, Cosmo

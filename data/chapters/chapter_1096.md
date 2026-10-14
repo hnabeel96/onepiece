@@ -1,0 +1,68 @@
+# Chapter 1096: Kumachi
+
+Volume: 108  |  Arc: Egghead Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_1096 (CC-BY-SA)
+
+## Cover page
+
+Cover Page Request: "Zoro lamenting losing a game of Musical Chairs to chihuahuas in the woods." by PN UCP.
+
+## Short summary
+
+The World Nobles began their hunting competition, during which the Rocks Pirates, Roger Pirates, Monkey D. Garp and the Marines  got involved, which started the God Valley Incident. During this, despite Linlin stealing one of the Devil Fruits, Kuma stole the Nikyu Nikyu no Mi and consumed it, allowing his group to escape the island. Later after parting ways with Ivankov, Kuma and Ginny settled down in Sorbet Kingdom.
+
+## Long summary
+
+The World Nobles explained the rules of the Native Hunting Competition: Among the Rabbits were thirteen "Super Rare Rabbits" (worth 10,000 points each) and 150 "Rare Rabbits", any one-shot kill would earn an "Excellent Bonus", and luxurious prizes were offered for the champion of the competition. Some World Nobles tried to get a head start but they were stopped and informed that the hunt would begin in an hour, giving the people time to run and hide. Several of them were running desperately for their lives and begging it all to be a dream, while others claimed that it was not right for humans to treat other humans as their toys.
+
+Meanwhile, Kong contacted Monkey D. Garp, who was on vacation. Kong wanted Garp to go to Hachinosu but he would not say why, because if something happened, he would be in trouble. Garp surmised that Kong was talking about the World Nobles’ "field trip" and reminded Kong that he had told him many times not to mess with Hachinosu, and not to underestimate the Rocks Pirates wanting to take back the island's "treasure". Garp then asked what Kong had to be scared of if he had escorts, but when Kong mentioned Roger was involved, Garp immediately declared that he was going. However, the Rocks Pirates had already left Hachinosu.
+
+On God Valley, while the competition was underway, Ivankov started rallying several people by telling them that none of them would escape from this "game" alive, and when it was all said and done, the events would be hidden from the history books. Some people believed that they would go free if they survived the three weeks of the competition, but Ivankov stated that was a lie to give them false hope in order to make the game more interesting. Therefore, if they wanted to live, they needed to move right now.
+
+With help from a shark fish-man, Ivankov was freed from his chains, and Ginny told everyone that two of competition's prizes would be their means of escape: the Uo Uo no Mi, Model: Seiryu and the Nikyu Nikyu no Mi. Ivankov said that with these two Devil Fruits, they could make it off the island and past the Marine blockade, but the problem was that the fruits were in the center of the island. However, Ginny revealed that she was skilled in thieving, wiretapping, and broadcasting, and all of this information had been leaked to the outside world about two weeks ago, so she was positive someone had heard it. When Ginny said that they needed a decoy for this plan to work, Kuma volunteered, citing that his strong physiology would protect him, and he would rather risk his own life than others. Ivankov accepted but stated that he would not let Kuma die either.
+
+Soon, the Rocks Pirates and other pirate crews started attacking the Marines, catching them off guard. Rocks ordered his crew to seize the treasure, and several of them, including Edward Newgate, Shiki, Buckingham Stussy, Charlotte Linlin, Kaidou, and Gloriosa made their way onto the island, and pretty soon, Roger and his pirate crew did too. The Knights of God tried to defend the World Nobles and eventually Garp and his soldiers arrived to back up the Marines, leading to an all-out conflict.
+
+During the fight, Ivankov and Kuma managed to acquire the two Devil Fruits. However, before Ivankov could eat the Uo Uo no Mi, Model: Seiryu, Linlin slammed him into a wall and took the fruit. She tried to take the Nikyu Nikyu no Mi as well, but Ivankov told Kuma to quickly eat it and save himself. Right after Kuma ate the fruit, he was attacked by Jaygarcia Saturn. Saturn told Kuma that as a member of the Buccaneers, he existed only to live and die as a slave, as decided by the course of history. Kuma, however, stood up to Saturn and told him that it did not make sense for people to be born important or a slave. He proclaimed that he would emulate Nika and use his power to save the weak and defenseless, but Saturn simply stated that this was why Kuma and his people would be eliminated. Afterwards, the events on God Valley vanished into the darkness of history.
+
+Despite the chaos, Kuma, Ivankov, and Ginny were able to escape God Valley along with more than 500 other people. The three went into hiding in Sorbet Kingdom and stayed in the church that Kuma's parents once managed. Ivankov realized that no information about God Valley had been revealed to the public aside from Garp's now legendary reputation. Kuma started praying for a while as he stated that he wished he could have saved more lives, but Ivankov and Ginny would tell him that he had done more than enough and that Kuma's hands had brought freedom to the people, calling them the "Hands of Liberation."
+
+After that, Ivankov decided to head out on his own while Kuma and Ginny remained in Sorbet, with the three hoping to see each other again. Ginny told Kuma that from that day forward, she would be his big sister since she was older than him. The two began chopping wood to sell and make money. When Kuma was accosted by some kids who called him a monster for his size, Ginny beat them up in his defense, and Kuma apologized and used his powers to push their pain out of their bodies, much to their joy.
+
+That night the two were eating dinner, with Kuma remarking on how much of a big eater Ginny turned out to be. The two then broke down into tears of joy over their freedom and newfound happiness.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*The Native Hunting Competition at God Valley begins.
+*Ginny is shown utilizing a unique Den Den Mushi as an earpiece; this is the first time one has been used this way in the main canon.
+**Ginny used a stolen Den Den Mushi to leak information about the competition and its prizes to the outside world.
+*Kong requested Garp to head to God Valley to protect the World Nobles.
+**Garp initially refused until he heard Roger was reported nearby.
+**According to Garp, the World Nobles stole a certain treasure from Hachinosu, which served as a motivation for the Rocks Pirates to attack the Nobles.
+***It was later revealed that the "treasure" was in fact Shakuyaku, who was kidnapped from Hachinosu and offered as a potential wife for whoever won the game.
+*The Rocks Pirates, Roger Pirates and Marines led by Garp all make landfall at God Valley, effectively starting the God Valley Incident.
+**Streusen and Gloriosa are revealed to have been part of the Rocks Pirates.
+**Outside of Chapter 0, Shiki makes his first canon appearance in the main series.
+**John's appearance as a human is shown.
+**The Knights of God participated in the fight as well.
+*While the incident is ongoing, Kuma and Ivankov manage to steal the Nikyu Nikyu no Mi and the Uo Uo no Mi, Model: Seiryu, which are prizes of the hunting competition.
+**It is shown that Linlin obtained the Uo Uo no Mi, Model: Seiryu, which she later gave to Kaidou by assaulting Ivankov. Kuma consumed the Nikyu Nikyu no Mi shortly afterwards in order to keep her from taking it.
+**After eating his Devil Fruit, Kuma is confronted by Saint Jaygarcia Saturn.
+***Upon Kuma's declaration that he wished to save as many people as possible like Nika did, Saturn declares that is the reason why the Buccaneers have to be eradicated.
+*Kuma, Ivankov, Ginny, and 500 other civilians and slaves are somehow able to escape God Valley and reach the Sorbet Kingdom.
+**According to Ivankov, Morgans was responsible for covering up the details of the God Valley Incident and only reported on Garp's actions there.
+**Ivankov later set out to sea while Ginny chose to stay and live with Kuma in the church his parents formerly tended.
+*It is revealed that Kuma and Ginny had been slaves since they were four.
+
+## Characters
+*Roger's appearance in this chapter is inconsistent with previous depiction of him during the time of the God Valley Incident:
+**In both One Piece Film: Red and Chapter 957, he was shown wearing his captain's hat, while here he is shown still wearing his straw hat. Both scenes also feature him already having grown his iconic moustache, while in this chapter he had a slight stubble.
+*The presence of both the Uo Uo no Mi, Model: Seiryu and Nikyu Nikyu no Mi showing up together during God Valley Incident — and how in the end Kuma's group could only acquire Nikyu Nikyu no Mi — may be a reference to a passage of Mencius Chapter Gaozi I: "魚，我所欲也；熊掌，亦我所欲也，二者不可得兼，舍魚而取熊掌者也。生，亦我所欲也；義，亦我所欲也，二者不可得兼，舍生而取義者也。 (I like fish, and I also like bear's paws. If I cannot have the two together, I will let the fish go, and take the bear's paws. I like life, and I also like righteousness. If I cannot keep the two together, I will let life go, and choose righteousness.)" The same passage is condensed into the idiom 魚與熊掌, 不可兼得 (lit. "Fish and bear paw, cannot have both"), which has a similar meaning to "Can't have your cake and eat it too."
+*The original version of this chapter included an error on page 6, where Figarland Garling was mistakenly called  instead of "Saint Garling". This error was present in the print version of Weekly Shonen Jump, but fixed in the electronic version. However, the English electronic version by VIZ Media on Manga Plus retains the error.
+
+## Characters
+
+Pirate, World Government, Straw Hat Pirates, Roronoa Zoro, Roger Pirates, Gol D. Roger, Silvers Rayleigh, Scopper Gaban, Sunbell, Millet Pine, Spencer, Yui, Rocks Pirates, Rocks D. Xebec, Edward Newgate, Shiki, Charlotte Linlin, Napoleon, Prometheus, Kaidou, Buckingham Stussy, John, Gloriosa, Ganzui, Gill Bastar, Streusen, Barbel, Five Elders, Jaygarcia Saturn, Knights of God, Figarland Garling, Marines, Kong, Monkey D. Garp, Bogard, Slavery, Bartholomew Kuma, Emporio Ivankov, Ginny, Sorbet Kingdom, Gyogyo, Totts

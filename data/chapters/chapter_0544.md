@@ -1,0 +1,53 @@
+# Chapter 544: The Lid to the Cauldron of Hell Opens
+
+Volume: 56  |  Arc: Impel Down Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_544 (CC-BY-SA)
+
+## Cover page
+
+Straw Hat's Separation Serial: Sanji's resistance in Kamabakka Final Volume "Simply Girly".
+
+## Short summary
+
+Blackbeard reveals to Luffy that it was he who captured Ace in order to become a Warlord of the Sea. The two begin to fight; however, it is cut short by Jinbe who reminds Luffy to not lose sight of his goal. The escapees then leave as Magellan approaches while the Blackbeard Pirates go further into Impel Down.
+
+## Long summary
+
+On Level 4, Blackbeard explains that after Monkey D. Luffy brought down Crocodile and freed up a place among the Seven Warlords of the Sea, Blackbeard decided to bring in Luffy to the World Government as proof that he was strong enough to become a Warlord. During his talk with Portgas D. Ace on Banaro Island, Blackbeard revealed that he had planned to take down Luffy at Water 7, but Ace refused to let that happen to his brother.
+
+Blackbeard states that fate was on Luffy's side: Ever since he had committed the most treacherous crime aboard the Whitebeard Pirates, Ace had been hunting him down. When Ace revealed that Luffy was his brother after he found out about Blackbeard's plan, this ultimately lead to Ace not being able to leave Blackbeard alone. Blackbeard says that if he was left alone by Ace, Ace himself would be bringing shame down onto the Whitebeard Pirates, as well as leaving Luffy in risk of being captured.
+
+Van Augur says that fate is no coincidence, when Doc Q says that Luffy is a very lucky "kid". Laffitte also states that as Blackbeard is now a Warlord, they no longer desire to capture Luffy. Jesus Burgess comments on Ace's fighting skills, saying that he was a fighter.
+
+Blackbeard remarks to Luffy that he should thank Ace at his grave since Luffy would have died had Ace not interfered. Enraged, Luffy shouts at Blackbeard to try killing him, activates Gear 2, and punches Blackbeard. Blackbeard is sent flying into a wall, breaking the wall on contact. Luffy states that he will not let Ace die and prepares to attack again, when Blackbeard uses Kurouzu. To Mr. 2 Bon Kurei and Jinbe's surprise, Luffy is pulled into Blackbeard's hand and then slammed into the ground. Crocodile is also surprised when he saw Luffy's blood, as Luffy is made out of rubber.
+
+Luffy and Blackbeard both stand up and prepare to attack; however, Jinbe steps in and holds Luffy by the arm. He reminds Luffy of his priorities and states that even in Whitebeard's crew, Blackbeard was an unknown person and that whatever he did, Blackbeard was strong enough to take the down the likes of Ace. Jinbe asks Luffy not to waste his energy on Blackbeard.
+
+Blackbeard himself simply comments that Luffy's Haki has improved and that Luffy was stronger than he previously thought. However, Crocodile talks to Blackbeard for the first time, asking why he would cast away a title that he had earned so quickly. Blackbeard simply replies with that it was all part of a "plan" and that he had no obligation to tell Crocodile.
+
+Crocodile states that he has no interest in Blackbeard's plan, when someone shouts that Magellan has arrived. Magellan's Hydra sweeps through the prisoners, poisoning them. Ivankov, who is still in female form, urges Luffy to keep moving forward, saying that if he is to be attacked by Magellan's poison once more, he would not be returning again.
+Numbers of prisoners hurry towards the stairway, while more prisoners are being attacked by another Jailer Beast: Minotaurus. This shocks Mr. 2, as they had defeated Minotaurus earlier. Crocodile then reveals that the Jailer Beasts were all "awakened" Zoan Devil Fruit users, saying that their extreme physical endurance and recovery point were their advantages. Crocodile states that the other three would soon awake and that the Boss of Hell would be arriving soon.
+
+Magellan is running towards the bridge, when a jailer tells him that Blackbeard is also there. Magellan is surprises since he had sent Shiryu to deal with Blackbeard. Another jailer reports that the monitor room for the entire jail is going down and that they have lost communication with Marine Headquarters. The jailer is about to report that they have no way of communicating with the outside world, when Shiryu steps in and kills him, saying that he should not be "tattling" to superiors. Magellan orders jailers to get down to the Monitor Room and comments on the day, saying how when one intruder slips in and everything goes wrong.
+
+On Level 2, Mr. 3 and Buggy are freeing more prisoners and leading them onwards to Level 1.
+
+On Level 4, Luffy states to Blackbeard that he will save Ace. Blackbeard simply says that he will not say that Luffy is doomed as "nothing is impossible". Blackbeard asks Luffy if Sky Island did exist, saying if it did, then so does the great treasure One Piece. Luffy walks past Blackbeard as the great pirate says that in a few hours, the world would be shaken to its core by the Blackbeard Pirates. The escaping group heads onwards to Level 3.
+
+Magellan finds Sadi, who was tied up by Ivankov. Magellan orders her to be released as he prepares to take the Blackbeard Pirates head on. Magellan identifies Blackbeard and then takes them all down with his Hydra move. The Blackbeard Pirates sink to the ground in pain as the poison slowly kills them. Magellan congratulates Hannyabal for holding out so long. The Chief Warden shouts that he will never let Luffy escape out of Hell alive.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*As this chapter was released in Shounen Jump, they celebrated the release of Volume 54 in the One Piece series.
+*As the story of Sanji at Momoiro continues, it appears Sanji has turned into an okama as well.
+*Crocodile reveals that Devil Fruits can be "awakened", as with the four Jailer Beasts.
+*Magellan poisons the Blackbeard Pirates.
+
+## Characters
+
+## Characters
+
+Pirate, Impel Down, Seven Warlords of the Sea, Blackbeard Pirates, Marshall D. Teach, Jesus Burgess, Van Augur, Doc Q, Laffitte, Stronger, Whitebeard Pirates, Portgas D. Ace, Straw Hat Pirates, Monkey D. Luffy, Sanji, Buggy and Alvida Alliance, Buggy, Magellan, Shiryu, Sadi, Hannyabal, Jailer Beasts, Minotaurus, Minokoala, Minorhinoceros, Minozebra, Manticores, Jinbe, Crocodile, Revolutionaries, Emporio Ivankov, Inazuma, Baroque Works, Daz Bonez, Galdino, Bentham

@@ -1,0 +1,51 @@
+# Chapter 812: Capone "Gang" Bege
+
+Arc: Zou Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_812 (CC-BY-SA)
+
+## Cover page
+
+From the Decks of the World: The 500,000,000 Man Arc Vol. 6: Cocoyasi Village: How could they use such a shameless picture for a wanted poster?
+
+Nojiko and Genzo receive Nami's new wanted poster. Genzo once again makes an enlarged copy, hangs it in his office, and complains about the photo.
+
+## Short summary
+
+The Straw Hats continue to recount what occurred two days ago on Zou. Pekoms and Capone Bege disembarked at the island and discovered it in ruins. Meanwhile, while celebrating with the minks, the Curly Hat Pirates learned that their pursuers had caught up with them. Caesar begged Sanji not to hand him, revealing that Big Mom commissioned some research from him, but he simply swindled her funds while hiding behind Doflamingo's protection. Sanji and Brook eventually confronted the new arrivals; to their surprise, Pekoms was grateful to the Straw Hats for saving his homeland and offered to spare them from the consequences of a second, new mission if they handed over Caesar. However, Bege shot Pekoms for disobeying Big Mom's orders, before ordering his men out of his body and instructing them to surround the Straw Hats.
+
+After their capture, Bege took the Straw Hats inside his body castle and revealed the new mission given to the Big Mom Pirates. Bege passed Sanji an invitation to Big Mom's next Tea Party, where he, the third son of the Vinsmoke Family, will be wed to the 35th daughter of the Charlotte Family, Pudding.
+
+## Long summary
+
+Pekoms and Capone Bege arrived at Kurau City after disembarking on Zou. To his shock, Pekoms notices that no one is present, and becomes enraged when he realizes that the city is in ruins. He curses the Straw Hats, believing them to be responsible for the carnage. 
+
+In the Right Flank Fortress, Wanda and Nami trade clothes as a sign of friendship; Wanda receives Nami's bikini, while Nami receives one of the tribe's national treasure dresses. A love-struck Sanji greets all of the female minks (he dismisses the male minks who try to greet him), before spotting Nami in her dress and rushing towards her. Meanwhile, Chopper, Brook and Caesar (poorly disguised as "Cedar") continue producing medicine for the injured minks; Brook asks where Momonosuke is, and Chopper reveals that he was remaining in his room because it seemed to keep him calm. This placates Brook, who was concerned about the minks seeing Momonosuke in his human form. 
+
+Outside the Fortress, Pekoms reunites with his family and friends, crying in happiness that they were all alive. The minks also inform him that they were saved by the Straw Hats. Observing the scene from a balcony, Nami and Sanji note Pekoms' arrival with surprise, and Wanda reveals that he was a mink tribe member once known for his delinquent behavior. Caesar panics at the arrival of the Big Mom Pirates and begs Sanji not to hand him over. Sanji, however, replies that Caesar is useless to them now that Doflamingo has been defeated, and asks what Caesar did to antagonize Big Mom. The scientist reveals that he was commissioned to conduct research that bore no fruit, but he continued to demand and accept payments anyway. An unsympathetic Sanji tells Caesar that he deserved what was coming, but notes the greater predicament that Luffy had already picked a fight with Big Mom. Eventually, Sanji instructs Brook to accompany him, telling everyone else to remain on the balcony.
+
+As the two groups confront each other, Sanji asks what business the Big Mom Pirates have on Zou. Pekoms immediately proceeds to embrace Sanji and thank him for saving his homeland. The mink reveals that, in addition to capturing Caesar, the Big Mom Pirates had received a second order that would spell disaster for the Straw Hat crew. Instead, to demonstrate his gratitude, Pekoms offers to abandon their new mission in exchange for Caesar. A stunned Bege warns Pekoms not put his personal business ahead of their orders, but Pekoms replies that he will personally accept any punishment that Big Mom chooses to mete out. Suddenly, to Sanji's and Brook's shock, Bege shoots Pekoms in the back and declares that he will handle things from now. Then, to their further shock, Bege orders his men to "come out". A small gate opens in the middle of Bege's chest and several armed members of the Fire Tank Pirates rush out, surrounding Sanji and Brook at gunpoint. Bege formally introduces himself to Sanji and Brook as a member of the same generation as their captain, as well as a castle man that ate the Shiro Shiro no Mi. Bege then orders Vito to bring forward the captured Nami and Chopper, who apologize and explain that they were unaware that Bege and Pekoms had brought reinforcements. Bege finally calls out to Caesar, threatening to shoot him with Seastone bullets if he did not come down. After Caesar emerges from the trees, Bege reveals that he in fact had no Seastone bullets, only a Seastone spear, which he uses to stab Caesar. With everyone gathered, Bege instructs the Straw Hats to enter his body castle, and Sanji, frustrated at their lack of options, concedes. 
+
+Inside the dining room in Bege's fortress, Sanji is seated at the table while Caesar and the other Straw Hats are chained up on the floor behind him. Bege then materializes at the table opposite from Sanji, and offers Sanji food and wine; an impatient Sanji refuses, demanding that Bege get on with the meeting. As Caesar continues to panic, Bege hands Sanji a personal invitation from Big Mom, requesting his attendance at her upcoming tea party. The main event at the party will be a wedding ceremony, where Sanji, the third son of the Vinsmoke Family, would be wed to Pudding, the 35th daughter of the Charlotte Family.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*Capone Bege is the other person who went with Pekoms to Zou.
+*The reason behind Wanda wearing Nami's clothes is because she and Nami exchanged clothes as the minks' sign of friendship.
+*Caesar Clown is going under the alias "Caedar".
+*Caesar explains that he was once asked to do some research for Big Mom but failed to complete it.
+**Rather than come clean, he lies to her that it was a success just so he can get paid.
+*Pekoms was going to let the Straw Hats go in exchange for Caesar, but was shot in the back by Bege, who then took Sanji and his group captive.
+*Bege’s Devil Fruit is revealed to be the Shiro Shiro no Mi.
+*Bege’s current bounty is revealed to be 300,000,000. 
+*Bege gives Sanji an invitation to a tea party held by Big Mom.
+** Sanji is revealed to be the third son of the Vinsmoke Family
+**The main event at the party is to be an arranged wedding between Sanji and Pudding, the 35th daughter of the Charlotte Family.
+
+## Characters
+
+## Characters
+
+Pirate, Straw Hat Pirates, Monkey D. Luffy, Nami, Sanji, Tony Tony Chopper, Brook, Donquixote Pirates, Caesar Clown, Big Mom Pirates, Pekoms, Fire Tank Pirates, Capone Bege, Vito, Wano Country, Kouzuki Momonosuke, Zou, Wanda, Tristan, Cocoyasi Village, Nojiko, Genzo

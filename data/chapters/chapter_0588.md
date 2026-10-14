@@ -1,0 +1,40 @@
+# Chapter 588: Sabo's Ocean
+
+Volume: 60  |  Arc: Post-War Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_588 (CC-BY-SA)
+
+## Cover page
+
+Color spread: The Straw Hat Pirates having a tea party.
+
+## Short summary
+
+Sabo's ship gets blown up by the World Noble with his fate unknown. Ace and Dadan return alive after fighting Bluejam in Gray Terminal. Ace and Luffy mourn the loss of their brother.
+
+## Long summary
+
+The kingdom's residents try to get Sabo to turn back but he ignores them, unaware that one of Dadan's crew, Dogura, is in the crowd who instantly recognizes him. Sabo meanwhile comments that his greatest fear is getting caught up in the country and becoming a different person and he refuses to turn around. It's at that instance the Government ship carrying the Celestial Dragon arrives. Seeing it Sabo makes to move out of its path while those on board spot him. The crowd at the kingdom cheer for their coming, and even Sabo is marveled at how big the ship is. However the Celestial Dragon on board pulls out a hand-held cannon and fires on Sabo's ship, setting it ablaze.
+
+Back at the bandits' hideout, Luffy tries once more to go search for Ace and Dadan but the bandits refuse to do so due to him still healing. They tell Luffy they know how he feels and that they sent Dogura to go check out the grounds. Back at the ceremony, the crowd look on in shock as Sabo's boat continues to burn. A servant tells the Celestial Dragon, Saint Jalmack, there was a child on the ship. But Jalmack comments that if he raised a pirate flag, then it did not matter, but is more angry that a commoner crossed his path. Sabo meanwhile tries to put out the flame, but Jalmack fires again and this time sinks the boat and presumably kills Sabo as well. The crowd continues to look on in horror at this turn of events while the officials order the remains to be cleaned up so as not to upset the Celestial Dragons further. Back at the hideout, Ace suddenly arrives carrying Dadan both bruised and burned but still alive much to the joy of everyone. Luffy especially hugs Ace who bops him on the head for crying about him.
+
+Ace then explains that they managed to beat Bluejam but their escape route got cut off. Curly Dadan got burns on her body but the duo managed to escape into the middle forest. They hid in the riverbank till everything died down, then Ace stole some medicine from the town to keep Dadan alive. Dadan is then patched up and set down to rest as the day goes on. Dadan soon asks why Ace did not run which he explains that he was afraid if he did, he lose something important to him, in this case Luffy. Dadan soon realizes the similarities to him and Roger as she remembered Garp explained that Roger was the same way, not running because he was fearless but rather to keep the enemy from following after his crewmates. It was this trust that Garp decided to take care of Ace in secret.
+
+Dogura soon returns and Luffy tells him of the good news of Dadan and Ace coming back. However this joy is short lived as Dogura tells the others of what happened to Sabo. Ace attacks him instantly thinking its a lie but Dogura, being a rogue, knows what It's like to not want to return to someplace they do not want to. Luffy begins to cry again and Ace starts to blame himself for not going back to get Sabo. He starts to run off with the intention of avenging Sabo. Dadan pins him to the floor, telling him that Sabo's enemy was the world and he does not have the power to fight it. If he did it now, that he will just die and be forgotten. If Ace wants to change the world, he must get strong enough to do so like his father. She then has the bandits tie Ace to a tree as he keeps struggling while Luffy continues to cry. Morning comes and Ace has cooled down when the bandits come to check on him. A mail bird arrives with a message from Sabo addressed to Luffy and Ace. The bandits cut Ace free so he can read it, which he does as he walks back to the cliff where they made their bond. The letter starts off with Sabo worrying about their safety but believes they are alright. He then explains that he is going out to sea, anywhere that is away from the country and hopes to become stronger and freer than any pirate on the sea. He then closes the letter by asking Ace to take care of their younger brother, Luffy. As Ace finishes reading the letter, he stands on a cliff next to the sea and cannot help himself but cry for his fallen friend and sworn brother.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*The World Noble arrive at Goa Kingdom. Another member of them is revealed, this being Saint Jalmack.
+*Jalmack blows up Sabo's ship with him on it.
+*Ace and Dadan managed to defeat Bluejam and escape the fire.
+*It is revealed that the reason why Ace never ran from his enemies, was because he inherited this instinct from his father, Roger. Unfortunately, this instinct has cost him his life against Admiral Akainu.
+*Sabo is believed to be dead.
+*Ace is seen crying for the first time in the flashback.
+
+## Characters
+
+## Characters
+
+Pirate, Bandits, Marines, World Government, Straw Hat Pirates, Roronoa Zoro, Nami, Usopp, Sanji, Tony Tony Chopper, Nico Robin, Franky, Brook, Bluejam Pirates, Bluejam, Sabo, Dadan Family, Curly Dadan, Dogura, Magura, Vice Admiral, Monkey D. Garp, World Noble, Jalmack, Dawn Island, Monkey D. Luffy, Portgas D. Ace

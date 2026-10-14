@@ -1,0 +1,51 @@
+# Chapter 953: Once a Fox
+
+Arc: Wano Country Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_953 (CC-BY-SA)
+
+## Cover page
+
+"Gang" Bege's Oh My Family Vol 4: "Time to hijack the enemy's ship! Off to Thriller Bark!"
+
+The Fire Tank Pirates take over a ship and plan to go to Thriller Bark.
+
+## Short summary
+
+Kawamatsu reveals that after Hiyori left him, he went to Ringo, where he encountered Onimaru, a komagitsune who was the companion of Ringo's late daimyo Shimotsuki Ushimaru. Until Kawamatsu was caught and arrested, he had worked with Onimaru to collect the weapons left on the graves in the cemetery in order to use them in the final battle against Kaidou. In the present, Gyukimaru leads Zoro, Kawamatsu, and Hiyori to an underground chamber where all these weapons have been stored, and Kawamatsu contacts Kin'emon to reveal that they can easily arm their allies come the final battle. Outside, Gyukimaru transforms into Onimaru.
+
+Hiyori then tells Zoro to return Shusui, and in exchange she will give him the Famous Blade Enma, a blade wielded by her father that was able to wound Kaidou.
+
+## Long summary
+
+13 years ago, Kawamatsu received a note from Hiyori after she had run away from him, thanking him for everything he did and assuring him that she would be fine. Kawamatsu was distraught and ran all over Wano, unsuccessfully trying to find Hiyori. In the present day, Zoro chases after Gyukimaru, who runs into an abandoned town. Zoro struggles to keep up with the monk, but is able to follow his blood trail before noticing something. On Oihagi Bridge, Kawamatsu says that he and Hiyori should go on, and she asks him why he came here.
+
+Kawamatsu replies that after searching for her 13 years ago, he had come here to commit seppuku. Ringo, like Hakumai, was once ruled by the Shimotsuki Family, with Shimotsuki Ushimaru ruling as daimyo with a komagitsune named Onimaru serving as his companion. Ringo has a burial practice known as the Eternal Grave, with the burial sites of the deceased being marked by their swords. Thus, the cemeteries frequently attract grave robbers. As Kawamatsu made his way into Ringo, he saw Onimaru chasing away some Beasts Pirates who were trying to steal the swords. Onimaru then collapsed from his wounds, and Kawamatsu was stunned to see that he had successfully protected the graves five years since Ushimaru died. Kawamatsu then bandaged Onimaru's wounds and gave him food to eat, helping him survive.
+
+Afterwards, Onimaru went back outside to find Kawamatsu taking the swords from the graves, and he quickly became belligerent despite the kappa's pleas, ultimately biting his arm. Kawamatsu shook Onimaru off and revealed that he wished to collect the swords for the final battle against Kaidou, saying it was too early for the swords to rest and that they needed to be safeguarded against grave robbers. Kawamatsu was personally invested in accomplishing this task after failing to take care of Hiyori, but Onimaru only bit him again and refused to release his grip. Kawamatsu then shouted that the komagitsune could rip off his arm if he wished, but he would continue collecting the swords even without the arm. Onimaru released Kawamatsu's arm and licked the blood from his wound before sitting and watching, letting the kappa continue collecting the swords.
+
+One day, Kawamatsu woke up to see Onimaru working to free a sword from a grave, and the komagitsune served as his companion from then on as they took the swords and built an underground room to store them in. At one point, they chased away some real grave robbers, and Kawamatsu disguised himself by wearing a cloth over his face and donning the alias of "Gyukimaru". After doing this for a while, he went into the Flower Capital to gather food and made a blunder, resulting in him being captured. In the present, Hiyori asks if he is here to see Onimaru again, but Kawamatsu does not expect him to be still around after 13 years. They catch up to Zoro, who reveals that Gyukimaru opened up a door before disappearing. Kawamatsu takes them through the door, where they enter an underground chamber filled with hundreds of swords. Kawamatsu contacts Kin'emon to tell him that they will be able to arm their allies, having Kin'emon send some forces to his location. Kawamatsu wonders if Onimaru was able to set this all up, but knows that a human had to have done all this. Back outside, Gyukimaru stands behind a house and transforms into Onimaru before walking away, content.
+
+Meanwhile, Hiyori tells Zoro that he should give Shusui back to Wano. Zoro objects, but she tells him that she can give him a suitable replacement: Enma, a Famous Blade once wielded by Oden which gave Kaidou his lone scar.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*More of Kawamatsu's past is shown.
+**After Hiyori left, Kawamatsu headed to Ringo to commit seppuku.
+**He stumbled upon Onimaru, the former daimyo Shimotsuki Ushimaru's pet komagitsune, fighting against grave robbers.
+**He decided to gather the weapons of the deceased in preparation for the final battle when Kin'emon returns, while fighting against grave robbers under the alias of "Gyukimaru".
+**While acquiring supplies, he was captured when he went to the Flower Capital searching for food.
+**When Kawamatsu failed to return to Oihagi bridge, Onimaru transformed into a large humanoid to continue Kawamatsu's mission.
+*Kawamatsu explains more about the Ringo region.
+**The Shimotsuki Family is mentioned.
+*Kawamatsu talks with Kin'emon for the first time in twenty years.
+*Hiyori offers her father's sword, Enma, to Zoro as a replacement for Shusui.
+**According to Hiyori, the sword is the only weapon that was able to injure Kaidou.
+
+## Characters
+
+## Characters
+
+Pirates, Straw Hat Pirates, Roronoa Zoro, Fire Tank Pirates, Capone Bege, Vito, Gotti, Wano Country, Kouzuki Hiyori, Kawamatsu, Onimaru, Shimotsuki Ushimaru, Bingo, Bongo, Bungo

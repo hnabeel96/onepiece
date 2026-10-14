@@ -1,0 +1,60 @@
+# Chapter 764: White Monster
+
+Volume: 77  |  Arc: Dressrosa Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_764 (CC-BY-SA)
+
+## Cover page
+
+Color Spread: The Straw Hats catch fish with some bears at the top of a waterfall for Sanji to cook.
+
+## Short summary
+
+Law was surprised at the fact that Corazon has kept up his mute charade from his own crew and that Corazon was also a Devil Fruit user. Corazon warns Law that Doflamingo is a monster and Law will become one if he continues to follow the same path, but Law argues that he will still die soon and rushes to tell Doflamingo. Corazon tries to stop him but was surprised that Law didn't reveal his ruse as Law owes him for the stabbing incident.
+
+Doflamingo later learns that Corazon kidnapped Law and is travelling toward all known hospitals in the sea to cure Law's illness. Corazon then makes a call to Marine Headquarters where he explains to Admiral Sengoku of his current objective. After he hung up, Sengoku meets a recruit named Vergo requesting for a transfer to G-5.
+
+Corazon and Law spent months travelling to many hospitals, attempting to cure the younger pirates Amber Lead poisoning, but they all refused to treat Law, causing Corazon to attack them for hurting Law emotionally. This causes them to be hunted by the authorities for leaving a trail of damaged hospitals. One night, Corazon told a sleeping Law that he understands his pain unaware that Law was listening.
+
+The next morning, Law and Corazon received a call and answers it, unaware that Doflamingo was on the line.
+
+## Long summary
+
+Law was surprised that Corazon can speak and asks why would he hide all this from Doflamingo to which Corazon states Doflamingo came to the conclusion he couldn't speak. As Law starts shouting Corazon snaps his fingers saying "silent" and Law is now unable to hear people talking. He wonders what he did knowing he can definitely tell that people are having conversations outside. Corazon reveals he put up a soundproof barrier because Law was making a scene and inside his soundproof wall no one can hear them talk and those outside can't hear them either, revealing he's a silent human who ate the Nagi Nagi no Mi. Law then reacts shocked wondering if Corazon has always just been putting up an act about being mute and clumsy to which Corazon says it's all been an act (though the latter sets his mantle on fire revealing he's always been clumsy).
+
+Though Corazon admits he's always been clumsy, Law demands why he would hide all this from his comrades. Corazon reveals he's never thought of them as comrades. As Doflamingo's younger brother, it is his duty to keep his brother's madness at bay and wonders how could his kind-hearted parents give birth to a monster he'll never know. He goes on to state Doflamingo isn't human and recalls the time he was being pinned to the wall by the angry mob. Homing pleads with the mob to let his sons go and shoot their arrows at him. A young Corazon pleads to die as he can't take the pain anymore. However, a young Doflamingo shouts they will pay for this and he will not die while promising to kill every last person who harmed him, shocking all the bystanders and his family. Back to the present in Law's past, Corazon states that Doflamingo was born pure evil knowing nothing of fear and the only ones who know of this are the four executives and the former "Corazon", Vergo. When Law asks who Vergo is, Corazon states he's an extremely skilled person on a secret mission that even he does not know about and that Law does not need to know. Corazon asks Law to not become a monster like his brother and wants him to get away from him though Law refuses as he wants to become like him. Corazon says he's definitely a "D." and is a member of the "Fated Family of D.".
+
+In the society he was born in those that bear the name of D. that "bad kids will be eaten by D." and when someone with a name D. in their name all the elders moan stating "that D. will bring forth a storm again". Law angrily asks if he's some sort of monster though Corazon says he's not sure as no one really knows what it means and that it's a name secretly inherited throughout the world and in his home they call this "Family of D.'s" to be "God's natural enemy", shocking Law. He states that if you consider the World Nobles as "God" then the objective of Law's people would be to destroy the world, but Doflamingo is after the opposite of that and that D. is supposed to be the antithesis of God. Law angrily shouts he doesn't understand what he's saying and that he only joined this family so he could kill the people who wronged him and he has less than a year to live left anyway and is Doflamingo's subordinate. Corazon offers him to leave to find a cure but Law says there isn't one and rushes back to tell Doflamingo about his powers and his ability to talk. Corazon tries to stop him with a kick but Law tosses him into the trash mentioning he's gotten stronger these last two years. Buffalo sees this and threatens to tell him but Law keeps him quiet like before with ice cream when Baby 5 lends him money.
+
+As Corazon returns to the crew he curses Law for doing what he did wondering if this is it for him. However, Doflamingo tells him to get on board unaware of what happened before. As Corazon reacts surprised, Law reveals he owes him from two years ago for not telling anyone about him stabbing him so now they are even.
+
+While the Donquixote Pirates are out at sea against Marines, Diamante demands Law and Corazon's location to which Lao G mentions they left somewhere. Senor Pink reveals a letter to Doflamingo saying "I've left to heal Law's illness" much to his anger. With Law and Corazon, Law shouts this is kidnapping as the Den Den Mushi rings and, thinking it's Doflamingo begs him to help. Law demands what he's going to do with him and Corazon states he's going to heal him but Law states there is no cure. Corazon then answers the call, who is then called by his real name Rosinante by the man on the other end. Rosinante states he needs to leave his post for a while mentioning he needs to handle something personal. As the individual asks how are the kids of the crew, Rosinante states those 3 just won't leave no matter what he does. The individual is revealed to be Sengoku as an Admiral and tells him to be careful and give him the report later. He then puts away paper revealing Rosinante to be a Marine Commander and is greeted by Vergo who wishes to be transferred to G-5.
+
+Law demands to know if Corazon is a Marine, stating he hates anyone related to the Government, Corazon states he isn't one. They then arrive at a hospital and Corazon is confident they will be able to heal him. The doctor reacts shocked by Law's Amber Lead Sickness as Corazon states that it's been around for a while and when the Doctor asks where Law was from with the answer being Flevance, the doctor and nurse react horrified thinking they will be infected by Law. Law says he's had enough and doesn't think he's human anymore and leaves crying, much to Corazon's shock. The nurse calls Law a white monster as the doctor yells at Corazon for bringing law to him and tries to contact the Government about Law's condition. Corazon, enraged at their prejudice to Law, brutally punches him in the face and blows up the hospital. Corazon states that hospital was the worst and apologizes to Law for going through that and promises to find a capable doctor despite Law's plea to not go through it again. They continue to go to various hospitals, all of which treat Law with prejudice and results in Corazon taking his anger out on all of them for their cruel treatment to the boy while the government is now aware of Law's status as a survivor of Flevance.
+
+Six months pass and Corazon wonders why he is doing this to Law and wonders if he's doing this for the sake of the D. but he doesn't care about that. He admits he felt sympathy for Law over how a child said something like "I'm going to die", he felt sorry for him. He goes on to state that when Law stabbed him, now crying uncontrollably, Corazon states it didn't even hurt and that Law was the one hurting and he could only feel compassion for him. As he walks away, Law, who heard all of this, begins to weep, finally finding someone who understands him. The next morning, Law now calls Corazon "Cora-san" much to the latter's surprise and they then get a call from Doflamingo.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*Corazon reveals that he was never mute and has been deceiving his brother Doflamingo all this time.
+*Corazon ate the Nagi Nagi no Mi, which allows him to create soundproof walls.
+*Corazon explains to Law about the Will of D.
+**Corazon talks about the existence of the clan of D.
+**People from that clan are considered "Natural enemies of God".
+*Vergo was the first person to hold the heart seat.
+**Vergo is shown to have already infiltrated the Marines and was asking to be transferred to G-5.
+*Law decides to not tell Corazon's secret to Doflamingo as repayment for 2 years ago, when Corazon covered up Law's attempt to kill him.
+*Tsuru's battleship is seen in pursuit of the Donquixote Pirates. The headsail features Tsuru's namesake, the kanji for "crane".
+*Corazon takes Law with him to find a cure for his illness. They spend 6 months trying to find a hospital willing to treat Law, but he gets rejected by all of them.
+*Corazon works for the Marines as a spy who infiltrated the Donquixote Pirates. His rank is that of a commander.
+**Corazon's hatred of children is a tactic he uses in order to try and convince the younger members of the crew to leave.
+*Law starts referring to Corazon as "Cora-san".
+* Before Corazon blows up the second hospital and when he is about to see the 3rd doctor, his makeup is gone.
+
+## Characters
+
+## Characters
+
+Pirate, Marines, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Nami, Usopp, Sanji, Tony Tony Chopper, Nico Robin, Franky, Brook, Donquixote Pirates, Donquixote Doflamingo, Donquixote Rosinante, Trebol, Diamante, Pica, Vergo, Lao G, Senor Pink, Dellinger, Gladius, Buffalo, Baby 5, Trafalgar D. Water Law, Admiral, Sengoku, Donquixote Family, Donquixote Homing

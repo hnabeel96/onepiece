@@ -1,0 +1,59 @@
+# Chapter 1031: Warrior of Science
+
+Volume: 102  |  Arc: Wano Country Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_1031 (CC-BY-SA)
+
+## Cover page
+
+Color Spread: Portrait of the "right-hand men" of several infamous groups; specifically, Zoro, Bepo, Rayleigh, Beckman, King, Katakuri, Killer, Marco, Shiryu, and Sabo.
+
+## Short summary
+
+After emerging from Kid's awakened attack, Big Mom uses a year of her lifespan to make herself bigger and stronger. Meanwhile, Yamato interrupts Apoo and Drake's meeting, elsewhere on the inside of Onigashima, the CP0 agents begin making their move, commencing a pursuit of Robin and several of the minks rise up to try and stop them.
+
+Meanwhile, as Sanji is confronted by Queen again, the cook speculates that he had lost his humanity for a brief moment due to his father's modifications taking effect as a result of him using the Raid Suit, causing him to strike a woman who was in his way. Disgusted by what he was becoming, Sanji destroys the contraption. He then calls Zoro over Den Den Mushi and asks his crewmate to strike him down should he come out of this war no longer a human, and Zoro agrees. Sanji then ignites Hell Memories and strikes Queen with a powerful blow.
+
+## Long summary
+
+The Beasts Pirates watch in awe at how Big Mom was crushed under tons of metal beams by Eustass Kid, even thinking she could not have survived it. Kid and Law are breathing heavily as Law makes note of the Jiki Jiki no Mi's awakened abilities allowing Kid the power to make others magnetic, but Kid refuses to divulge any more of his powers to him. Suddenly, a metal beam is thrown off the pile as Big Mom emerges from within. She then performs her Soul Pocus technique and asks, "Life or Oshiruko?" As the nearby Beasts Pirates fall under its effect due to the fact that they threw out so much of it earlier in the party, Big Mom extracts their souls and bestows them onto the metal beams, creating a new army of Homies. She then removes one year of her own lifespan and consumes it, causing her to grow even larger with her soul energy emanating from her eyes. She admits to Kid and Law that it has been decades since she last felt such pain, and like Luffy, they are serious about dethroning her. She then dares them to continue fighting, as she will show them what it means to be an emperor. Law confirms saying he wants to learn the true history, and Kid says that no matter the costs, he plans on taking her down.
+
+Yamato, who has made it back into the castle, notices several enemies before him and decides to take a detour through the Cave Chamber. In the room, X Drake, who has rejected Scratchmen Apoo's proposal for an alliance, proceeds to attack him. Apoo tries to use his Devil Fruit powers against him but Drake dodges, as he reveals to Apoo that he knows that his attacks work by getting them to follow his line of sight when he wants his targets to hear them. Apoo, however, retorts that he has three Numbers backing him up, but just then, Yamato bursts in. Though confused by the two's presence, Apoo decides to take advantage of Yamato's conflict with his father and attempts to team up with him, but he tells Apoo he is not with the Beasts Pirates anymore (though that does not stop him). He briefly clashes with Drake to get him out of his way, but Drake quickly explains he has defected too. Still, he pushes him off and continues making his way to the weapons room. Fuga, however, decides to start chasing him, and Apoo, not wanting his next opportunity to disappear, tells Inbi and Zanki to follow him, but Drake refuses to let him get away.
+
+On the second floor, Robin and Brook flee from CP0, while the Minks do their best to keep the agents at bay, with little success. Brook takes her in his arms and jumps off a ledge as Robin tries to understand why CP0 is in Wano. She also tells Brook that among the elites, the ones who wear masks are in a class of their own. Guernika then disappears.
+
+In the Left-Brain Tower, Sanji finds himself at Black Maria's brothel, but all the women are hostile to him because apparently, he attacked one of them. They chase him away by throwing objects as a confused Sanji tries to figure out how would have attacked a woman since he vowed not to do so. He recalls how he denounced his cruel brothers for viciously attacked Cosette. At the same time, Queen catches up to him as Sanji realizes that the tingling sensation in his body has stopped. He then thinks to when he was running around deep in thought when he came across the girl from before, who tried to convince him that she was not with Kaidou, and how the next thing he knew, she was on the ground hurt and terrified of him. Convinced he was the one responsible, he asks himself who would Luffy prefer: the human Sanji who is useless against enemy women, or a "soldier of science" who is cruel and heartless and will do anything to complete his mission. Though he is not sure, he makes a decision regarding his Raid Suit. He pulls it out as Queen thinks he is finally going to put it on, but Sanji instead drops it on the ground and destroys it by stomping on it, decreeing that even though his latent abilities have been awakened by it, he refuses to lose any more of himself to Germa. Queen reacts with displeasure at no longer being able to see him transform as Sanji pulls out a Den Den Mushi. 
+
+He then contacts Zoro, who is deep in his battle with King, and wonders how he ended up with one. Sanji explains to him that he snuck it into his clothes in case he got lost and tells him that while he is confident they are going to win, if he loses his humanity afterwards, he wants him to kill him. Though a little confused, Zoro agrees to Sanji's terms, even adding he is looking forward to it, so he better not die before that, which Sanji thanks him for. He then immediately vanishes, which Queen wonders if that was another enhancement, but an already irate Sanji strikes Queen with Hell Memories, setting him ablaze.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*Law and Kid's fight against Big Mom continues.
+**Big Mom uses the life span of the Beasts Pirates subordinates to turn the metal beams that injured her into Homies, as well as to boost the power of Hera, Prometheus and Napoleon.
+**Big Mom also uses up a year of her own life span to empower herself, growing in size.
+*Drake refuses Apoo's alliance proposal and they start fighting.
+**Yamato enters the room and tries to attack Drake, but stops when he claims to be on Luffy's side.
+**Apoo plans to ally with Yamato against Kaidou.
+**Yamato leaves the room while being chased by Fuga, with Apoo, Drake and the other present Numbers following after them.
+*The CP0 agents find Robin in the second floor of Kaidou's castle.
+**Robin and Brook escape to a lower floor.
+**Robin notes that the masked agents are considered the strongest among CP0.
+*Sanji ends up in the yūkaku at the Left-Brain Tower.
+**He is attacked by the women there for seemingly injuring a young geisha brought from the Flower Capital, though his memories of doing so are vague.
+**Queen catches up to Sanji.
+*Sanji destroys his Raid Suit canister.
+**Sanji realizes the raid suit is the reason for his dormant genetic modifications awakening. He decides to destroy the canister to cut his ties to his family for good.
+**Sanji seems to be able to turn invisible without the suit. 
+**Sanji's eyebrows have been twisted to the other direction, just like his siblings.
+*Zoro's fight against King continues.
+**Sanji calls Zoro via a Den Den Mushi he snuck into Zoro's obi.
+**Sanji requests the swordsman to kill him if he loses his mind somehow.
+
+## Characters
+*This chapter marks the first time that Kid's Devil Fruit, the Jiki Jiki no Mi, is named in the series. It had previously only been mentioned in SBS Volume 99, where Oda expressed surprise at the fact that he had not yet revealed the name in the main story.
+
+## Characters
+
+Pirates, Marines, World Government, Straw Hat Pirates, Roronoa Zoro, Sanji, Nico Robin, Brook, Kid Pirates, Eustass Kid, Killer, Heart Pirates, Trafalgar D. Water Law, Bepo, Red Hair Pirates, Benn Beckman, Whitebeard Pirates, Polo Marco, Roger Pirates, Silvers Rayleigh, Beasts Pirates, King, Queen, Inbi, Fuga, Zanki, Big Mom Pirates, Charlotte Linlin, Charlotte Katakuri, Napoleon, Prometheus, Hera, On Air Pirates, Scratchmen Apoo, Blackbeard Pirates, Shiryu, Yamato, SWORD, X Drake, CP0, Maha, Guernika, Wano Country, Some, Germa Kingdom, Vinsmoke Ichiji, Vinsmoke Niji, Vinsmoke Yonji, Cosette, Revolutionary Army, Sabo

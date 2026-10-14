@@ -1,0 +1,50 @@
+# Chapter 685: My Name is Momonosuke!!
+
+Volume: 69  |  Arc: Punk Hazard Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_685 (CC-BY-SA)
+
+## Cover page
+
+Color Spread: The Straw Hats in Halloween costumes making their way through a jack-o-lantern patch with hollows floating around them. The caption says "Dead or Treat".
+
+## Short summary
+
+The dragon Luffy encountered introduces himself as Momonosuke. It is revealed that he was transformed into a dragon after eating an imperfect Devil Fruit synthesized by Dr. Vegapunk. Momonosuke tells Luffy that he overheard Caesar Clown saying that the experiments he is performing on the kidnapped children will kill all of the children within five years if he is allowed to continue, and the two of them decide to escape the trash disposal area. Suddenly, Momonosuke sees a hallucination of Doflamingo and loses control of himself. He flies upwards by grabbing on clouds, while Luffy grabs on and rides him.
+
+In section B, Usopp, Kin'emon, and Brook are running around searching for Momonosuke, as well as seastone handcuffs at Robin's request. Usopp is worried about Nami and the rest of the group because he is not there to protect them. However he feels that they will be fine because Zoro is with them. In section D, Smoker appears to have the upper hand in his fight with Vergo, after landing another blow hardened by Haki. Outside Biscuits Room, Tashigi and the other G-5 Marines continue to run from Shinokuni, with Sanji helping by kicking away the Marines who are about to be caught in the gas.
+
+In Biscuits Room, Nami and Chopper are being covered in snow from the blizzard created by Monet's Devil Fruit ability. Robin tries to protect Mocha from the other children, but is attacked by Monet, who impales her through the shoulder with a saber. Zoro says he will fight Monet as she is a Logia user, and asks the others to go on ahead and stop the berserk children.
+
+## Long summary
+
+In the scrap heap beneath C Building, the small dragon introduces himself to Luffy as Momonosuke. Luffy thinks that he has heard the name before, but Momonosuke yells at him for drooling. Momonosuke continues, stating that he is not food and would rather eat than be eaten. Luffy grabs Momonosuke's horns, looking for a person stuck to his neck communicating by farts, but soon realizes that Momonosuke (which Luffy thinks is an eel) is the one talking. Momonosuke chides Luffy for drooling, but his own stomach then rumbles. Luffy says that Momonosuke is just as hungry as he is, but the dragon says that a warrior does not go hungry from just ten days without food. Luffy is stunned that he has been without food for ten days, and when Momonosuke asks his name, Luffy introduces himself and says that he is going to be the next Pirate King. Momonosuke is surprised, as he had thought that pirates were hulking brutes, unlike Luffy. Momonosuke remarks that Luffy is also an outsider, and says that the facility is for diseased children.
+
+Momonosuke says that he does not know much about the island, and arrived merely when he sneaked onto a boat. Momonosuke says that even though he distanced himself from the other children, they were nice to him, offering him candy. The children met Caesar Clown, and when asked his name, Momonosuke refused to give one. After declining candy for some time, he managed to escape, hungry and exhausted. He found a Devil Fruit and ate it, but was caught by one of the children. She tells him that they are not allowed to be in that room, but Momonosuke says that he needs to escape the facility. The girl says that they all want to go home, but that being in the Biscuit Room is not all bad. Suddenly, some of Caesar's men arrive, and the girl runs away. Momonosuke, however, transforms into a dragon before their eyes and to his confusion. He manages to escape, and after he is gone, the soldiers remark that the fruit that Momonosuke ate was Vegapunk's failed artificial Devil Fruit.
+
+To wrap up his story, Momonosuke tells Luffy that he is human. Luffy says that he ate a Devil Fruit, and asks Momonosuke why he does not simply transform back into a human. Momonosuke is surprised that he can turn back, and asks Luffy how to do so. Luffy brushes off this question, saying that he is not a Zoan, and remarks that the hole he fell through is a long way away. Momonosuke says that he also wants to leave since he overheard Caesar saying that all of the children will be dead in five years if the experiment continues. Momonosuke continues, saying that he would have warned the children but instead fell into the hole, trapping himself. This infuriates Luffy, who says that he is going to climb the walls along with Momonosuke. The dragon is relieved, but Luffy tells him to get a hold of himself. This makes Momonosuke see a hallucination of Donquixote Doflamingo. This scares the dragon so much that he starts to fly, with Luffy hanging on to him.
+
+Meanwhile, in B Building, Usopp, Brook, and Kin'emon have broken off from the rest of the group to look for Seastone handcuffs at Robin's request. Brook uses his Yomi Yomi no Mi abilities to look behind walls. Usopp is worried about Nami and the rest of the group because he is not there to protect them. However he feels that they will be fine because Zoro is with them. In the SAD production room in D Building, Law looks on while Smoker and Vergo clash. In B Building, Tashigi and the G-5 Marines are fleeing the poisonous gas with help from Sanji, who is kicking them along.
+
+On the third floor of Building B, Monet has created a blizzard with her Devil Fruit abilities while Mocha tries to escape from the kids who want their candy. Robin tries to help, but is stabbed by Monet. Zoro steps in, saying that he will handle the enemy because she is a Logia user. As of now, there are twenty minutes left until the gas fills B Building completely.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*The small, talking dragon in the basement is Kin'emon's son, Momonosuke.
+*A silhouette of Momonosuke as a human is shown.
+*Momonosuke became a dragon by eating a Devil Fruit synthesized by Dr. Vegapunk, which is said to have been a failure. This is the first known example of a man-made Devil Fruit.
+*Momonosuke has a hallucination of Donquixote Doflamingo, which scares him and causes him to lose control of his body.
+*According to Caesar Clown, the experiments he is performing on the kidnapped children will kill them within five years.
+*Kin'emon, Usopp, and Brook separate from the rest of the group by Robin's request in order to find Seastone handcuffs, as well as Momonosuke.
+*Monet is revealed to have eaten the Yuki Yuki no Mi, which gives her the ability to turn into and control snow. This makes her the first canon female Logia user in the series.
+*The ghosts shown on the cover page resemble the hollows made from Perona's Horo Horo no Mi.
+
+## Characters
+
+: first introduction
+
+## Characters
+
+Pirate, Marines, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Nami, Usopp, Sanji, Tony Tony Chopper, Nico Robin, Franky, Brook, Shichibukai, Trafalgar D. Water Law, Donquixote Doflamingo, G-5, Vergo, Smoker, Tashigi, Punk Hazard, Caesar Clown, Monet, Wano Country, Kin'emon, Kouzuki Momonosuke, Sind, Mocha, Doran, Uzu, Konbu, Ginko

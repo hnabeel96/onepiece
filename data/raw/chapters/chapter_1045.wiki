@@ -1,0 +1,72 @@
+{{Chapter Box
+| title = Next Level
+| jname = {{Ruby|NEXT|ネクスト}} {{Ruby|LEVEL|レべル}}
+| rname = Nekusuto Reberu
+| ename = Next Level
+}}
+
+'''Chapter 1045''' is titled "Next Level".
+
+==Cover Page==
+[[Cover Page#Color Spread|Color Spread]]: The [[Straw Hat Pirates]] in a carnival-themed scenario to celebrate the 25th anniversary of the manga.
+
+==Short Summary==
+[[Monkey D. Luffy|Luffy]] uses his [[Gomu Gomu no Mi/Gear 5 Techniques|Gear 5]] awakened form to both manipulate the environment like rubber and freely change the shape of his body, and [[Kaidou]] is left baffled as Luffy barrages him with increasingly unorthodox moves; however, Luffy does need to make a great effort to maintain this form due to his near-death state.
+
+==Long Summary==
+With their battle now resumed, [[Kaidou]] states that he was sure [[Monkey D. Luffy|Luffy]] had died, to which the latter agrees. He watches Luffy bounce off the ground repeatedly and deduces that he has awakened his [[Paramecia]] [[Devil Fruit]] since he is able to turn his surroundings into rubber. However, he notes that something does not add up, as Luffy's [[Gomu Gomu no Mi/Gear 5 Techniques|transformation]] should be more reminiscent of a [[Zoan]] user. Kaidou lunges at Luffy and attempts to devour him, but Luffy bounces around his insides before using '''Gomu Gomu no Fusen''' to expand not only his body, but Kaidou's as well. [[Yamato]] and [[Kouzuki Momonosuke|Momonosuke]], who are watching the battle from a distance, are confused by what they are seeing, wondering if Kaidou getting fatter was just one of his forms. While Kaidou becomes frustrated at his body gaining the properties of rubber, Luffy sees two lights from inside him, which turn out to be his eyes, and grabs through them to latch onto his nose before using '''[[Gomu Gomu no Mi/Gear 5 Techniques#Situational Techniques|Gomu Gomu no Dasshutsu Rocket]]''' to free himself from Kaidou's body. He then begins to deflate, which sends him flying into the clouds, and reemerges the size of a giant by using '''[[Gomu Gomu no Mi/Gear 5 Techniques#Techniques|Gomu Gomu no Gigant]]''', much to everyone's astonishment. Kaidou once again bites Luffy, but the latter, taking advantage of his size and Kaidou's serpentine form, uses '''Gomu Gomu no Nawatobi''' to use Kaidou's body as a jump rope.
+
+As they descend back towards the rooftop, Kaidou fires another '''Bolo Breath''' at Luffy, which hits him directly and causes him to fall again. However, Luffy becomes frustrated and begins spinning his legs so fast that he is able to run across the air to return to the rooftop. As he prepares another attack, Kaidou strikes him with '''Kosanze Ragnaraku''', sending Luffy's head crashing through the ground and to the lower floors, much to everyone's shock. He pulls himself back up to the roof and begins to revert back to normal, showing that he becomes extremely fatigued and visibly ages after using '''Gear 5'''. Kaidou assures him that he can die, and someone will share the story of his fight, but Luffy refuses, stating that all that is left after dying is bones. Yamato and Momonosuke see that is really is Luffy, but his hair and clothes turning white made him hard to recognize.
+
+As he prepares to reactivate '''Gear 5''', Luffy reminds himself of several people he has made promises to or is indebted to, such as Momonosuke, [[Kurozumi Tama|Tama]], [[Kin'emon]], and [[Pedro]]. Kaidou tells Luffy to be careful or he will die, but Luffy refuses to be afraid of death and tells his heart to start beating louder, allowing him to reactivate '''Gear 5'''. He is suddenly struck again by Kaidou's [[Hassaikai]], but this time his head wraps around the weapon and its spikes, causing it to take on a crescent shape. He begins running away in pain, but another blow from Kaidou squashes him to the ground. Luffy uses the ground as a springboard to launch himself back up and towards a rock formation, which he once again launches himself off of to return to his normal size. Kaidou, still trying to make sense of Luffy's new fighting style, watches as Luffy approaches him with his arms spinning like helicopter blades. Luffy strikes Kaidou with a punch that seemingly goes through his head before knocking him to the ground, while remarking on how fun this is.
+
+==Quick References==
+===Chapter Notes===
+*The fight between [[Monkey D. Luffy|Luffy]] and [[Kaidou]] continues:
+**Kaidou points out that Luffy's awakening has elements of both [[Paramecia]] and [[Zoan]] fruits.
+**Kaidou once again swallows Luffy but the latter manages to escape.
+**More properties of [[Gomu Gomu no Mi/Gear 5 Techniques|Gear 5]] are shown:
+***Luffy's awakening can somehow affect organic material.
+***Gear 5 allows Luffy to grow his entire body to the [[Gigantification|size of a giant]]. He then uses Kaidou's [[Uo Uo no Mi, Model: Seiryu|dragon form]] like a jumping rope.
+****This also drains his energy to a point that he is visibly aging. However, he manages to get back up quickly.
+**Luffy's body becomes malleable and follows the shape of Kaidou's [[Hassaikai]] when hit.
+**Luffy manages to pin Kaidou down.
+
+===Characters===
+{| class="CharTable"
+! colspan="2"|[[Pirate]]s
+! Citizens
+|-
+|
+;[[Straw Hat Pirates]]
+*[[Monkey D. Luffy]]
+*[[Roronoa Zoro]] ''(cover)''
+*[[Nami]]
+*[[Usopp]] ''(cover)''
+*[[Sanji]] ''(cover)''
+*[[Tony Tony Chopper]]
+*[[Nico Robin]] ''(cover)''
+*[[Franky]] ''(cover)''
+*[[Brook]] ''(cover)''
+*[[Jinbe]] ''(cover)''
+|
+;[[Beasts Pirates]]
+*[[Kaidou]]
+----
+;[[Heart Pirates]]
+*[[Trafalgar D. Water Law]]
+----
+;[[Kid Pirates]]
+*[[Eustass Kid]]
+----
+;Other
+*[[Yamato]]
+|
+;[[Wano Country]]
+*[[Kouzuki Momonosuke]]
+*[[Kurozumi Tama|Tama]]
+|}
+
+
+==Arc Navigation==
+{{Wano Country Arc}}

@@ -1,0 +1,46 @@
+# Chapter 991: Let Us Die!!!
+
+Volume: 98  |  Arc: Wano Country Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_991 (CC-BY-SA)
+
+## Cover page
+
+"Gang" Bege's Oh My Family Vol. 35: "After 26 years of pleading, his first hug as a father"
+
+Pound tearfully embraces his daughters.
+
+## Short summary
+
+Luffy accepts X Drake joining the alliance, but Zoro, Franky, and Jinbe disagree. Following Usopp's attack pretending to be Nami, Ulti and Page One chase them. Apoo attacks Luffy and Sanji, calling Hatcha for battle. Franky tries to lure Hatcha out of the Skull Dome on Jinbe's suggestion. Meanwhile, Apoo threatens to call for the Numbers, but Zoro and Drake end their clash to attack him. However, Queen shoots unusual bullets at them with a gatling gun.
+
+Meanwhile, Inuarashi and Nekomamushi have defeated Jack, and Kaidou intervenes in the battle as he blasts fire from his mouth toward the Nine Red Scabbards. However, Kin'emon cuts through the fire and wounds Kaidou's face, and the Scabbards prepare to give their lives to bring down Kaidou.
+
+## Long summary
+
+The Ninja-Pirate-Mink-Samurai Alliance members recognize X Drake and wonder why he attacked one of the Numbers. As Drake stands before Luffy, he recalls Koby telling him about the pirate, saying that Luffy could attract people towards him to the point of becoming very close friends. In the present day, Drake tells Luffy that he cannot reveal his motives, but their goals are aligned. However, Zoro immediately attacks Drake, considering him as just one of Kaidou's servants like Hawkins. Drake replies that he has been flushed out of the Beasts Pirates, but Zoro, Franky, and Jinbe refuse to trust someone who betrayed their crew that easily. Luffy says that Drake can team up with them, but the other three refuse to agree.
+
+Upon seeing Luffy again, Page One and Ulti activate their Devil Fruit powers and attack the hordes of samurai to try to get to him, but Usopp proceeds to hit Page One with a Midori Boshi: Dokuro Bakuhatsu So. Ulti looks around to see who fired the attack, and Usopp crouches behind Nami and tries to act as her in order to give her the credit for the attack. Nami quickly responds by hitting Usopp, and the duo quickly proceed to run away from the charging Tobiroppo. Meanwhile, Luffy and Sanji move together to get to Kin'emon's group, when Luffy has a premonition of Scratchmen Apoo attacking. He tells Sanji to cover his ears as the Supernova unleashes his Tatakau Music, and this action renders it ineffective. Apoo laments over the defeats of Jaki, Goki, and Juki, being sad that a group of giants powerful enough to lay waste to countless towns would be beaten up while drunk and partying. Hatcha then arrives and picks up Jaki, and Apoo asks if he is sobered up and tells him to show the alliance the power of the Numbers. Luffy tries to go and fight Hatcha, only to be held back by Sanji. Hatcha's eyes then light up in admiration as he sees the General Franky, and noticing this, Jinbe tells Franky to run outside of the Skull Dome in order to lure the giant away from everyone else. Franky does so, and Hatcha chases after him.
+
+Meanwhile, Zoro and Drake continue to clash as the latter continues trying to reason with the swordsman without divulging his true allegiance. However, Apoo then comes running in nearby to call more of the Numbers, and Zoro and Drake quickly team up to simultaneously attack their fellow Supernova. As Apoo dodges and questions Drake's actions, Drake and Zoro reach an agreement to team up against Apoo due to their mutual dislike of him. However, bullets suddenly come flying down onto the Live Floor from above, and Queen calls out to Drake from the Live Stage while holding a Gatling gun. As Zoro and Drake get back up following the onslaught, Drake suddenly becomes very concerned as he realizes what these bullets might be.
+
+On the roof of the Skull Dome, Inuarashi and Nekomamushi have defeated Jack using their Sulong forms, forcing Kaidou to intervene before they can injure him further. Jack apologizes for being too weak, but Kaidou replies that this is not the case; rather, the two minks are extremely strong. Although the minks' assault laid waste to Jack's platoon, Kaidou commends his subordinate for managing to keep all but their two rulers in check and tells him to have his wounds treated. Kaidou then prepares to see how many of his attacks the Nine Red Scabbards can run from as he unleashes a Bolo Breath blast at them, but Kin'emon responds by using Foxfire Style to cut the fire into two streams. His attack also gives Kaidou multiple small cuts around his mouth, and the Scabbards state that they have no intention of running; they are ready to lose their lives so long as they take down Kaidou.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*Luffy accepts Drake's proposal, but Zoro, Jinbe, and Franky disapprove.
+*Nami and Usopp are being chased by Ulti and Page One.
+*Zoro and Drake briefly fight each other before joining forces to fight Apoo.
+*It is revealed that there are ten Numbers.
+*Hatcha chases after Franky.
+*Jack and his forces are defeated, but Jack managed to defeat a majority of the Mink Tribe.
+*The Nine Red Scabbards and Izou resume their confrontation with Kaidou.
+**Inuarashi and Nekomamushi's Sulong forms are clearly shown.
+
+## Characters
+
+## Characters
+
+Pirates, Marines, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Nami, Usopp, Sanji, Franky, Jinbe, Fire Tank Pirates, Capone Bege, Charlotte Chiffon, Capone Pez, Rolling Pirates, Charlotte Lola, Beasts Pirates, Kaidou, Queen, Jack, Page One, Ulti, Jaki, Goki, Nangi, Hatcha, Juki, Fuga, Zanki, On Air Pirates, Scratchmen Apoo, SWORD, X Drake, Koby, Wano Country, Kin'emon, Denjiro, Izou, Kikunojo, Raizo, Ashura Doji, Kawamatsu, Hyougoro, Tsunagoro, Mokomo Dukedom, Inuarashi, Nekomamushi, Shishilian, Yomo, Pound

@@ -1,0 +1,29 @@
+# Chapter 50: To Each His Own Way
+
+Volume: 6  |  Arc: Baratie Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_50 (CC-BY-SA)
+
+## Cover page
+
+Buggy's Crew Adventure Chronicles, Vol. 11: "Crab Attack".
+
+Buggy finds his raft attacked and scuttled by a giant crab.
+
+## Short summary
+
+The Straw Hat Pirates discover Nami's betrayal, which is possibly connected to a bounty poster she discovered. The "Hawk-Eyed" man Zoro had been seeking out, is revealed to be Dracule Mihawk, the World's Greatest Swordsman. The Straw Hats initially make plans to go after Nami, but this plan is halted when Zoro decides to challenge Mihawk to a duel. Nami sails away deeply hurt about leaving good people behind, but also wonders if she'll ever be free.
+
+## Long summary
+
+As the Krieg Pirates find themselves reeling from the devastating attack to their ship, Johnny again apologizes for allowing Nami to escape them with the Going Merry. In a flashback, Nami was looking through known bounty posters, having stopped at a particular one for  20,000,000. Nami then started to act strange, furthering Johnny and Yosaku's interest. They tell her that the pirate featured in the poster had been quiet for a while, but recently started rampaging again. As they are talking, she moves Johnny and Yosaku's treasure to the Going Merry's deck and asked them to turn around as she changed clothes. While the two fought their temptation to peak, they were suddenly pushed overboard by Nami. Nami told them she had a nice time, but since she was a pirate thief, there were no exceptions. She says goodbye, and tells them that if fate truly links them, then they will meet again. 
+
+In the present, Zoro and Usopp are upset (Zoro for being betrayed, Usopp for losing the Going Merry). Luffy spots the ship on the horizon, and tells his crewmates they're going after her. Zoro tries to say that no good will come of chasing after a thief like Nami (To which Usopp retorts she stole their ship), but Luffy tells them that he will accept no one else as their navigator. Zoro wonders why he followed such a troublesome captain, but nevertheless agrees with his captain's orders and prepares to set sail along with Usopp, Johnny, and Yosaku on their ship. Luffy is not able to join as he still has debt to repay to Zeff, and Zoro warns him to be careful. As they begin to part ways, one of Don Krieg's subordinates yells to him that the man who destroyed their fleet has returned to kill them all. 
+
+Aboard the Baratie, the chefs discuss the man slowly drifting towards them, before Zeff confirms his identity: the "Hawk-Eyes" man is introduced as Dracule Mihawk, the world's greatest swordsman. Zoro is in absolute disbelief, and the Krieg Pirates demand to know why Mihawk has followed them. He tells them it was simply to "kill time" inciting the anger of one of the pirates to the point he attempts to shoot him. Mihawk draws his blade and easily redirects the bullets away from himself. While some Krieg Pirates believe he simply missed, Zoro corrects them and tells them that he actually changed the trajectory of the bullets with his blade. Zoro tells Mihawk that he's never seen such a sword handled so gracefully, with the Master Swordsman replying that there is no strength in swordplay without grace. Zoro asks Mihawk if he cut the ship as well. When Mihawk affirms, Zoro is absolutely certain that he is indeed the strongest in the world, a goal he tells Mihawk that he himself is trying to reach. He then challenges Mihawk to a duel as Mihawk said he was looking to kill time, as the Krieg Pirates and the Baratie staff realize Zoro is indeed the "Pirate Hunter" they've heard of before. Usopp tries to warn Luffy that the Going Merry is getting farther away from them, but he ignores it as he has now become focussed Mihawk and Zoro. Mihawk disembarks his ship and approaches Zoro, but doesn't seem interested in dueling him and calls him a weakling. He tells Zoro that if he were truly a great swordsman, then the difference in their powers would be obvious without the need to cross blades, and asks if this desire to duel comes from his conviction or ignorance, Zoro replies that he is doing this for his own ambition, and to fulfill a promise to a friend. 
+
+The scene then changes to Nami sailing away on the Going Merry, she has already begun to miss the crew. She comments to herself about how she thinks  they are good people, and wonders if they will still call her a friend when they meet again, if they meet again. As the scene gets closer to her face it's revealed that she is crying, saying that she just wants to be free, and addressing someone named Bell-mère.
+
+## Characters
+
+Pirate, Bounty Hunter, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Nami, Usopp, Krieg Pirates, Krieg, Buggy Pirates, Buggy, Baratie, Zeff, Sanji, Patty, Carne, Cocoyasi Village, Bell-mère, Dracule Mihawk, Yosaku, Johnny

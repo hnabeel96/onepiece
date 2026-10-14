@@ -1,0 +1,27 @@
+# Chapter 167: Battle Front
+
+Volume: 19  |  Arc: Arabasta Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_167 (CC-BY-SA)
+
+## Cover page
+
+Jango's Dance Paradise, Vol. 32: "Gettin' Down In Court!!"
+
+The whole courtroom—judges, spectators, and all—gets caught up in Jango and Fullbody's dance of friendship.
+
+## Short summary
+
+The Straw Hat Pirates begin trekking to Crocodile's home in Rainbase, while Koza's rebel army prepares to attack Alubarna. However, King Nefertari Cobra receives Vivi's letter revealing Crocodile's treachery, and rather than defend Alubarna against the rebels, he decides for the royal army to attack Rainbase and bring down Crocodile.
+
+## Long summary
+
+Vivi shows the Straw Hat Pirates a map to Rainbase, where Crocodile resides. She says it will take a day to get there from Yuba, and that it is a gambling town, which excites Nami. They are interrupted by Luffy and Usopp fighting over their water, with Luffy refusing to let Toto's hard-earned water be consumed right away. The group then sets off for Rainbase. As they walk, Vivi thanks Luffy for encouraging her to set off on this course of action, and Luffy demands that he be fed in return after he beats Crocodile, which Vivi happily agrees to do.
+
+In Katorea, a young shoe shiner named Kappa begs Koza to let him join the rebel army, but Koza refuses. He has Farafra show Kappa his missing forearm, and asks Kappa if he wants to see the hospital and graveyard. Kappa responds that he is not afraid of any of that, and badly wants to fight against the king because of his sick friend in a town near Erumalu that will soon dry up as well. However, Koza says that Kappa's goals are the opposite of the army's, as none of them want to fight, but have been forced into doing so. He then shouts at the boy to go home. Later, a rebel asks Koza if anything is wrong, as it is not like him to shout at a kid. Koza replies that he was exactly like Kappa years ago, and it made him sick. He asks about the weapons they have obtained, and hears that the effort was not extremely successful due to the royal army preventing them from getting to the warehouse. Koza tells them to notify the rebels in all the towns that once all the weapons are ready, they will begin their attack on Alubarna.
+
+In the Alubarna Palace, Nefertari Cobra rejects Pell and Chaka's request to initiate a go-ahead attack on the rebel army, saying that taking action against them without understanding the cause of the unrest would tear the country apart. He says their real enemy is the figure who is responsible for the Dance Powder, and Chaka replies that it may be too late for the country before they can find that person, but Cobra refuses to relent. Pell and Chaka later sit together, and Pell remarks that they will soon be unable to keep their soldiers in line. He wishes Igaram were here, but Chaka is confident that he and Vivi are working to help the country. A messenger then comes and tells them that Karoo has arrived. As Karoo consumes water after his long journey, Cobra, Pell, and Chaka read Vivi's letter and find out that Crocodile is behind the country's unrest, as well as about Igaram's death. Chaka notices the bandages on Karoo's wing and asks if he is injured, but Karoo refuses to let him examine it. Cobra then orders Chaka to prepare a military campaign to attack Rainbase and Crocodile. However, Pell warns against this, saying Rainbase is too far for their forces to reach covertly and that attacking a public hero like Crocodile would only incur more hatred and rebellion against them. However, Cobra does not care what becomes of them, saying that the people would rebuild the country if Crocodile fell, while fighting against the rebels would do nothing but help the Warlord. He orders Chaka to gather his officers and Pell to scout out the enemy's location, saying their forces will depart tomorrow morning. 17 hours remain until Baroque Works' Operation Utopia begins.
+
+## Characters
+
+Pirate, Marines, Baroque Works, Animal Species, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Nami, Usopp, Sanji, Tony Tony Chopper, Black Cat Pirates, Jango, Marine Headquarters Court, Marine Ranks, Fullbody, Arabasta, Nefertari Cobra, Nefertari Vivi, Chaka, Pell, Koza, Erik, Farafra, Okame, Kebi, Natto, Toto, Kappa, Crocodile, Karoo, Matsuge

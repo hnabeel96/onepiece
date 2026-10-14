@@ -1,0 +1,52 @@
+# Chapter 981: Joining the Fight
+
+Volume: 97  |  Arc: Wano Country Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_981 (CC-BY-SA)
+
+## Cover page
+
+Color Spread - Luffy, Nami, Chopper, and the Town Musicians of Bremen are enjoying music played by Usopp, Sanji, and Brook. Zoro is sleeping in the background.
+
+## Short summary
+
+Queen gives the Beasts Pirates permission to kill Luffy, Zoro, Kid, and Killer, and they are forced to run away from their onslaught, which even Hatcha of the Numbers joins in. Meanwhile, part of Kin'emon's group splits off to infiltrate Kaidou's fortress in order to help surround Kaidou as well as rescue Momonosuke. Elsewhere, the Big Mom Pirates attempt to scale the waterfall around Wano again, looking to find out why Big Mom and Kaidou are in an alliance. However, they are knocked down by Marco, who is approaching Wano with Nekomamushi and Izou.
+
+## Long summary
+
+An attack from Kid is seen, with Apoo underneath and beaten up. The Beasts Pirates call onto Apoo and one of them recognises Kid, saying that he's not one of them. They are surprised to find out that another member of the 'Worst Generation' has broken out of Udon Prison, and as such, Queen is surprised, as he remembers from Babanuki's words that there was no problem in Udon. Kid then exclaims and grabs Apoo by the collar, furious that he got deceived by him then Apoo retorts that pirate alliances don't have happy endings and that he never believed they could defeat one of the Four Emperors anyway. He then attacks Kid using his Devil Fruit ability and the latter smirks, saying that he's trash. The Beasts Pirates then ask how can they defeat and take Kid and the others alive during that situation, then Queen says it's okay to kill them. As the Beasts Pirates prepare to attack Kid, Killer defends from the back and Haccha, one of the Numbers proceeds by rampaging at the place. Another pirate pointed out that he already took out two people. Kid is surprised to see how gigantic the Number is and how the Beasts Pirates 'can't control him'. Haccha gives a hearty laugh and the rampage continues, with Luffy's silhouette being seen to attack. Luffy tells Kid to get to the keep and Kid proceeds. Luffy exclaims at Kid for bringing problems, Zoro then exclaims that he's one to talk, while Kid says the same to him. Killer thinks that the other three are being ridiculous, with a laugh. Apoo attacks once more, but this time, Killer tells the others to cover their ears. Apoo clicks his tongue when he finds out that his powers did nothing, thanks to Killer's quick thinking. The latter explains that Apoo's powers only work when they can hear him, only to get a 'what' from Luffy, Zoro, and his captain.
+
+Meanwhile, the Beasts Pirates are exclaiming that there are a lot of Worst Generation members in Onigashima, and that they should start taking their heads. Another adds that Killer has eaten a SMILE, hence turning him into a 'Pleasure'. Angered, Kid almost starts another fight, but is stopped by Luffy and the others.
+
+As Who's-Who remarks the Udon escapees, the higher ranking members of the Beasts Pirates talks about taking them all out but he retorts by saying that they should go searching for Kaidou's son, Yamato, instead. He tells them that getting to Yamato is more important and they shouldn't let Sasaki beat him to it. Who's-Who then goes on by finding out that Queen wanted to 'wipe somebody out' and says that he does too.
+
+Big Mom is getting ready, wearing her kimono, and says that her children must be there soon enough and that apparently, their ship did not receive any damage from the fall when King knocked them over the waterfall. She is then questioned by someone who says that, strangely though, no ship had been seen near the port. Only to receive a confused reaction from her.
+
+Meanwhile, at the eastern side of Onigashima, Kin'emon leads the attack. But instead of going all at the same place, they divide into two groups. The first half will breach the keep from the dome while waiting, and should they succeed, Kaidou and Orochi will also be surrounded by behind. Kin'emon's group, aiming for the back entrance, proceeds. However, because they have outdated maps, their route looks different. Now with a large bridge on the way, in the view of a brothel, domain of Black Maria, member of the Tobiroppo. Sanji decides to enter it. But Kin'emon is worried that his group cannot cross it, as with their big numbers, they would raise suspicion from those inside. Nami says that they're going in too and Shinobu that they will form a group in search of Momonosuke, as Kin'emon remembers that Momonosuke mentioned that he wanted to escape on his own. With this, Nami smiles and reassures him by saying that he should leave it to them while Carrot says that he should focus on the battle instead, while patting him. After Kin'emon thanks them for being supportive, someone is coming out of the brothel, and it is actually Sanji. He has a deflated expression and Kin'emon assumes he couldn't find women and that the building is empty and that the group can safely cross the bridge without the risk of being caught.
+
+The attack proceeds. But Big Mom, who was changing in her room next to the brothel, notices the commotion outside and peeks. Kin'emon and the others dive into the water, leaving her nothing to lay her eyes upon except for Chopper whom she shared eye contact with.
+
+At the waterfall of Wano's entrance, Big Mom's children are climbing the body of water. They question Big Mom's judgment in regard to agreeing into an alliance with the Beasts Pirates - in which Smoothie replies that it's what she decided and she respects it. Daifuku echoes then tells them not to forget why they were even there in the first place; Mont-d'Or and Galette remember - to take the Straw Hats' heads and make them pay for ruining their reputation. Then, they decide to first go after the Straw Hats and only later meet with Big Mom and Kaidou. While Flampe goes on with her personal goal: to get Kaidou to like her. They're almost at the top again, when Perospero recalls they're in the same spot where King attacked them earlier. Another 'bird' is seen from the sky and they think it's him again, but it isn't. Perospero shows a shocked expression upon recognising who that 'bird' is; Marco, the Phoenix, commenting on how the rumors of the alliance between the Beasts Pirates and Big Mom Pirates is actually true. Troubled, the members of the latter panic as the Former First-Division Commander of the Whitebeard Pirates knocks over their ship from the waterfall.
+
+Nekomamushi notices the ship falling, then wonders what's going on. A sly grin from Izou is shown as he points out that it's been a while since Marco took a move.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*One of the Numbers, Hatcha, is fully shown.
+*It is revealed that Apoo's attacks can only reach where the target can hear them.
+*Orochi was the one who forced Killer to eat a SMILE fruit.
+*Who's-Who's team is shown. He orders them to investigate Yamato's whereabouts.
+**Who's-Who also wants to kill someone.
+*Kin'emon's team arrives at a brothel belonging to Black Maria. At this point, the team splits up in two, with one advancing to the rear entrance of Kaidou's castle as originally planned and the other infiltrating the brothel to search for Momonosuke.
+**Nami, Carrot, and Shinobu are going to look for Momonosuke.
+**Kin'emon, Shishilian, Chopper, and Usopp proceed forward, but Big Mom spots Chopper on the Brachio Tank V from the brothel's windows.
+*The Big Mom Pirates attempt to enter Wano again, but they are stopped by Marco, who arrives along with Nekomamushi and Izou.
+
+## Characters
+*As the Beasts Pirates recognize Kid after he attacks Apoo, the Pokémon Meltan can be seen at his right shoulder among the metallic items. Oda has expressed his love for the mobile game Pokémon GO, in which Meltan debuted, in a Weekly Shonen Jump authors comments page.
+
+## Characters
+
+Pirates, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Nami, Usopp, Sanji, Tony Tony Chopper, Brook, Kid Pirates, Eustass Kid, Killer, On Air Pirates, Scratchmen Apoo, Whitebeard Pirates, Polo Marco, Izou, Beasts Pirates, Kaidou, King, Queen, Who's-Who, Hatcha, Babanuki, Big Mom Pirates, Charlotte Linlin, Charlotte Smoothie, Charlotte Perospero, Charlotte Daifuku, Charlotte Effilée, Charlotte Basskarte, Charlotte Mont-d'Or, Charlotte Tablet, Charlotte Galette, Charlotte Mobile, Charlotte Flampe, Napoleon, Queen Mama Chanter, Wano Country, Kurozumi Orochi, Kouzuki Momonosuke, Kin'emon, Shinobu, Jibuemon, Cho, Tabuhachiro, Kurosawa, Hidayu, Monjiro, Kagero, Mokomo Dukedom, Nekomamushi, Shishilian, Concelot, Giovanni, Carrot

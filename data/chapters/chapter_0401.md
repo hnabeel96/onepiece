@@ -1,0 +1,29 @@
+# Chapter 401: Pirates vs CP9
+
+Volume: 42  |  Arc: Enies Lobby Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_401 (CC-BY-SA)
+
+## Cover page
+
+Color Spread: The Straw Hat Pirates, bearing the furs and weapons of cavemen, hunt (and/or flee) a giant mammoth.
+
+## Short summary
+
+A few Straw Hat Pirates begin to fight with one CP9 agent each. While Luffy chases after Rob Lucci, Sogeking is assaulted by Jabra, and Zoro and Kaku begin fighting while the CP9 begin to show off their Devil Fruit abilities.
+
+## Long summary
+
+The chapter starts with Luffy arriving in the room where Robin and Franky were being held. He realizes that they must have been there but are gone now. He then calls out for Robin. He then gets angry at Rob Lucci, but remembers they are headed to the Gates of Justice and runs off to find them.
+
+Zoro is talking with Kaku, telling him to hand over his key before he gets killed. Kaku says that was a silly order, and tells Zoro he regrets being unable to see his real skill when they were in the Galley-La Company mansion, and his surprise that the pirates were able to make it so far. Zoro tells Kaku that he is several times stronger than when they last fought. Kaku believes him, saying he senses an ominous, beastly spirit within Zoro, and that he is a scary man. He stands up and goes on to say that his swordsmanship is the best in CP9. Zoro comments that he uses a Two Sword Style fighting style. Kaku uses his swords like crutches to lift himself off the ground and launch a Rankyaku attack on Zoro, which the swordsman redirects to either side of him. The waves destroy the shelves behind and on either side of Zoro. Kaku then contradicts Zoro by saying he is a Four Sword Style user, his legs being the other two swords. Zoro tells him it is no problem, as he remembers Kaku's entire body is a weapon. 
+
+Zoro then runs at Kaku and Kaku moves forward, intercepting the attack. The two then begin to match each other blow for blow. Zoro uses Nanajuni Pound Ho and Kaku uses Rankyaku "Hakurai", both attacks colliding and causing an explosion. Using the blast as a distraction, Kaku charges at Zoro using Soru. Zoro plants his sword, blocking Kaku's attack. Kaku then lets himself be repelled away by Zoro, moving across the room spinning but uninjured, staying on his feet. Zoro then charges at him, which Kaku dodges at the last second by falling on his back. Before hitting the floor, Kaku catches himself and turns his body around to land in a kneeling position. Kaku laughs and says the battle is fun. Zoro responds by saying he has no time for games. Kaku then jumps into the air and tells him to come and get him, launching a Rankyaku "Ran". Zoro wonders how he can control his attack so easily. Outside of the tower, it can be seen that a part of the wall was blasted away. Zoro is then seen catching his breath, having dodged every attack, asking Kaku if he is trying to make him look silly. Kaku contradicts him again, saying he is actually impressed. Kaku then tells Zoro that if he is in a hurry, he will show him his new ability.
+
+The scene changes to Sogeking, having just entered Jabra's room. His first observation about the room is that it has too many trees, making it feel like he is outside. He then snaps himself back to the task at hand, getting the key to Robin's handcuffs. Jabra is napping with his key right in front of him. Sogeking begins to tip-toe toward the key, figuring everything should be fine as long as he can get the key quietly and run away quietly. He considers himself lucky for being able to avoid fighting. He then notices a rooster walking by Jabra. Sogeking wonders why such a loud bird would appear in front of him in this situation. Sogeking and the rooster stare at each other with mounting tension, Sogeking begging the rooster in his mind not to crow. The rooster then lets out a single, quiet chirp, startling Sogeking so much that he could not help but yell that roosters do not crow like that. Jabra wakes up from his nap at that exact moment, noticing how a pirate had finally arrived. Sogeking cursed the rooster in his thoughts. Jabra picks up his key, asking if he should now cause havoc for Sogeking. Jabra then punches Sogeking across the room, making Sogeking comment on how strong he is. Jabra then recognizes Sogeking as the one who shot the World Government flag, saying his sniping skills must be the real thing. Sogeking is still on the ground, stunned by how strong Jabra was just after waking up. Jabra apologizes for attacking Sogeking all of a sudden, saying it must have hurt. He tells Sogeking not to worry as tormenting his opponent wasn't his style while transforming into a human wolf hybrid. Sogeking asks if he ate a Devil Fruit, and Jabra tells him he ate Inu Inu no Mi, Model: Wolf. He tells Sogeking he will simply slit his throat and that would be all, asking if Sogeking agrees that he do not have to suffer before he dies. Jabra begins to attack Sogeking but realizes he does not look up to fighting him and he does not look that strong. Sogeking tells he is up to it no matter what as he came to rescue Robin. Little pieces of the ceiling start falling and Sogeking realizes that the floor above them is collapsing.
+
+Zoro and a huge giraffe fall through the ceiling. The giraffe turns out to be Kaku, shouting that he meant to transform into the giraffe-human hybrid form but accidentally transformed into complete animal form. Sogeking is shocked and confused to see a huge talking giraffe, but Jabra laughs and tells Kaku that he loves his ability. Zoro sees Jabra and asks if they are in a zoo.
+
+## Characters
+
+Pirate, World Government, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Nami, Usopp, Sanji, Tony Tony Chopper, Nico Robin, CP9, Rob Lucci, Hattori, Kaku, Jabra, Suzume

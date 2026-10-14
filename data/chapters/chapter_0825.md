@@ -1,0 +1,54 @@
+# Chapter 825: The WENP's Comic Strip
+
+Arc: Whole Cake Island Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_825 (CC-BY-SA)
+
+## Cover page
+
+From the Decks of the World: The 500,000,000 Man Arc Vol. 16: "Weatheria - When We Next See Nami-chan, I Want Her to Tell Us We're Lookin' Stylish".
+
+The scientists on Weatheria are trying some new clothes.
+
+## Short summary
+
+On board Big Mom's ship, Vito talks to Sanji about Germa 66, revealing how they are the villains in the comic strip, Sora, Warrior of the Sea. Sanji gets annoyed at Vito constantly following him around, and tries to shake him off. This provokes the ire of Vito's crewmate Gotti, who threatens to attack Sanji, but Gotti is prevented from doing so by a woman.
+
+Meanwhile, the Sanji Retrieval Team is suffering from starvation and extreme heat, when Luffy manages to catch a fish. However, the fish's skin is poisonous and Luffy is brought to the brink of death. As the crew worry about Luffy's condition, the Thousand Sunny enters Big Mom's territory, where the crew encounters the ship of Germa 66.
+
+## Long summary
+
+On board the Big Mom Pirates' ship, Vito tries to engage Sanji in conversation about a comic strip in the World Economic News Paper, in which the Marine hero Sora battles Germa 66. The comic was intended to propagandize the activities and strength of the Marines, but Vito ended up idolizing the Germa instead. Vito feels honored and excited to meet Sanji, a member of the family which commands the Germa, but Sanji is angered at being associated with the Germa, telling Vito that he has nothing to do with them.
+
+As Sanji returns to his private room, Vito follows him in. Caesar complains about being kept in a cage while Sanji is treated as an honored guest, but Vito tells him that Caesar is just a prisoner while Sanji's upcoming marriage will finalise the Charlotte and Vinsmoke alliance. Sanji insists that he is not going to cooperate with the marriage plans, and kicks Vito out of his room. Gotti, angry at Sanji's disrespect towards Vito, prepares to attack Sanji while Vito tries to calm Gotti down. A woman interrupts Gotti, warning him that if Sanji is harmed in any way, their leader will be punished for it. Gotti apologizes profusely to the woman as she scolds him; as they leave, Sanji notices something familiar about the woman.
+
+A few days later, on board the Thousand Sunny, Luffy's group are starving and overheated. Brook asks Nami to see her panties, but Nami is too weak to beat him up. Luffy and the others attempt to fish, but Chopper complains to Nami that the sun is so hot that the sea is boiling. In spite of the heat, Luffy manages to catch a fish. Chopper looks up the fish in one of Sanji's encyclopedias and discovers that its skin is poisonous; however, before he can warn the others, Luffy eats the skin and begins to suffer from the poison. Afterwards, Nami cooks the fish according to Sanji's recipe, and the others compliment her on how good the fish tastes.
+
+When a Den Den Mushi on board the Sunny starts ringing, Pekoms remarks that they have crossed into Big Mom's territory. He directs the crew to either hide or disguise themselves, but before they can, a ship approaches the Sunny from out of the fog. Pekoms, expecting one of Big Mom's scout ships, fearfully exclaims when he realizes that the ship belongs to Germa 66; the Germa, in turn, announce themselves and confirm that the approaching ship belongs to the Straw Hat Pirates. A hooded man with eyebrows similar to Sanji's looks down upon the crew, who are shocked at his appearance.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*The Big Mom Pirates ship is shown to have an Alice's Adventures in Wonderland theme, with card-themed guards and an oversize talking door.
+**This might be relevant to the entire Big Mom Pirates with the tea party, Tamago as combination of Humpty Dumpty and the Jubjub bird, and Pekoms as the Mock Turtle.
+**This is the second reference to Lewis Carroll's works, the first being Nekomamushi design resembling the Cheshire Cat.
+*Vito reveals a tale about Germa 66.
+**The comic Sora, Warrior of the Sea, is about the fictional battle between Germa 66 and the Marine-like Sora, used for Marine propaganda.
+*Caesar Clown is shown locked in a cage in Sanji's room.
+*More members of the Fire Tank Pirates are introduced.
+**Gotti, a killer.
+**An unnamed woman with a strong resemblance to Lola.
+*Pedro reveals that the Mink Tribe are weak to heat.
+*Luffy has food poisoning from eating the toxic skin of a fish.
+*Pekoms is somewhat healed and can now stand again.
+*There are territorial sea slugs that send out warning signals to ships entering Big Mom's territory.
+*The Sanji Retrieval Team encounters a ship belonging to Germa 66.
+**A hooded man with eyebrows similar to Sanji's is shown onboard.
+*This is the first chapter of the Whole Cake Island Arc.
+
+## Characters
+
+## Characters
+
+Pirate, Straw Hat Pirates, Monkey D. Luffy, Nami, Sanji, Tony Tony Chopper, Brook, Big Mom Pirates, Pekoms, Queen Mama Chanter, Fire Tank Pirates, Charlotte Chiffon, Vito, Gotti, Zou, Pedro, Carrot, Germa Kingdom, Vinsmoke Yonji, Weatheria, Haredas, Caesar Clown

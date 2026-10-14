@@ -1,0 +1,54 @@
+# Chapter 671: Gasu Gasu no Mi
+
+Volume: 68  |  Arc: Punk Hazard Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_671 (CC-BY-SA)
+
+## Cover page
+
+"Chopper Pulling a Pumpkin Carriage While Nami-derella and Some Mice Enjoy Themselves." - A request by Akemi Isaka (井坂あけみ) in Ibaraki Prefecture.
+
+Nami's name and the pumpkin carriage are a reference to the fairy tale "Cinderella".
+
+## Short summary
+
+Slime continues to spit pieces of itself across the lake, poisoning the water in the process. Despite this, Sanji dives in and searches for the samurai's torso. Trafalgar Law asks Monet to accompany him through the laboratory, saying he has need of her "ability". Caesar Clown slips out of Luffy's hold, and demonstrates the combat abilities of his Devil Fruit as the two fight each other. Although Luffy appears unharmed after all of Caesar's poisonous and explosive attacks, he spontaneously collapses and Caesar laughs in triumph. Shortly after, Law suddenly falls down injured in the laboratory, before being confronted by a mysterious figure he recognizes.
+
+## Long summary
+
+Brook recognizes the Slime creature, saying he read about it in a book once. They attack women and use their bodies to melt the woman's clothes. Sanji and Kin'emon are intrigued and ask to borrow the book later. Zoro directs their attention to the lake, saying that the slime from the creature is probably dangerous to touch, as the slime that fell into the lake has killed all the fish. Brook asks Sanji if he is really going to look for Kin'emon's torso. Sanji says he is, and it is something only he can do. He apologizes to Nami in advance, saying he is the best swimmer among them, promising to return before anything bad happens to Nami's body. He tells the others to take care of the slime creatures nearby as dives in, realizing that cold does not even come close to describing the water temperature.
+
+Inside the lab, Law sees his chance as he and Monet are alone in the room. She tells him that Caesar is not there. Law gently sets down the bag containing Chopper on the couch, asking where Caesar went. Considering her boss' bad taste, she concludes that he is probably watching the fighting outside. Law tells her that he is almost done on the island and will be leaving soon. Monet seems disappointed, saying it will be lonely without him. He tells her he wants to borrow her ability for a bit, asking her to come with him. Monet teasingly calls it a date and goes with him, commenting on how cold Law is. When she asks him what he wants, he tells her she will understand when she gets there. Chopper then recognizes Monet as the bird-woman Usopp was talking about.
+
+Outside the lab, Luffy has grabbed Caesar, to the latter's annoyance. The centaurs and satyrs aim their guns at Luffy, angry that he would lay a hand on their master. Franky recognizes that Luffy is using Haki, and is amazed by the ability. Robin tells him that Armament Haki is the ability to grab a Logia user in their intangible state. However, unlike seastone or the ocean, it does not nullify the ability. They still do not know the true power of the Gasu Gasu no Mi, so the battle is far from over. Her explanation is supported as Luffy tries to attack Caesar with a Haki-infused Gomu Gomu no Bell, but Caesar dodges by extending his torso. Caesar then uses Gas Robe, throwing it at Luffy's head.
+
+He laughs as he tells Luffy to inhale, saying he has done countless experiments on how lethal his gas is. Then, to everyone's surprise, Luffy inhales all of the poisonous gas, looking like apparent suicide to those watching. To surprise the spectators even more, Luffy releases the gas from his ears like a steam whistle. He tells Caesar that poisons do not work that well on him anymore, thanks to Magellan. Caesar is offended that he would be compared to a Paramecia Devil Fruit user. While he is fuming over the insult, Luffy attacks him with Gomu Gomu no Jet Mace.
+
+Caesar falls down to earth with a crash. His subordinates are angry that Luffy would do that to him, and prepare to attack them. Caesar insults them, calling them peons and orders them not to touch him. His subordinates are surprised by the insult. Luffy gets ready to attack Caesar with Gomu Gomu no Gatling, but before he can, Caesar hits a pair of castanets together, causing an explosion called Gastonet. Luffy is caught in the blast, and Robin becomes worried. To make her concern worse, Caesar orders the smaller pieces of Slime to attach themselves to Luffy, causing a blinding explosion. When the smoke clears, there is no sign of Luffy. Caesar begins to laugh victoriously, only for Luffy to appear behind him and comment on how close and how big the explosion was, much to Caesar's comically stunned surprise. Luffy then attacks him with Gomu Gomu no Jet Stamp. Franky and Robin breathe a sigh of relief, as Luffy grabs Caesar.
+
+He shouts to Franky and Robin if they have anything to contain Caesar, since they cannot tie up a Logia. Franky wonders if there is a barrel nearby. A Marine calls out that they will take Caesar into custody, and bring Luffy along too. Tashigi tells Smoker that Luffy captured Caesar, and he seems indifferent. Suddenly, Luffy has trouble breathing and passes out. Caesar stands over him, saying Luffy took him far too lightly. Franky, Robin, Tashigi, and even Smoker are all surprised and confused by what just transpired.
+
+Back inside the lab, Law and Monet are walking. Law is clutching his chest in pain, and seems to be having difficulty breathing. He tries to speak and falls to his knees, making Monet concerned. He looks into the darkness and asks who is out there. A man steps out, saying he is the one Law felt. Law, who seems bothered to see him, asks what he is doing here as Monet giggles. The man asks how long it has been, remarking how much Law has grown.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*Sanji jumps into the lake to search for Kin'emon's torso.
+*Law leaves Chopper inside the research facility, asks for Monet's assistance, and heads out of the research facility with her.
+**Monet is said to have an "ability".
+*Robin confirms that while a Armament Haki user can touch a Logia user's real body, the power cannot seal away Devil Fruit abilities the way that the sea or a Seastone can.
+*Luffy fights Caesar.
+**Caesar shows some of his attacks using his Devil Fruit.
+**Just like with Hyouzou, Caesar's poison does not work on Luffy.
+**At the end of their fight, Luffy suddenly collapses.
+*This is the first time Smoker and Tashigi show concern for Luffy.
+*An unknown figure appears before Law.
+
+## Characters
+
+: first appearance
+
+## Characters
+
+Pirate, Marines, Impel Down, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Nami, Sanji, Tony Tony Chopper, Nico Robin, Franky, Brook, Shichibukai, Trafalgar D. Water Law, G-5, Smoker, Tashigi, Magellan, Punk Hazard, Caesar Clown, Monet, Smiley, Wano Country, Kin'emon, Vergo

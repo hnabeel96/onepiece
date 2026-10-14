@@ -1,0 +1,31 @@
+# Chapter 447: Surprise Zombie
+
+Arc: Thriller Bark Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_447 (CC-BY-SA)
+
+## Cover page
+
+Enel's Great Space Operations, Vol. 16: "The Advent".
+
+The Space Pirates see a stranger atop their ship, blazing with something that might well be divine wrath.
+
+## Short summary
+
+Luffy successfully tames the Cerberus zombie. Afterwards, the group encounters a unicorn and an elderly tree having a picnic. Outside Hogback's mansion, Hogback, Absalom and Perona discuss the Straw Hat Pirates. Usopp, Nami and Chopper walk through the mansion and try to make sense of the mysterious phenomena they have encountered, when all of a sudden the paintings, wall decorations and floor rug come alive and attack them. They manage to escape through a secret exit in the fireplace and end up in a room filled with large photographs of a smiling Cindry without any stitches.
+
+## Long summary
+
+The Cerberus creature becomes very excited around the Straw Hats, and Zoro wonders why it is so energetic, wanting to deal with the creature with the use of force. However, Luffy wants to try to tame it, and as Zoro expresses his doubts, Luffy holds out his hand to the creature. Suddenly, it pounces on him and bites his head, but Luffy calms it and has it let go of him. However, he quickly retaliates by punching it in the face and knocking it unconscious. Robin says that it is strange that something so wounded could still be alive, and Sanji wonders if it even is alive. Luffy rides the tamed creature into the forest, calling out for Nami, and Robin pities the creature, though Zoro tells her that it hurts its pride. Suddenly, Luffy sees a tree with an old man's face having a drink with a unicorn, which bewilders him. Franky catches the unicorn and he himself catches the tree and asks it to join his crew, much to Zoro and Sanji's discontent.
+
+At Doctor Hogback's mansion, Hogback recovers from the earlier ruckus and asks Absalom what he was doing. Absalom says he was looking for a bride, and that Nami would suit him perfectly. Hogback replies that he cannot have her since she has a bounty on her head, and Perona reveals that there are six people with bounties, with Luffy having one of 300,000,000. Hogback takes interest in the amount and prepares to go all out to capture the pirates, saying that Absalom will be busy tonight.
+
+Inside the mansion, Usopp questions the possibility of there being an invisible man, and Nami says that Usopp must have noticed him when she was being held up, but Usopp denies seeing anything in order for Nami to not charge him for seeing her naked. Usopp remarks in disbelief about all the paranormal creatures they have seen, and wonders how they can all be back from the dead when a skeleton already had a Devil Fruit allowing him to do that. Usopp says that there must be a natural explanation for this, and Chopper replies that this must be why Doctor Hogback left his old life to come here. Nami questions this, but Chopper angrily says that he is a great man and there is no proof he is allied with the zombies. However, Nami is still suspicious. They return to the dining room, but Hogback and Cindry are gone. Hildon suddenly chimes in from the chandelier that they have already gone to bed, and Usopp gets angry at him for abandoning them earlier in the graveyard. Hildon says that he was just off with the horses, but Nami shouts that he is lying, claiming that everyone on this island is in cahoots. Hildon scoffs at the notion and guides them to their rooms, but Nami and Usopp are suspicious about where he will take them and Chopper wants to see Hogback again.
+
+Suddenly, a portrait begins talking to Hildon, laughing at the Straw Hats' distrust of him and wondering whether they should be allowed to escape. Chopper is shocked that the picture is talking, when it suddenly leaps out and screams that they will not let the pirates go home, which causes Chopper to scream in fright. Nami and Usopp are shocked as the portrait zombie pulls Chopper into its portrait, and a pig's head hanging on the wall suddenly throws a sword at Usopp. The head introduces itself as Buhichuck, the zombie boss of the room, and says they will not be able to leave. Suddenly, the bear rug shouts in pain at Buhichuck's sword stabbing it, and rises off the ground, taking Nami and Usopp up with it. Usopp screams in fright at the zombies in the room, and he jumps onto the chandelier as Nami lands back on the ground. The zombies in the portraits tell the rug-bear to knock Usopp off the chandelier, but Usopp throws a candle underneath the rug-bear's head, causing it to become frightened as it desperately tries to stamp the fire out. One of the portraits screams in fright at the fire and shouts to extinguish it, and Usopp, now knowing the zombies' weakness, throws candles at them as he prepares to escape with Nami and Chopper. They try opening the door as the zombies come for them, but realize that it is locked, and they hurriedly dodge an attack by the rug-bear. They desperately try to escape, but are cornered at the fireplace, when suddenly the back of the fireplace spins around and they fall into another room.
+
+The three of them find themselves in a hallway, and on the other side, the zombies are shocked that the pirates found the secret passageway and are now in the hallway heading to Hogback's lab. They try to chase them, but the door is blocked from the other side. However, Buhichuck tells them not to get worked up, as there are Surprise Zombies like them all over the mansion. Inside the hallway, the Straw Hats run as they are attacked by more portraits, and they manage to escape into a room. They are then surprised to see that the room has several portraits of Cindry on its walls.
+
+## Characters
+
+Pirate, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Nami, Usopp, Sanji, Tony Tony Chopper, Nico Robin, Franky, Thriller Bark, Hogback, Absalom, Perona, Buhichuck, Hildon, Cerberus, MocDonald, Unigaro, Zombies, Victoria Cindry, Moon, Enel

@@ -1,0 +1,75 @@
+{{Chapter Box
+| title             = Play
+| jname             = {{Ruby|戯曲|プレイ}}
+| rname             = Purei
+| ename             = Play
+}}
+
+'''Chapter 272''' is titled "Play".
+
+==Cover Page==
+[[Ace's Great Blackbeard Search]], Vol. 1: "Grab That Dine-and-Dasher!"
+
+In [[Lulusia Kingdom|a faraway land]], the Pasta Lake café finds itself the latest victim of [[Portgas D. Ace|one of the Grand Line's most notorious dine-and-dashers]].
+
+==Short Summary==
+[[Nico Robin|Robin]] learns some important things and talks to [[Enel]]. [[Conis]] learns that Enel is planning to kill everyone and goes to warn the villagers. Enel sends the [[Upper Ruins]] crashing down.
+
+==Long Summary==
+[[Nico Robin|Robin]] reads the writings she finds throughout the Main Ruins of [[Shandora]]. She reads something about a bell which reminds her of the bell that [[Mont Blanc Noland|Noland]] mentioned in his notes. She then realizes that a [[Poneglyph]] was brought to this city way back when it fought against "the enemy," and that the city was ruined because of this. From Noland's notes, she deduces that the Poneglyph was with the bell which was hung at the center of the four altars. Instead of finding a bell there however, she finds the beanstalk. She concludes that the bell never made it to the sky. [[Enel]] shows up and comments on the magnificence of Shandora as well as Robin's archeological skills. He then tells her that he has already taken the gold. Robin asks him if he took the golden bell as well. Enel seems confused so Robin concludes that he does not know about it. Enel asks her what she learned from reading the script. Robin tells him that there was a great bell, but it must not have made it into the sky.
+
+Enel then remembers the 400 year old story of the island flying into the sky with a beautiful sound called the "Song of the Land." They both get excited of the possibility of the bell still being somewhere in the sky, though Robin is more excited over the possibility of finding a Poneglyph. Meanwhile [[Conis]] and [[Pagaya]] find one of the soldiers that were working for Enel in a life-threatening condition. The soldier tells them that Enel is planning on sending [[Sky Island]] to the [[Blue Seas]] and escaping on the Ark [[Maxim]]. Enel strikes them with lightning, but Pagaya manages to push Conis out of the way in time. [[Roronoa Zoro|Zoro]] finds out that Holy obeys anyone by accident and tells Holy to knock itself out. Enel sends the Upper Ruins crashing into the cloud below by destroying the supporting cloud with his lightning. Conis rushes to warn everyone of Enel's evil plan.
+
+==Quick Reference==
+===Chapter Notes===
+*While this chapter title does not have the characteristic musical reference, it does have a reference to theater. The title "Play" is of course referring to the dialogue/monologue heavy literature that is performed on stage. Since this chapter is mostly monologue/dialogue, the parallel is fairly obvious. However, if one looks a bit deeper, they will see that the chapter contains examples of all three types of plays as well: historical, tragedy, and comedy.
+*Robin realizes that the Shandoran people were protecting the [[Poneglyph]] on their island.
+**She realizes the bell of Shandora should be in the city but is nowhere to be found.
+*[[Enel]] appears before Robin revelaing he stole all the gold of Shandora but does not know where the bell is.
+*8 minutes remain in the Death Game.
+*A member of [[God's Army]] appears before [[Conis]] and [[Pagaya]] to warn of Enel's desire to kill everyone on Skypiea, but both he and Pagaya are [[Goro Goro no Mi|attacked]] by the God.
+*Zoro has defeated [[Ohm]] and makes [[Holy]] knock itself out on command.
+*Enel attacks the platform on [[Giant Jack]] forcing Zoro, [[Wyper]] and [[Nola|the King of the Sky]] to him for the final battle of the Death Game.
+
+===Characters===
+{| class="CharTable"
+!colspan="1"| [[Pirates]]
+!colspan="2"| [[Skypiea]]
+|-
+|
+;[[Straw Hat Pirates]]
+*[[Roronoa Zoro]]
+*[[Usopp]] ''(K.O.)''
+*[[Sanji]] ''(K.O.)''
+*[[Tony Tony Chopper]] ''(K.O.)''
+*[[Nico Robin]]
+----
+;[[Whitebeard Pirates]]
+*[[Portgas D. Ace]] ''(cover; shadowed)''
+|
+;[[God's Army]]
+*[[Enel]]
+*[[Ohm]] ''(K.O.)''
+*[[Holy]]
+|
+;[[Shandia]]
+*[[Wyper]]
+----
+;[[Skypieans]]
+*[[Conis]]
+*[[Pagaya]]
+*[[Moyle]]
+*[[Su]]
+*[[Nola|Master of the Sky]]
+|}
+
+==Trivia==
+*[[Pandaman]] and [[Tomato Gang]] are sitting at a table outside Pasta Lake.
+
+
+==Site Navigation==
+{{Skypiea Arc}}
+{{Ace's Great Blackbeard Search}}
+[[ca:Capítol 272]]
+[[de:Play]]
+[[it:Capitolo 272]]

@@ -1,0 +1,64 @@
+# Chapter 999: The Sake I Brewed to Drink With You
+
+Volume: 99  |  Arc: Wano Country Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_999 (CC-BY-SA)
+
+## Cover page
+
+Color Spread: Shows the first half of the poster celebrating the 1000th chapter of the series. This half shows some of the Straw Hat Pirates; Zoro, Usopp, Sanji, Chopper, Robin, and Franky, as well as part of Nami and Brook (which the other part is connected with the cover page of the following chapter). They are enjoying a big treasure party.
+
+In the volume, the color spread is moved to the beginning of Chapter 1000, and the first page serves as the cover.
+
+## Short summary
+
+Around four years ago, Ace came to Onigashima with his crew to fight Kaidou, and dueled Yamato as Kaidou was away on an expedition. During the course of their fight, Ace grew to learn of Yamato's desire to leave Wano, and together the two of them damaged Kaidou's great dragon statue. Back in the present, Marco takes Zoro up to the Dome's roof, confronting King and Queen. While doing this, he remembers how Whitebeard refused to go back to Wano and take on Kaidou, and would not let Ace do so alone, with the crew's reasoning being that the damage and casualties would be too great even for the sake of avenging Kouzuki Oden.
+
+On the Dome's roof, the recently arrived Big Mom tells Kaidou to kill all the Straw Hats he pleases except for Robin, whom she needs to read the Poneglyphs. Kaidou tells her about his intention of placing Onigashima at the site of the Kouzuki Family's castle in the Flower Capital, and she inquires about the location of his Road Poneglyph, wanting him to repay the favor she did by giving him his Devil Fruit on God Valley 38 years ago.
+
+## Long summary
+
+In a flashback, Portgas D. Ace and his crew, the Spade Pirates, came to Wano, where despite Ace's crewmate's pleas, he immediately started fighting Yamato. Ace demanded Yamato reveal himself before Yamato tells him to do so first. Ace introduces himself to him and announces he has come to take Kaidou's head. Yamato reveals to Ace that Kaidou and his crew have left Wano on an expedition so he won't find any member of the Beasts Pirates on the island while also revealing Kaidou is his father. Yamato tells Ace to stand down as Ace notices the explosive cuffs on his wrists.
+
+Ace's crew tell him that they should leave and return the abducted children to their families. Ace, however, says that it doesn't make sense someone as strong as Yamato isn't the captain and wants to settle the fight. Yamato agrees, saying he has been bored for a while. They clash again and Ace yells that Yamato can't choose his father, and if he hates Kaidou so much, why is he not only allowing him to chain his wrists, but his heart as well. This moves Yamato to strike the Dragon statue and declaring he wish he could leave Wano and sail out to sea on adventures the way Kouzuki Oden did. Ace becomes so impressed by this that he also strikes the statue with his fire. 
+
+Afterwards they share a bottle of sake where Yamato tells Ace once he gets the cuffs off, he wants to leave before asking about what it is like outside of Wano. Ace admits there are many people making a name for themselves such as Cavendish, and while he himself is making a name, there are many others, such as Eustass Kid, Trafalgar Law, and Capone Bege, but the toughest one of them all hasn't set out yet: his brother, who Ace is confident will be massive. 
+
+In the present, Yamato explains to Momonosuke and Shinobu how the both of them broke the dragon statue and how Kaidou was furious. Momonosuke was surprised to hear that a previous pirate tried to save Wano before asking about what Yamato meant when he referred Kaidou as "father". Yamato reveals his heritage, causing Momonosuke and Shinobu to back up in a panic. Yamato tries to calm them down by saying that he hates Kaidou and consider himself Kouzuki Oden, but that just confuses them even more. Nevertheless, they still accept Yamato as a friend and ask why he was telling them about Ace. Yamato explains that Ace died two years ago and proceeds to talk about him again. In another location, Tama reveals to Nami her own history with Ace and how hard she was working to become a kunoichi as well as how ungently Luffy told her he had died. Nami apologizes, saying that is just how Luffy is, before saying that Ace's death was painful for Luffy too, which confuses Tama.
+
+On the Performance Floor, Queen orders his men to stop Marco, who reluctantly do so despite him healing their disease. Marco decides not to face Kaidou yet and tells Robin and Brook to run into the castle while he takes to the skies carrying Zoro in his full phoenix form. Marco thought back to the past and how when Ace joined the Whitebeard Pirates, he pleaded with Whitebeard to go to Wano. Whitebeard refused, revealing that the reason the position of 2nd Division Commander, which Oden held previously, went vacant for so long was because they didn't learn about his death until several years after. Marco admitted they thought about making a move on Wano, but feared the loss of life that would have been as a result. Ace demands he go alone because he made a promise, resulting in a fight between him and Whitebeard with Whitebeard calling Ace arrogant for thinking he could stop someone who Oden couldn't even beat. After Ace was beaten, Marshall D. Teach laughed that he understands feeling like taking down a big shot like Kaidou before Marco corrects him saying Ace isn't doing it for that. Ace decides to grow stronger, with Izou and Marco asking Ace that if he is allowed to go, he should take them with him. Back in the present, King and Queen transform into their dinosaur forms as Marco gets closer to the hole. Queen tells Marco he can't just assume he will be able to fly straight past them and that all the samurai are probably dead now, while King adds that once Oden's son dies, the battle will end. Marco retorts that the two of them are foolish to think that because they are fighting against the New Generation. Queen tries shooting Marco with a gun in his mouth, but the shots just go through him.
+
+Back with Tama and Nami, Tama is shocked to learn that Luffy and Ace were brothers and starts feeling guilty for what she said to Luffy earlier about him. Nami reassures her that if it upset him so much, he would have said something before moving on to the plan she had come up with. At the same time, Momonosuke learns from Yamato that Ace was both Gold Roger's son and Luffy's brother as Yamato asks if Momonosuke brought Luffy to Wano. When he confirms, he says that it has to be an act of fate if Luffy was picked out of all the pirates in the world. Yamato also adds that Luffy bears the name of "D.", which confuses the two of them.
+
+Atop the Skull Dome, Prometheus and Zeus recharge by consuming fire and lightning, respectively, before Big Mom tells Kaidou he is free to kill all of the Straw Hat Pirates except for Nico Robin. Kaidou asks Big Mom if Charlotte Pudding can read the Poneglyphs, but Big Mom says no, and she doesn't want to wait anymore. She asks where he plans on dropping Onigashima and he reveals he will drop it on a castle in the Flower Capital that stands as a symbol of the Kouzuki. Big Mom says that lots of people will die if he does that, but he doesn't mind because he can get more slaves. Big Mom asks if the Road Poneglyph is in the Flower Capital, but Kaidou tells her that she is playing her hand too quickly by asking that. Big Mom yells for him not to insult her because even after everything, she considers him a little brother to herself. She then reveals that on the day Rocks fell, she was the one who gave Kaidou his Devil Fruit: the mythical Uo Uo no Mi. Because of that, she believes he owes her a debt for life.
+
+Kaidou brushes her off and says that they can talk about it all they want once they find the One Piece.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*The past with Yamato and Ace is shown.
+**The Spade Pirates came to Onigashima to rescue the abducted children and return them to their families.
+**Kaidou and his top-ranking subordinates were away from Onigashima at the time, so Ace never encountered Kaidou.
+**The broken dragon statue in the storeroom is revealed to have been in fact destroyed by Yamato, with Ace only taking responsibility afterwards in order to give Kaidou a warning.
+*Marco transforms and flies with Zoro to the roof while Robin and Brook run up the castle.
+**King and Queen block Marco's way.
+*The Whitebeard Pirates found out about Oden's death several years after it happened. They talked about going to war with Kaidou, but Whitebeard never approved as he feared the loss of innocent life.
+*Momonosuke and Tama learn that Ace was Luffy's brother.
+**Momonosuke also learns that Yamato is Kaidou's son and Ace was Roger's son.
+*Big Mom has reached Kaidou.
+**Zeus and Prometheus recharge and are now enlarged.
+**Big Mom requests Kaidou to keep Robin alive as she decides not to wait for Pudding's power to awaken.
+**It is revealed that Kaidou received his mythical fruit, the Uo Uo no Mi, from Big Mom on the day the Rocks Pirates fell, which was Kaidou's life debt to her.
+
+## Characters
+*The title of the chapter may be a reference to poem No. 555 from the 4th volume of the Man'yōshū. The full poem is .
+**This could allude to Yamato and Ace, who drink sake together in the chapter. Because Ace met his end in Marineford before he could return to Wano, Yamato was not able to drink with him again.
+*To celebrate the 1,000th chapter of the series the poster representing the Straw Hat crew for the cover page is split between this chapter and Chapter 1000. The full version of this color spread was revealed on the day Chapter 1000 was released.
+**As revealed by Oda in SBS Volume 99, the color spreads are a commemoration of the one from Chapter 100, with Zoro, Usopp, and Sanji all in the same pose as in that spread. The title font and background are also the same.
+**Accordingly, in Volume 99, the first page of the spread is moved to the beginning of Chapter 1000. The cover of Chapter 999 is instead the first content page, with the title moved to the bottom.
+
+## Characters
+
+Pirates, Straw Hat Pirates, Roronoa Zoro, Nami, Usopp, Sanji, Tony Tony Chopper, Nico Robin, Franky, Brook, Yamato, Whitebeard Pirates, Edward Newgate, Polo Marco, Portgas D. Ace, Jozu, Rakuyo, Izou, Marshall D. Teach, Spade Pirates, Skull, Mihar, Kotatsu, Aggie 68, Ganryu, Cornelia, Leonero, Hublot, Beasts Pirates, Kaidou, King, Queen, Babanuki, Poker, Briscola, Nokokuwa Police, Big Mom Pirates, Charlotte Linlin, Napoleon, Zeus, Prometheus, Wano Country, Kouzuki Momonosuke, Shinobu, Kurozumi Tama, Komachiyo

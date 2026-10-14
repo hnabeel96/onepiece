@@ -1,0 +1,49 @@
+# Chapter 665: CANDY
+
+Volume: 67  |  Arc: Punk Hazard Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_665 (CC-BY-SA)
+
+## Cover page
+
+From the Decks of the World Vol. 45 - "Impel Down - The Most Reliable Man in Hell, New Vice Warden Magellan".
+
+## Short summary
+
+The Straw Hats figure out what they should do while the Kin'emon looks for the remainder of his body. The giant children suddenly start to fall 'ill' from unknown means, until Chopper discovers they are addicted to a stimulus drug called NHC10, making one of the giant children go berserk. Usopp puts all the children to sleep and they chain up the giants so they do not cause any harm while the rest of them go search around for their master. Meanwhile, Zoro, Brook, and Sanji have fallen somehow with large footprints surrounding them and the Yeti Cool Brothers are introduced.
+
+## Long summary
+
+Franky is trying to get used to being in Chopper's body. He manages to change into Guard Point, and comments on how unstable Chopper's body is with all of its different forms. Chopper responds that he is used to it. The children roll Franky around in the snow, while Luffy rides on top of him. Sanji learns from Brook that the samurai has left to find his torso, and becomes worried for his safety as he has no means of defending himself with just his head and legs, while Sanji held himself responsible for his safety when he was just a head. Luffy grants Sanji and Brook permission to search for the samurai. When Brook asks Sanji to let him see his (Nami's) panties, and Sanji becomes excited at the prospect of taking pictures of Nami's body, Nami becomes furious and convinces Zoro to go along as well, reasoning that Sanji and Zoro's inevitable fighting rivalry will distract Sanji from doing perverted things with her body. Sure enough, within moments Sanji and Zoro are arguing, Zoro being angry that he had to come along because of Sanji's perverse new attitude, and Sanji angry at Zoro for not understanding how ecstatic the body switching situation has made him. Brook is pummeled by Nami as punishment, and to deter him from wanting to see her panties.
+
+The rest of the Straw Hats discuss their next course of action. Nami's first priority is restoring everyone back to their original bodies, as she dislikes being in Franky's body, as she considers him to be a pervert. Franky (who has now transformed into Chopper's Brain Point) takes Nami's insult as a compliment, making a typical Franky face in Chopper's body that disgusts Robin. Franky notes that whatever they do, the children will be a burden.
+
+Chopper finishes conducting tests on the children. Immediately after, the largest child, Sind, falls to the ground in pain. Luffy asks Chopper to heal him, but one by one the rest of the giant children fall over, holding their heads in their hands. Nami asks Chopper whether the children were really sick, to which he replies that they were not. He asks Sind whether there is something he wants, and what, if any, kinds of activities they do around that time every day. Sind, still in agony, tells him that every day all of the children would get examined and be given candy. Chopper is confused about the candy, and the other children say that the candy is strange, and tastes good. Sind says that he feels really happy when he eats it, and is convinced that it will stop the pain. Chopper, having learned the truth about the children, becomes furious. He yells at the chained up Brownbeard that the children aren't actually sick, as they had previously been told. Brownbeard maintains that although he does not know much of what goes on inside, their benefactor, Master, is a loving scientist who rescued the children and gave them free medicine. According to him, the fact that the children are in pain and have not received their daily medicine proves that they are ill, but Chopper responds with the results of his analysis—there is a tiny but sufficient quantity of a drug known as NHC10 in each of their bodies. The drug is a powerful stimulant, the use of which is tightly restricted throughout the world due to the danger it comes with and its addictive properties. Chopper learned about the drug during his time with Dr. Kureha, in which he learned that proper use of it in medicine requires using only a very tiny amount, in order to prevent addiction. Chopper concludes that the children have been given small amounts of the drug every day for a long period of time, so that the addiction forces them to remain within the research facility. Chopper demands to know from Brownbeard what his master's purpose is for the children, but Brownbeard is angry at him, believing that Chopper is merely insulting his savior.
+
+Luffy suggests going to the research facility to find candy to stop the withdrawal symptoms, but Chopper says not to, as the candy is the means by which the drugs are delivered. Sind begs Luffy for candy, who refuses, trusting Chopper's judgment as the crew's doctor. Sind lowers his hands from his face, revealing bloodshot eyes, a runny nose and saliva dripping from his mouth, which frightens the other children. He goes berserk at Luffy for not getting the candy when he originally said he would, launching him into a nearby fallen pillar. Robin is amazed at Sind's physical strength. Usopp, while surprised, comments that this must be the strength of a giant child, but the other children reveal that none of them are actually giants; all of them were normal size when they first came to the island, and have grown more and more the longer they have remained on the island. One of the children believes that the growing must be the 'sickness' they were told they had, but Chopper disagrees, instead concluding that the rapid growth has come from experiments that have increased the levels of their pituitary hormone.
+
+As the rest of the children gradually enter withdrawal as well, Luffy prepares to subdue them, but in order to ensure no harm comes to them Usopp instead successfully puts them to sleep with his new Sleeping Star attack. Having discovered that the children really were kidnapped, Chopper wants to save the children and return them to their parents, but Franky and Robin note that first they have to find the real culprit behind the experiments: Master. Chopper and Nami stay behind to look after the children, although Chopper expresses a desire for revenge against Master, and Nami's reasoning for staying behind appears to be fear (according to Usopp). Luffy has the largest children restrained with chains, to prevent them rampaging again. Luffy, Usopp, Robin, and Franky prepare to go to the research facility to meet Master, though Franky mentions the fact that at some point they will have to find Trafalgar Law in order to restore their bodies. Luffy seems to think it unnecessary, as he is enjoying the hijinks that have occurred.
+
+The scene changes to a road to the mountain behind the research facility. Zoro, Sanji, and Brook are all lying in the snow. Zoro and Sanji are face-down, while Brook is face-up and spread-eagled, with his drawn sword sticking out of the snow near his head. The shot is expanded to reveal that the trio is in the middle of a trail of two sets of gigantic footprints, each barefoot and several times larger than a human body.
+
+In the research facility, Caesar Clown, Trafalgar Law, and Monet are sitting around a table. Caesar holds Smoker's heart in his hand, while Law looks on silently, with a displeased look in his eyes and a frown. Caesar is in good spirits thanks to the capture of Smoker's heart, and says he has already sent soldiers to the Marines and that he knows what the outcome of that will be. Monet asks what happened to Straw Hat, and Caesar explains that, having taken Monet's warning about the Straw Hats' possible increase in strength seriously, he sent two powerful people after him: The Hitmen of the Snowy Mountain, the "Yeti Cool Brothers". The two of them are seen from behind in silhouette. They are enormous figures, each with a rifle on their back.
+
+## Notes & trivia
+
+## Chapter Notes
+
+* Magellan is shown for the first time after the timeskip. He is now the vice warden of Impel Down, and the one with whom Sadi has fallen in love. Hannyabal and Sadi-chan are the second group of people to appear twice in this cover story series, the first being Vivi and Igaram.
+* Kin'emon left the Straw Hats to find his torso.
+* Robin is mad that Franky is ruining Chopper's cute image with his facial expressions.
+* It is explained that the larger children are not giants, but all of the children were kidnapped and have been experimented on by Caesar Clown (The larger the child, the longer they have been on the island). Chopper identifies the drug used on them as NHC10.
+* Some of the children are named.
+* Usopp uses a new attack called "Bakusui Boshi" (Burst Sleep Star).
+* Zoro, Sanji, and Brook are seen lying unconscious on the ground.
+* Caesar Clown appears to be in possession of Smoker's heart.
+* The silhouettes of two fighters called the Yeti Cool Brothers are seen.
+
+## Characters
+
+## Characters
+
+Pirate, Impel Down, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Nami, Usopp, Sanji, Tony Tony Chopper, Nico Robin, Franky, Brook, Shichibukai, Trafalgar D. Water Law, Magellan‎, Hannyabal, Sadi‎, Punk Hazard, Caesar Clown, Monet, Brownbeard, Yeti Cool Brothers, Sind, Mocha, Doran, Uzu, Konbu, Biyo, Ally

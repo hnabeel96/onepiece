@@ -1,0 +1,63 @@
+# Chapter 824: Whim
+
+Arc: Zou Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_824 (CC-BY-SA)
+
+## Cover page
+
+Color Spread: The Straw Hat Pirates are riding a koala roller coaster.
+
+## Short summary
+
+Luffy is worried for his brother's survival, but Pedro assures him that his death would have been included in the news and best assumes he is alive. For now the Sanji retrieval team must survive their dangerous trip to Whole Cake Island while enduring Luffy's mishaps and abysmal cooking.
+
+At Zou, Wanda learned from Bariete that he was bribed by Carrot into letting her join Luffy's group while Duke Inuarashi warns them to be vigilante for the possibility of their enemies returning to Zou if they have a means to find it. Meanwhile, deep underwater, among the wreckage of his fleet, Jack waits impatiently for anyone to fish him out of the water.
+
+In a certain country, a drunken Kaidou takes his anger out on his subordinates after hearing Jack's failures and warns his captive, Eustass Kid, that the Worst Generation will not survive his rage.
+
+On the way to Whole Cake Island, Sanji and Baron Tamago argue about Sanji's refusal to cooperate with his father's intentions and join the Big Mom Pirates. Vito then shows Sanji a photo of his bride-to-be, Lady Charlotte Pudding.
+
+## Long summary
+
+Pedro shows the rest of the Sanji Retrieval Team the newspaper that explains the destruction of Baltigo. Luffy notices Sabo's picture and reveals to the crew that Sabo is his other brother. Nami and Brook are shocked to learn about Sabo and Nami questions Luffy about why are all of his siblings are such dangerous people. Meanwhile, Luffy sees a picture of Dragon as Nami recalls Garp stating Dragon was Luffy's father. Luffy is comically surprised as he realizes this man is his father while Nami asks how he just figured that out. Luffy casually states that his father does not resemble him at all as Carrot is even more surprised at the fact that Dragon is Luffy's father.
+
+Luffy however, is more curious about Sabo's fate. Reading the newspaper reveals that the Marines and the Cipher Pol were intimated by an unidentified individual but by the time they arrived at the scene the Blackbeard Pirates had destroyed the place. Luffy is enraged remembering Blackbeard's actions while Nami is confused why the Blackbeards would do such a thing. Luffy speculates that Sabo's fight with Burgess might have something to do with the attack. The fate of the revolutionaries seems to be at large as there is not much information with respect to what happened to them.
+
+Pedro reassures the crew that Dragon and Sabo might not be harmed as that would have been a big news stating they must be safe, relieving Luffy. Meanwhile, Chopper alerts the crew about a fire due to a stove Luffy forgot to switch off. As the group panics, a storm approaches. Back at Zou, Bariete informed Wanda that Carrot snuck away with the Sanji retrieval team and apologized for getting bribed by Carrot and not informing her about Carrot's departure. Wanda shows no worry, having faith in Luffy and his group. She then asks Inuarashi, who is keeping watch, to rest and says that they can post guards. Inuarashi is concerned about how the Beasts Pirates located Zou and suspects that they had a vivre card that led them to the island. While hoping that they lost the means to track Zou after Jack's fleet sank, Inuarashi is worried that they might return.
+
+Immobilized underwater, Jack is extremely angry and waiting to be rescued. In his hideout, a drunk Kaidou has been informed about Jack's failure to rescue Doflamingo and is shown crying in front of his subordinates, telling them about how his dream for an all devil fruit crew has been destroyed since he cannot acquire any more SMILEs and increase the number of Gifters. Immediately, his emotions swing to anger and he screams about how Law and Luffy don't know who they've messed with. Eustass Kid is shown imprisoned in a cell, beaten and injured.
+
+Back at the Sunny, the storm has passed and Luffy presents his cooking to his group, who finds his food completely inedible. Nami then finds that they lost all of their food supply. Much to their horror, Luffy has wasted all their supplies in one go.
+
+On the way to Whole Cake Island, Sanji is seen with Tamago on Big Mom's ship, who suggests he join Big Mom, like his father wants him, and says Sanji can easily gain Big Mom's favor with his cooking. Sanji declares that he broke all ties with his family and bluntly states that his hands won't cook for people with no respect for their own crew members, referring to the Pekoms incident. He further declares that he trained in hell only for his friends. Finally, Vito comes with a photo of Pudding, which just came from Whole Cake Island. Understanding of Sanji's defiance, Vito decides to show Sanji the photo as a courtesy. Sanji then gazed at the photo and sees that Pudding is beautiful, making him love struck.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*This chapter was initially titled  in the Weekly Shonen Jump release, but the title was changed in its release in Volume 82.
+**The title remains unchanged in the Viz volume release.
+*The rest of the Sanji retrieval team learns about the destruction of Baltigo.
+**The Marines and Cipher Pol arrived at Baltigo after it was destroyed by the Blackbeard Pirates.
+**Luffy sees his father's face clearly for the first time in his life.
+**Since the paper did not make any mention of them, the fate of the Revolutionary Army remains unknown.
+*Inuarashi suspects that the Beasts Pirates have a Vivre Card that led them to Zou.
+*Jack is shown to have survived Zunesha’s attack.
+**Jack’s face is fully shown.
+**Being a fish-man, Jack is able to survive underwater for extended periods of time, but is immobilized due to being a Devil Fruit user.
+*Kaidou is devastated by the lack of further increase in the Gifters group's numbers after Doflamingo's defeat.
+**Kaidou's eyes, as well as the inside of his hideout, are seen for the first time.
+**Gifters are created through the use of SMILEs.
+*Eustass Kid is shown to be Kaidou's prisoner.
+*Sanji is en route to Whole Cake Island on Big Mom's ship.
+**Whole Cake Island sends out warning signals over Den Den Mushi to alert others they are entering Big Mom's territory.
+*Vito shows Sanji a photo of Charlotte Pudding.
+**Sanji is immediately love struck by her appearance, which coincides with Zoro's prediction in Chapter 822.
+*This is the last chapter of the Zou Arc.
+
+## Characters
+
+## Characters
+
+Pirate, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Nami, Usopp, Sanji, Tony Tony Chopper, Nico Robin, Franky, Brook, Heart Pirates, Trafalgar D. Water Law, Kid Pirates, Eustass Kid, Beasts Pirates, Kaidou, Jack, Big Mom Pirates, Charlotte Pudding, Tamago, Pekoms, Queen Mama Chanter, Fire Tank Pirates, Vito, Blackbeard Pirates, Marshall D. Teach, Jesus Burgess, Zou, Inuarashi, Wanda, Carrot, Pedro, Bariete, Zunesha, Revolutionary Army, Monkey D. Dragon, Marines, Monkey D. Garp

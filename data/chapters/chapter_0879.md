@@ -1,0 +1,46 @@
+# Chapter 879: One of Big Mom's "3 Sweet Commanders", Katakuri
+
+Arc: Whole Cake Island Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_879 (CC-BY-SA)
+
+## Cover page
+
+The Stories of the Self-Proclaimed Straw Hat Grand Fleet Vol. 13: Sai Arc - "The cancellation of the Engagement and Paying the Expected Price."
+
+Sai breaks off his engagement to Uholisia and receives a beating from her as a result. Chichilisia also gives Chinjao a scolding for Sai's decision.
+
+## Short summary
+
+Jinbe encourages the Sanji Retrieval Team to stop mourning Pedro's sacrifice and press on in honor of it, and as they head to Cacao Island, Big Mom continues pursuing them on a candy road made by Perospero. Meanwhile, Sanji, Pudding, and Chiffon reach Cacao Island, and Chiffon reveals that Lola was once the Minister of Chocolate, and that Pudding refuses to take her place.
+
+In the Mirro-World, Katakuri manages to perfectly counter Luffy's attacks by forming fists out of mochi that act in the exact same way to Luffy's stretched punches. Luffy is left planted in the wall as Katakuri overwhelms him with both speed and power.
+
+## Long summary
+
+Brook, Chopper, Carrot, and Nami mourn Pedro's self sacrifice and lament on their inability to save him, but Jinbe tells them to leave the crying to the Big Mom Pirates and that they must not falter. Brook is appalled at Jinbe's attitude, but Jinbe responds that he is telling them to keep their guard up, saying that Pedro was victorious in offering his life to help the team escape from certain doom on the coast of Whole Cake Island. At this point, it is all or nothing, with the Big Mom Pirates coming in full force after making a historic blunder, which is why Luffy took it upon himself to work toward their freedom by taking on Katakuri himself. With Jinbe's assertion that Pedro's sacrifice for their success is not achieved until they escape from Totto Land, Chopper gains the confidence to press on, and Nami has him take the helm as she charts the quickest route to Cacao Island. Brook goes to restock the cola they used for Coup de Burst, and Jinbe goes to monitor the current. Carrot leaps up to the crow's nest and sees not only the Big Mom Pirates' fleet heading toward them, but Big Mom herself, who seems to be walking on water. However, she is actually walking on a large block of moving candy provided by Perospero, who is sitting on Napoleon. Perospero wonders where Zeus is, but is content to help Big Mom himself, wanting to get revenge on the Straw Hats for Pedro blowing off his arm, meaning he has to create a candy arm that will melt when he drinks hot tea in the afternoon. On the western coast of Whole Cake Island, Zeus and Prometheus wonder where everyone is, with Prometheus wanting to consume fire.
+
+In the sea of Totto Land, Pound is on a ship when he suddenly sees his daughter Chiffon flying over him with Sanji and Pudding. However, Chiffon does not notice him as she talks to Sanji, revealing that Lola held the position of Minister of Chocolate. When she left, her seat remained empty, as Pudding was the constant candidate for replacement and she kept rejecting the offer. Pudding states that she could not accept it because of her belief that Lola truly fits the position, and she did not want to take it in case she returns. Sanji notes that Lola was a master chocolatier, and then tells Pudding to get out of her hiding spot inside Rabiyan's folds. Pudding acts like she hates Sanji and claims that she did not want to be seen next to him and be mistaken as his wife, but she becomes lovestruck when Sanji tells her not to fall. As Pudding continues to be split on her feelings toward Sanji, the trio reach Cacao Island and prepare to make Big Mom a cake.
+
+In the Mirro-World, the Big Mom Pirates inside tell Luffy to accept his defeat, as Katakuri is the strongest of the Three Sweet Commanders and Luffy has no way to get out of Mirro-World. Luffy attacks with Hawk Gatling, but Katakuri counters all his punches with fists create from his mochi tendrils. He then barrages Luffy with the tendrils, saying that he can match Luffy's abilities and overpower him in both speed and power. Luffy attacks him with a fast kick, but Katakuri dodges it and races in front of Luffy. Luffy uses his own Gear 2 speed to race behind Katakuri in the blink of an eye, but Katakuri sees this as well and kicks him in the face, sending him tumbling away. Katakuri predicts that Luffy will try to use some power next, and as Luffy activates Gear 3 and races to attack Katakuri with Elephant Gun, the Sweet Commander creates a giant fist out of mochi and counters Luffy's attack with an even bigger punch. With a tremendous amount of power, Katakuri pushes Luffy away and punches him into the wall, leaving the Straw Hat heavily injured as the other Big Mom Pirates cheer Katakuri on.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*Perospero helps Big Mom cross the sea as they pursue the Thousand Sunny.
+**It is shown that Perospero's candy can remain intact in sea water.
+*Prometheus claims that he needs to eat fire to regain his strength.
+*Pound is shown to have left Whole Cake Island.
+*Sanji, Pudding, and Chiffon are approaching Cacao Island.
+*It is revealed that Lola was Totto Land's Minister of Chocolate before her departure.
+**Pudding is the next in line for the position, but she rejected it due to her belief that Lola would return home.
+*The battle between Luffy and Katakuri intensifies.
+**Katakuri is shown to be able to mimic and enhance some of Luffy's techniques using his own Devil Fruit.
+
+## Characters
+*The chapter was titled  in its initial magazine release before being changed in the volume.
+
+## Characters
+
+Pirate, Straw Hat Pirates, Monkey D. Luffy, Nami, Sanji, Tony Tony Chopper, Brook, Big Mom Pirates, Charlotte Linlin, Charlotte Katakuri, Charlotte Perospero, Charlotte Pudding, Napoleon, Zeus, Prometheus, Nitro, Rabiyan, Sun Pirates, Jinbe, Fire Tank Pirates, Charlotte Chiffon, Happo Navy, Sai, Boo, Chinjao, Baby 5, Niho Navy, Chichilisia, Uholisia, Zou, Carrot, Totto Land, Pound

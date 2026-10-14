@@ -1,0 +1,25 @@
+# Chapter 410: Super-Size Nami
+
+Volume: 43  |  Arc: Enies Lobby Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_410 (CC-BY-SA)
+
+## Cover page
+
+Color Spread: The Straw Hat Pirates hold a riverside picnic with a half-dozen hungry dogs. The main course: hot dogs.
+
+## Short summary
+
+The battle between CP9 and Straw Hats continues.
+
+## Long summary
+
+Luffy pushes the crate off of him, and tells Rob Lucci to back off, asking if Robin went through the door. Lucci tells Luffy she did, but he will never see her again. Outside, agents and Marines are trying to flee the island so they do not fall victim to the approaching Buster Call. In the Tower of Justice, the Galley-La foremen and Franky Family are still tied up and talking about what might happen to them. In another room, Kaku and Jabra realize they need to finish their fight quickly. Zoro decides to call the make shift sword he made with Sogeking "Hana Arashi".
+
+Meanwhile, Luffy is still fighting Lucci. After some quick hand to hand combat, Luffy manages to push Lucci aside and makes for the door. Lucci sends Luffy flying into the wall with another high speed kick. Luffy throws a crate at him and Lucci breaks it easily with his hand. Luffy, who had run after the crate, quickly throws multiple punches. Lucci dodges them and the two continue to fight. They cross paths in the air, and Lucci delivers several quick attacks to Luffy, who does not feel anything until a few seconds after the attack stops. Luffy then charges at Lucci with a Gomu Gomu on Bazooka, which Lucci intercepts with a kick.
+
+The scene changes to Nami and Kalifa's fight. Kalifa remarks how the room suddenly became crowded, and their lives will be in danger if they stay much longer. She uses Soru and sneaks up behind Nami, using her Golden Awa technique on her. Nami realizes her body is slippery everywhere. She cannot grip her Clima-Tact or stand up. Kalifa tells Nami to give up on the key, but Nami uses Cool Charge, and Kalifa stops it with a Rankyaku. The attack hits Nami and she dissipates. Another Nami identical to the first one appears behind Kalifa and tells her it was Mirage Tempo. She hits that one and it dissipates again. Kalifa hears Nami's voice saying "Over here". She turns to look, and the wall behind her shatters and Chopper in Monster Point bursts into the room. Both women are shocked, and Kalifa thinks Nami is a Zoan user after seeing Chopper.
+
+## Characters
+
+Pirate, World Government, Bounty Hunter, Shipwright, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Nami, Usopp, Sanji, Tony Tony Chopper, Nico Robin, CP9, Rob Lucci, Hattori, Kaku, Kalifa, Jabra, Franky Family, Mozu and Kiwi, Zambai, Tamagon, Galley-La Company, Paulie, Peepley Lulu, Tilestone

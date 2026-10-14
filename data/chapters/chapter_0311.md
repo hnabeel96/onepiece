@@ -1,0 +1,25 @@
+# Chapter 311: Rough Game
+
+Arc: Long Ring Long Land Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_311 (CC-BY-SA)
+
+## Cover page
+
+Animal Theater: In the middle of building a treehouse, Usopp and his beaver helpers take a tea break.
+
+## Short summary
+
+The Groggy Monsters are playing unfair, by using weapons and hitting them very hard. The referee pretends that he does not see anything. Sanji and Zoro decide to work together for 10 seconds.
+
+## Long summary
+
+Itomimizu is shocked that Zoro and Sanji managed to throw Pickles and Hamburg out of the ring, but the two Straw Hats are arguing once again, saying they do not need the other's help. The Foxy Pirates are shocked at these turn of events, and Porche says that she will not forgive Hamburg if he loses. The game is still going on even though Pickles and Hamburg are incapacitated, and the Straw Hats get angry at Zoro and Sanji for arguing instead of putting the unguarded Big Pan into the ring. Big Pan then tries to stomp Zoro and Sanji, causing them to run away, to Usopp's chagrin. However, Zoro tells Usopp that Big Pan has knives on the soles of his boots, and Sanji reports the rule violation to the referee. However, the referee is purposefully looking away as Foxy says that he cannot see everything, and Sanji kicks the referee in anger. The referee maintains that he saw nothing and gives Sanji a yellow card; one more violation from him will result in a red card and him being ejected from the game.
+
+Sanji is angry at the biased call but gets back into the game, only to see Big Pan attacking Zoro with a giant ax. He also reports this to the referee, but he turns his head away again, angering Sanji once more. However, Usopp and Nami convince him to not do anything to get ejected, and they are also forced to stop Luffy from attacking the referee himself. However, Zoro and Sanji resume where they left off as they continue running away from Big Pan, but they stop and prepare to counterattack, though still refusing to fully cooperate with each other. Sanji knows that to avoid Big Pan's slippery skin, he must attack him in his clothed areas, but Big Pan flops onto his belly and slides forward, causing Zoro and Sanji to land on his back and slip down it. Big Pan then pulls his legs up to his head from behind, forming a loop that Zoro and Sanji are trapped sliding in.
+
+As Zoro and Sanji continue sliding, Pickles and Hamburg return, now carrying weapons, which the referee does not see due to performing some stretching exercises. Big Pan unrolls himself and sends the disoriented Zoro and Sanji flying into the air, and Pickles and Hamburg prepare to unleash another combo attack on them. Pickles sends Hamburg spinning into the air, and Hamburg slams Zoro into the ground with his elbow guard. Big Pan then gets into spiking position as Hamburg holds his elbow guards downward like a blade, and Big Pan sends Hamburg flying straight into Zoro. Hamburg's elbow guards drive into Zoro's abdomen, severely injuring him, and Itomimizu says the game is over for Zoro since he is dead. The Groggy Monsters then prepare another attack as Pickles gets into Big Pan's mouth and is shot out at the disoriented Sanji like a cannonball, his spiked shoulder pads primed. Pickles' attack sends Sanji flying into the air, and Hamburg smacks Sanji through the air, although he does not seem to be heading for the goal. Sanji hits Pickles' shoulder pad, and Big Pan finishes him off with a spike into the ground. The Foxy Pirates cheer and the Straw Hats are despairing as all that is left for the Foxy Pirates is to put the downed Sanji into the ring. However, Zoro and Sanji are still conscious, and they agree to help each other for 10 seconds.
+
+## Characters
+
+Pirate, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Nami, Usopp, Sanji, Nico Robin, Foxy Pirates, Foxy, Porche, Hamburg, Itomimizu, Chuchun, Pickles, Big Pan, Tony Tony Chopper

@@ -1,0 +1,44 @@
+# Chapter 775: To Russian With Love
+
+Arc: Dressrosa Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_775 (CC-BY-SA)
+
+## Cover page
+
+Color Spread: The Straw Hats on a road trip riding on bikes. The text on the right axle of Luffy's bike says "Lookin' for adventure", and is a reference to the song "Born To Be Wild". The route they are on is a reference to their ship (325 is san-ni-go in Japanese, aka Sunny-go).
+
+## Short summary
+
+Leo, Mansherry, and Kabu escape the palace, but Giolla tries, and fails, to inform Doflamingo that Mansherry has been taken, making their back up plan, of using her power to rebuild the SMILE Factory if it is destroyed, invalid. Meanwhile, Franky and Senor Pink continue their brutal battle, and Senor Pink uses his ultimate move, saying if Franky still stands afterwards he will win. Franky still stands, and defeats Senor Pink. Senor Pink then remembers his wife Russian and his son Gimlet, and the mistakes he made which caused him to dress like a baby out of remembrance for the two people he loved.
+
+## Long summary
+
+Mansherry attempts to flirt with Leo and asks him to carry her since she hurt her legs. Leo obliviously thinks her selfish side showed up and says she can just heal herself since she's always been very fast. This upsets Mansherry stating she's not running and didn't ask Leo to save her. Leo is angered about her mood swings and is whacked over the head by Kabu telling him to just carry her stating they don't have time to mess around. Leo carries her on his back complaining about her attitude while the Princess is happy to have him carry her while Kabu notes Leo is so thick, noting that Mansherry is polite and kind to everyone but Leo due to her feelings for him. Just as they leave Giolla regains consciousness commenting she must alert Doflamingo immediately. Knowing his calculations of Mansherry's Chiyu Chiyu no Mi powers to restore anything at the cost of one's lifespan, that should anything happen to the SMILE Factory, it can easily be restored to its original form. She is unable to move and pleads with Senor Pink to protect it at all cost.
+
+At the SMILE factory, Franky and Pink are still at it with the cyborg landing a Strong Hammer on Pink's face. However, Pink uses the momentum to dive underground and grab Franky from behind using his MeowMeow Suplex again. Both then fall over exhausted from their injuries. The Dwarves and fans alike note they are both at their limit while asking them both why they don't dodge their attacks, stating they took them both on 30 times each. Franky states when a man is offered a drink he can't turn away from it stating Pink is a hard man. He shouts he will not dodge a single attack and take them all one and come out on top saying that is his "strong style". He knows the Dwarves are worried but it is a duel between men and promises he will win in his own way and won't let them become slaves again.
+
+Senor Pink is touched by these words and states he'll remember them stating he's not as young as he used to be and will finish this with the next move, prompting one of his fans to note how far away he is. He then asks if what Franky said is true and that men don't go back on their word if he takes his attack without dodging. He swims towards Franky telling him to try to survive this next move proclaiming if he does survive he will admit defeat and take any punishment from Franky. Franky says it's a deal while being grabbed by Pink and swam outside the factory up a tower, much to the shock of the Dwarves. Pink notes how the sky is sadder than usual wishing he could keep going up higher to see his wife Russian and his son Gimlet but gravity is between them, prompting Franky to ask what he means. Pink reveals he knew of Franky's cyborg body and how is back is his weak spot and unleashes a devastating attack called "Baby Buster" crashing Franky into the ground. As Pink emerges seemingly victorious, he turns around shocked to see Franky, who's left eye seems to be more cybernetic now, emerges from the rubble. Pink keeps true to his word and admits defeat while apologizing to the Young Master. Franky unleashes a brutal "Franky Iron Boxing" on Pink, thrashing him around with his enlarged fists.
+
+While being assaulted, Pink reminisces the first time he met Russian on a rainy day for their first date. When she says she hates pirates she asks Pink what he does and he lies about being a banker. In time they marry and have a son named Gimlet. He juggles his duties to his family and crew and returns one day to discover of Gimlet's death. Russian reveals he had a fever a week ago just as Pink disappeared and the doctor's couldn't help him. She reveals his lies shouting she called the bank and they never heard of him demanding to know who he really is. She angrily slaps him and runs off telling him to not follow her. However, she fell in a landslide from the rain and sand and was buried on top leaving her in a vegetative state stating she does not have long to live. Pink can only grieve over her condition blaming himself for her and Gimlet's fates. He wishes to hear her voice and see her smile even a little so he puts on Gimlet's bonnet since he had his face. Just as he puts it away thinking it wasn't funny he's shocked to see Russian smile. Since then, he took up his baby like appearance being mocked and laughed at by many, even his crew. However, Pink brushed it all off for his wife's sake. Pink proclaims to his wife this outfit has more value than any other suit because when he puts it on he can get her to smile.
+
+Back in the present time, Pink's sunglasses break and is finally defeated by Franky. His fans weep over his defeat while the Dwarves celebrate Franky's victory. Franky, having grown to respect Pink, gently wipes the tears of Pink's face wondering what he was remembering that made him cry. As he walks away he tells him if they ever meet again that they should have a drink together and he can tell him about the woman Russian. The info box then reads the SMILE Factory victor: Franky.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*The Chiyu Chiyu no Mi is revealed to have the ability to restore inanimate objects at the cost of the user's lifespan.
+**Doflamingo planned to use this on the SMILE Factory if it is destroyed.
+* It is revealed that despite upgrading his entire body into a cyborg Franky's back is still his weak spot.
+*Senor Pink admits defeat to Franky after his ultimate attack fails to defeat him and Franky takes him out using Franky Iron Boxing.
+*Senor Pink's past is revealed.
+**Senor Pink once had a wife named Russian and a son named Gimlet.
+**It is revealed that he wears baby clothes to remember his deceased son and because they made his wife smile.
+
+## Characters
+*The chapter's name is likely a reference to the James Bond movie From Russia with Love.
+
+## Characters
+
+Pirate, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Nami, Usopp, Sanji, Tony Tony Chopper, Nico Robin, Franky, Brook, Donquixote Pirates, Trebol, Diamante, Giolla, Senor Pink, Machvise, Gladius, Kyuin, Tontatta Kingdom, Mansherry, Leo, Bomba, Kabu, Flapper, Maujii, Bobomba, Wicca, Inhel, Chao, Russian, Gimlet

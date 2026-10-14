@@ -1,0 +1,56 @@
+# Chapter 1014: Life's Lousy Actor
+
+Volume: 100  |  Arc: Wano Country Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_1014 (CC-BY-SA)
+
+## Cover page
+
+Cover Page Request: "Law puzzling over a riddle in front of a painted tiger screen" by PN Takashi
+
+## Short summary
+
+As Luffy lands in the ocean, Kaidou states that his Supreme King Haki infusion was crude and that he seemingly could not have been Joy Boy. Bao Huang then contacts Kaidou to tell him that Momonosuke has been found, and as Yamato fights through the Beasts Pirates in the fortress, Momonosuke reads Oden's logbook and realizes from its contents that he must not die. On the Live Floor, Chopper attacks Queen with Monster Point, which has been lengthened with the aid of Caesar Clown; however, he cannot figure out a way to injure the All-Star. Additionally, Perospero has arrived at the Live Floor and attacks the whole area with candy arrows.
+
+Kaidou has Bao Huang announce his victory over Luffy to everyone in the Skull Dome as he heads down to take out the remaining alliance fighters. Soon after Kin'emon and Kikunojo reunite with Momonosuke and Shinobu, Kanjuro arrives in another Oden drawing disguise. Kiku goes to attack him, but ultimately hesitates due to the disguise, allowing Kanjuro to stab her. Kin'emon then cuts Kanjuro down, and as he collapses the traitorous Scabbard states it was fitting for his closest companion to have done so. Kaidou then comes to the room and attacks Kin'emon, with the samurai's defenses being no match for him as Shinobu desperately flees with Momonosuke. As this happens, Onigashima finally reaches Wano's mainland.
+
+## Long summary
+
+As Luffy falls off of Onigashima and into the ocean, Kaidou states that although the pirate managed to infuse his Supreme King Haki, his usage of it was crude and clumsy; Kaidou also says that he supposes Luffy could not be Joy Boy. He then receives a call from Bao Huang, who informs him that Momonosuke has been located. Kaidou says he will head to the boy immediately, and tells Bao Huang to announce the result of his and Luffy's fight to all of Onigashima.
+
+On the third floor of the castle, the Beasts Pirates spot Yamato and notice the young master's exploding cuffs are gone, and Yamato affirms this while beating them aside. In the crawlspace under the first floor, Momonosuke is reading Oden's logbook and notes to Shinobu that based on what he has read, he knows he must not die. Right then, Momonosuke hears a powerful voice inside his head that causes him to collapse and writhe around in discomfort as he asks who the voice belongs to. On the Live Floor, Chopper flips over a transformed Queen and body-slams him into the ground and walls, to the cheers of both the samurai and Beasts Pirates defectors. However, Queen remains relatively unharmed while Chopper starts panting from exhaustion, and the All-Star notices and taunts the pirate over this. Additionally, Chopper has been struck in the back by multiple candy arrows fired by Perospero, who has joined the fighting on the Live Floor. Chopper internally expresses frustration, noting that despite having increased Monster Point's time limit, he has not yet succeeded at inflicting significant damage on Queen and he now has less than ten minutes remaining in this form. Several weeks ago, on the voyage from Punk Hazard to Dressrosa, Caesar Clown had learned about the Rumble Balls and derided their short three-minute effect time. He gave Chopper a list of chemicals to add to the Rumble Ball to increase the effect time all the way to 30 minutes, though with the addition of certain risks.
+
+Queen fires a Black Coffee laser beam at Chopper, which he dodges, and as Perospero readies another volley of candy arrows, Bao Huang arrives at the Live Stage and proclaims through the other Marys that Kaidou has taken down both the Nine Red Scabbards as well as Luffy. She states that Kaidou is coming down to eliminate all remaining enemies, and offers the enemy alliance the chance to surrender and join the Beasts Pirates to have their lives spared. The alliance remembers react in shock at this announcement, though both Zoro and Sanji loudly and immediately reject the offer to surrender. As this occurs, Kanjuro reaches the passageway to the first floor crawlspace, where Kin'emon and Kikunojo have already reunited with Momonosuke and Shinobu. Momonosuke is still afflicted by the voice in his head, and is about to tell Kin'emon to tell something to everyone when Shinobu points out that a frog Mary is with them. Right then, Kanjuro climbs up to the crawlspace, with another Oden disguise shrouding him, and greets Momonosuke and Shinobu under the guise of being Oden.
+
+Shinobu is shocked and Momonosuke is delighted to see Oden, but Kikunojo immediately informs them that this is an impostor. Enraged that Kanjuro is utilizing Oden's likeness once again after the ambush that claimed Ashura Doji, Kikunojo charges toward him with the intent of finishing him off once and for all. Kanjuro continues to play the role of Oden, and when he mentions how "he" took in Kiku and Izou, Kiku briefly hesitates, allowing Kanjuro to pierce through her chest with a sword. The Oden disguise then disappears as Kanjuro laughs triumphantly, saying it was only fair for him to give Kiku a fatal wound like the one she had given him. Kin'emon catches Kiku as she collapses to the ground, and she tells him with a smile that although she failed, the melting of fallen snow means that the "dawn" is surely close at hand. 
+
+As this happens, Kanjuro attempts to strike Kin'emon with his paintbrush, but Kin'emon swiftly unsheathes his sword and strikes down his former comrade, leaving a deep cut diagonally across his chest. Still standing for a brief moment, Kanjuro laughs and notes how fitting it was for Kin'emon, the one who was his closest comrade during the act he had put on, to "close the curtain" on his life. Right as Kanjuro collapses, Kaidou crashes into the crawlspace from above and readies his kanabo to kill Momonosuke. Kin'emon orders Shinobu to take Momonosuke and flee as he protects them from Kaidou, and he raises both of his swords to try to defend against the Emperor's attack. Kaidou's kanabo shatters Kin'emon's katanas with great ease and slams down onto the samurai with deadly force, and Momonosuke can only look, weep, and shout Kin'emon's name as Shinobu carries him away. As this occurs, Onigashima finally arrives at the Wano mainland.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*Luffy falls into the sea.
+**Kaidou notes that Luffy could not be Joy Boy.
+**Bao Huang alerts Kaidou about Momonosuke's whereabouts.
+*Yamato fights with the Beasts Pirates while Momonosuke continues to read Oden's logbook with Shinobu.
+**Momonosuke suddenly gets a headache after learning something important from the logbook.
+*Chopper fights Queen in the Live Floor.
+**Chopper was able to improve the duration time of the Rumble Ball's effects to 30 minutes, with the aid of Caesar.
+**Perospero is shooting candy arrows around the Live Stage, hitting Chopper, Samurai and the Waiters.
+*Bao Huang announces Kaidou's victory through the Marys around Onigashima, with the Ninja-Pirate-Mink-Samurai Alliance learning about it.
+*Kin'emon and Kikunojo reunite with Momonosuke and Shinobu.
+**Shinobu discovers a Mary in the crawl space.
+*Kanjuro finds Momonosuke's group disguised as Oden.
+**Kikunojo attacks Kanjuro but is distracted by his disguise and is fatally wounded.
+**Kin'emon intervenes and cuts Kanjuro down.
+**Kaidou finds Momonosuke's group and tries to attack Momonosuke.
+***Kin'emon is struck down by Kaidou while Shinobu takes Momonosuke away.
+*Onigashima finally reaches Wano Country's mainland.
+
+## Characters
+*The title of the chapter is a reference to a song called "Le Cabotin" (1968) by Charles Aznavour. The song was translated into Japanese and performed by Akihiro Miwa under the title 人生の大根役者 (Jinsei no Daikon Yakusha), which is the Japanese title of the chapter. The song has also been translated into English by Bob Morrison and performed by Aznavour himself under the title "The Ham", which is the official English title of the chapter.
+
+## Characters
+
+Pirates, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Nami, Usopp, Sanji, Tony Tony Chopper, Nico Robin, Franky, Brook, Jinbe, Heart Pirates, Trafalgar D. Water Law, Kid Pirates, Eustass Kid, Beasts Pirates, Kaidou, Queen, Who's-Who, Bao Huang, Big Mom Pirates, Charlotte Linlin, Charlotte Perospero, Whitebeard Pirates, Polo Marco, Yamato, Caesar Clown, Wano Country, Kouzuki Momonosuke, Kin'emon, Kikunojo, Izou, Ashura Doji, Shinobu, Hyougoro, Yatappe, Tama, Kurozumi Kanjuro

@@ -1,0 +1,44 @@
+# Chapter 569: White Monster
+
+Volume: 58  |  Arc: Marineford Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_569 (CC-BY-SA)
+
+## Cover page
+
+Straw Hats and Animals: An elephant and Usopp eats sweet potatoes in the snow.
+
+## Short summary
+
+Luffy re-enters the battle, and manages to defeat Koby and pass the Pacifista (with Hancock's help). However, Marco and Jozu are defeated by Admirals Kizaru and Aokiji, and Whitebeard is attacked mercilessly by Marine officers. However, Whitebeard is able to hold out a little longer, but Ace is about to be executed. At the last second, Luffy lets loose a burst of Haki that knocks out a number of Marines and the executioners, stunning everyone present.
+
+## Long summary
+
+Just having been dosed with tension hormones, Luffy races towards the execution platform where the blades are raised in preparation for their descent down Ace's neck. Ivankov reminds Luffy that he is still severely injured and cannot afford to be injured again as he helps Luffy clear a path to Ace. Suddenly, Luffy spots Koby blocking his direct path to Ace. Koby strengthens his resolve to fight and grow, and attacks Luffy. However, despite Koby's use of Soru, Luffy sees past the technique and lands a crippling blow (Gomu Gomu no Bullet) right in Koby's face leaving him crumpled and bloodied on the ground. With that hurdle jumped, another rises up in the form of the World Government-commandeered and Marine-allied Pacifista firing lasers at them. Conveniently, Shichibukai Boa Hancock appears and throws herself in front of Luffy rendering the Pacifista unable to attack because their programming forbids them from attacking allies. Luffy thanks the Pirate Empress and she in turn swoons when he says her name.
+
+The scene is then focused on First Division Commander Marco the Phoenix, who is trying to recover after just having been pierced by two light beams from Admiral Kizaru when the attack on Whitebeard had him distracted. Marco tries to continue the fight but Vice Admiral Onigumo sneaks up behind him and puts Seastone handcuffs on his right hand, sealing off his Devil Fruit powers. Consequently, Admiral Kizaru pierces his chest yet again with two light beams. The Whitebeard-allied pirates cry out at the sight of the defeated commander.
+
+Also defeated is Jozu having been frozen solid by Admiral Aokiji who also took full advantage of the moment the Commander was distracted by the blow to Whitebeard. Aokiji walks off noting that "the Whitebeard pirates have really fallen apart..."
+
+With even the Commanders "falling like flies", Fleet Admiral Sengoku demands the immediate delivery of Whitebeard's head. This sparks a full frontal attack on Whitebeard leaving him lanced, pierced and bullet ridden by notable Marines, but remarkably he is still standing. The pirates cry out "Old man!" in concern for Whitebeard, who clearly shows fatigue, but with a strong resolve he roars out, "I AM WHITEBEARD!!!" as he brushes away the attackers with his bisento, claiming that he needs no assistance and can hold out a little longer.
+
+Seeing Whitebeard defeating quite a number of exceptional Marine fighters with one felling swoop, and still standing despite his severe, mortal-looking injuries, the Marines come to the conclusion that he is a monster. Whitebeard then announces that he is fully aware of what his death entails and that he will not perish until he can see off the future of his children.
+
+A group of the Whitebeard pirates, including Vista, along with Jinbe take up formation behind Whitebeard to aid him but Fleet Admiral Sengoku states that he will show Whitebeard the future of his "children" and orders the commencement of Ace's execution. Sengoku tells Whitebeard to watch closely as the executioners' blades swing down in a wide arc. With Ace resigned to his fate and Whitebeard incapacitated, the only thing that the pirates can do is look on as the fruit of their efforts is about to get sliced open.
+
+With his brother's demise impending, Luffy lets loose a Haki-imbued yell, "STOP IT!!!" (just like what he did in the arena in Amazon Lily), that renders the executioners (and some weak-willed individuals, notably Jango) unconscious. Fleet Admiral Sengoku's eyes darken in shock and knowledgeable pirates and Marines note that it is Supreme King Haki. Whitebeard looks on, just as surprised and tells Marco to protect Luffy.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*Marco and Jozu appear to be defeated.
+*It is shown that the Pacifistas will not directly attack anyone that they identified as allies.
+*Koby tries to fight Luffy but was quickly defeated by one punch.
+*This is Luffy's second noted use of Supreme King Haki. The first was during his fight with two of the Gorgon Sisters.
+
+## Characters
+
+## Characters
+
+Pirates, Marines, Shichibukai, Straw Hat Pirates, Monkey D. Luffy, Usopp, Whitebeard Pirates, Brew, Cands, Amadob, Palms, Kuja Pirates, Salome, Edward Newgate, Portgas D. Ace, Polo Marco, Jozu, Vista, Blamenco, Rakuyo, Curiel, Haruta, Atmos, Fossa, Izou, Fleet Admiral, Sengoku, Admiral, Kizaru, Akainu, Aokiji, Vice Admiral, Monkey D. Garp, Onigumo, Master Chief Petty Officer, Koby, Seaman Recruit, Jango, Pacifista, Boa Hancock, Jinbe, Revolutionaries, Emporio Ivankov, Baroque Works, Galdino

@@ -1,0 +1,53 @@
+# Chapter 797: Rebecca
+
+Arc: Dressrosa Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_797 (CC-BY-SA)
+
+## Cover page
+
+Cover Page Request: "The G-5 celebrating Smoker's return with a cotton candy party" by Pen-Name Sheena, Aichi Prefecture.
+
+## Short summary
+
+The Straw Hat Pirates, Bartolomeo, and Bellamy run away towards the eastern port while Luffy goes to the palace to ask Rebecca if she's okay with what her father did. Rebecca forfeits her title as princess and asks Viola to be the next queen as she leaves with Luffy. The townsfolk believe Luffy is kidnapping Rebecca and the Marines led by Maynard are stopped by an unknown force, similar to Supreme King Haki. Rebecca meets up with Kyros and they decide to live together. Luffy runs towards the East Port, but the Straw Hat Pirates are being approached by Fujitora.
+
+## Long summary
+
+Zoro warned Luffy that they are short on time and that the eastern port will be their rendezvous point as Luffy left, although Bartolomeo said that he was pointing in the wrong direction.
+
+In the present at the Marine camp, Bastille is discussing with his troops about the runaway pirates and decides to call the east unit. However, the unit has been defeated by the Colosseum gladiators, with Abdullah and Jeet trying to pose as Marines. They try tricking Bastille into not sending reinforcements, but fail in the process. Bastille sends his men towards the eastern port, but Cavendish, Sai, Baby 5, Hajrudin, Blue Gilly and Suleiman back up the running Straw Hats, Bartolomeo, Law, and Bellamy go to stop the Marines. The Marines report to Bastille that all of the criminals taking shelter in the palace have come to the east city.
+
+Meanwhile, Luffy screams at the royal palace, telling Rebecca to show herself. Luffy's shouting causes the Marines to notice him and give chase, and Rebecca hears his call and shows herself, despite her attendants telling her not to consort with pirates. Meanwhile, Riku Doldo III asks Tank Lepanto to call Viola and Rebecca. The three would go to town to tell the people the Riku family will become royalty once again, and Tank gladly obliges to his request. Luffy leaps to Rebecca's window, scaring her attendants. Rebecca wants to thank Luffy, but he interrupts her and asks if she is okay with Kyros leaving her forever. Rebecca remembers when Kyros, then Thunder Soldier, gave her the letter and how she acted in shock and confusion because she did not know who he was. Rebecca asks Luffy if he believes that Kyros thinks of her as a burden, but he replies that he doesn't know and only wanted to ask Rebecca if she was okay with it. Rebecca reveals that she was never okay with it and prepares to go with Luffy. The attendants and guards rise up to stop her, and Viola tells Rebecca and Luffy to wait. However, Rebecca asks Viola a favor, and Viola is shocked when she hears it.
+
+Rebecca holds onto Luffy as they jump out of a hole Luffy made in the palace, while a guard tells Riku that Rebecca has been kidnapped by a pirate. A shocked Riku shakes him while asking which pirate did this, and the guard tells him Luffy did this. Panic occurs throughout town and the people believe that Luffy is an evil pirate who kidnapped the princess for a ransom. Gatz is surprised but still refuses to hate Luffy. Vice Admiral Maynard says that that was what happens when you shelter pirates and tells his men to pursue Luffy and rescue Rebecca. The snipers try to shoot him, but they fall down to the ground. After hearing about this Bastille asks if Supreme King Haki was used, but it was not since the troops are still conscious. Bastille then orders all the Marine squads to go east to Carta. As Luffy and Rebecca race across the rooftops, he tells her that he will leave her on the back side of the hill while leading the troops away, noting that she will be on her own after that and reminding her that if she is caught, she will be taken back to the palace. Rebecca then thanks him. The citizens of Dressrosa take up arms to stop Luffy and rescue Rebecca, feeling betrayed and swearing to never trust pirates again.
+
+In his house, Kyros thinks about what Scarlett would say while packing his belongings, saying he left Rebecca so she could be happy as a member of the Royal Family. He departs but is stopped at the door by a crying Rebecca. Rebecca tells him to stop lying, and Kyros reminds her that he is a murderer. She claims she does not care for her royal status as her family and happiness are much more important. She proudly claims she is the child of Kyros and nobody else, wanting to fulfill her promise. Rebecca embraces Kyros, who also breaks down in tears, asking her if she is really sure about this, but Rebecca has made up her mind and asks him to live together.
+
+Back at the palace, Viola informs her father that Rebecca is leaving, and Viola remembers Rebecca's request: to become princess in her place. Riku responds by laughing and remarking that Rebecca is a lot like Scarlett.
+
+The Straw Hats make it to the east port and take the stairs towards the coast. As Luffy runs toward the harbor, Bartolomeo sees Fujitora coming for them.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*Bastille has recovered from his fight with Sabo and replaced his broken metal mask.
+*Luffy takes Rebecca to Kyros.
+**Rebecca decides to stay with Kyros, leaving her title as princess.
+***This is the second time King Riku has granted such a strange request, after arranging for Scarlett to leave her position to be with Kyros by faking her death.
+**Rebecca's decision to stay with her father makes Viola the next princess in line.
+**The citizens of Dressrosa believe that Luffy kidnapped Rebecca for ransom, which makes them believe that Luffy is evil.
+***This is the second time Luffy has been accused of kidnapping a princess. The first was with Shirahoshi during the Fish-Man Island Arc.
+***A man has "Yukai Sareta" (誘拐された) on the back of his shirt, which translates to "She's been kidnapped", referencing how Rebecca has been "abducted" by Luffy.
+**Kyros and Rebecca resolve to live together as a family.
+*The other Straw Hats go to the eastern port while the Marines pursue them.
+**For an unknown reason, the Marines that were chasing Luffy and Rebecca fell to the ground.
+**Fujitora is on his way to the port.
+*Although he can be seen running with everyone else at the beginning of the chapter, Law went missing by the time they arrived at the port.
+
+## Characters
+
+## Characters
+
+Pirate, Marines, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Usopp, Nico Robin, Franky, Heart Pirates, Trafalgar D. Water Law, Barto Club, Bartolomeo, Beautiful Pirates, Cavendish, Farul, Happo Navy, Sai, Donquixote Pirates, Baby 5, Bellamy, Admiral, Issho, Vice Admiral, Bastille, Maynard, Smoker, Captain (Marine Rank), Tashigi, Wano Country, Kin'emon, Kurozumi Kanjuro, Dressrosa, Riku Doldo III, Kyros, Viola, Rebecca, Tank Lepanto, Gatz, Corrida Colosseum, Abdullah, Jeet, Blue Gilly, Hajrudin, Ideo, Suleiman, Mocha, Doran, Konbu, Sind

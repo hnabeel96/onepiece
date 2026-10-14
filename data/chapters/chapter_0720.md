@@ -1,0 +1,56 @@
+# Chapter 720: Prison-Gladiators
+
+Arc: Dressrosa Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_720 (CC-BY-SA)
+
+## Cover page
+
+Caribou's Kehihihihi in the New World Vol. 37 - "Release the Workers and Granny!!".
+
+The Caribou Pirates fight against Scotch.
+
+## Short summary
+
+With the Stadium under repairs, Luffy goes inside to rest only to immediately block an attack by Cavendish who still wanted him dead. Bartolomeo then overhears one of the fighters pokes fun of Luffy, enraging him so much that he attacked him and told him that Luffy will become Pirate King. Bartolomeo reveals that he was there in Loguetown when Luffy declared his dream to the world, inspiring Bartolomeo to travel to sea when he heard of the Straw Hats' exploits.
+
+Luffy, still fighting Cavendish, hears Boo saying that his Grandfather wants a word with him. Chinjao expresses his gratitude to Luffy by bowing his restored head on the ground, splitting it giving Luffy the distraction needed to get away from everyone. Rebecca then guides Lucy (unaware its Luffy) away to safety where they ran into Jesus Burgess talking to Blackbeard via Den Den Mushi. Blackbeard reveals his intention of obtaining the Mera Mera no Mi where Luffy declared he will prevent him from doing so and ran off with Rebecca.
+
+After treating Lucy with food, Rebecca shows Lucy the Gladiators Quarters where he can safely eat. After a while of chatting Luffy gets grabbed from behind by the prisoners who shouted to Rebecca to do it now, which she complied by attempting to stab Lucy. But Luffy swiftly escapes his bind and pins Rebecca down. The prisoners were relieved when Lucy showed mercy and explained to Luffy that they including Rebecca are convicted Gladiators who stood up to Doflamingo and were punished to fight till they die. Rebecca then told Luffy that Mr. Soldier's plan was to defeat Doflamingo to set her and the prisoners free but tearfully expresses her wish to protect him instead of him protecting her.
+
+## Long summary
+
+Gatz announces to the crowd that there are currently three contenders to fight against the Donquixote Family: the winner from Block A, "Champion" Jesus Burgess, the winner from Block B, "Cannibal" Bartolomeo and the winner from Block C, Lucy. He then informs the crowd that there is only one more person who will participate in the finals, but that the Block D battle will be delayed 15 minutes do to repairs being done to the arena.
+
+The news about the delay angers the crowd, as they are very anxious to watch the next battle royale, meanwhile Cavendish attacks Luffy outside of the arena, though Luffy is easily able to block his first strike. This catches the attention of Bartolomeo, who is annoyed at Cavendish for going after Luffy, though Bartolomeo stops along the way to torture a couple of bystanders for insulting Luffy for being unable to save Ace. Bartolomeo uses his Devil Fruit to create a barrier to crush one of the bystanders, not caring that he is apparently a noble. Bartolomeo then tells him that Luffy is going to become the future Pirate King, he also reveals that he was at Loguetown on the day that Buggy tried to execute Luffy and was amazed at the miracle that saved his life. He then goes on about how he followed news about Luffy and the Straw Hat pirates ever since and that after the events of Marineford he was inspired to sail the seas as a pirate. Bartolomeo is then implied to have cut off the noble's tongue, while Luffy and Cavendish continue their fight, with Luffy questioning as to why they even need to fight.
+
+Onlookers plead with the two to stop, but they are unable to even get close to the brawl while Bartolomeo is too nervous to meet Luffy yet, the Chinjao Family arrives then and Sai announces that his grandfather would like to talk with Luffy. Luffy however is suspicious and believes that Chinjao wishes to continue their fight, though in reality he merely wished to express his gratitude, unfortunately Chinjao accidentally breaks the floor with a headbutt. This causes Luffy to run away, while being pursued by an angry Cavendish, though Rebecca manages to take his hand and leads him away from the commotion.
+
+Along their way they come across Burgess who is in the middle of a conversation with his captain, which catches the attention of Luffy, who stops to hear what is going on. Burgess mentions during the conversation that he cannot trust Aokiji and then informs his captain that Luffy is with him, Blackbeard then begins to have a brief conversation with Luffy, telling him that Burgess will win the Mera Mera no Mi for him, but Luffy promises that he will not let that happen.
+
+As Luffy leaves Rebecca questioning him as to his relationship with the other pirates, to which he responds that he is something of an acquaintance and that he cannot let him win, Luffy then stops to try and get some free samples, though the shop owner is a little suspicious that Luffy is not interested in buying anything, though Rebecca offers to pay for him.
+
+Rebecca then takes Luffy to the gladiator quarters and tells him that she is impressed with his strength, though Luffy is more impressed with his lunch and asks if she is hungry, though Rebecca tells him that she does not get hungry, which reminds Luffy of a samurai. Luffy is then captured by an unknown assailant who asks Rebecca to kill Luffy, though Luffy manages to free himself, dodge Rebecca's slash and then subdue her while still eating. Rebecca then tells Luffy that she will accept any punishment Luffy gives her, though Luffy is unwilling to punish her since she bought him food. Luffy is then informed of the plight of the gladiators and how they are little better than prisoners under Doflamingo's regime, while Rebecca announces her desire to win the Mera Mera fruit and kill Doflamingo.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*The time until the Block D battle royale is pushed back by fifteen minutes in order to repair the ring.
+*Cavendish attacks Luffy.
+*Bartolomeo admires Luffy because two years ago he witnessed a miracle when a lightning bolt saved Luffy from being executed by Buggy in Loguetown. Bartolomeo, a former kingpin of a mafia, decided to set sail after seeing Luffy at Marineford.
+*Chinjao wants to show his gratitude to Luffy for restoring the shape of his head, but ends up accidentally attacking him when he bows. He abandons his grudge against Garp and also mentions wanting Luffy to take Sai and Boo under his wing.
+*Rebecca saves Luffy from Cavendish and Chinjao and takes him to the gladiator quarters.
+*In a Den Den Mushi conversation with Blackbeard, Luffy declares that he will not let Jesus Burgess take his brother's Devil Fruit. In addition, Burgess mentioned something about trusting Kuzan.
+*Rebecca's face is shown. With the help of the gladiator prisoners, Rebecca attacks Luffy but she is defeated instead. 
+*The gladiator quarters are a prison which holds the convict gladiators. They were imprisoned for opposing the Donquixote Family and they have to keep fighting until they either die in the ring or gain their freedom by winning 1000 battles. However, even the strongest among them do not survive that long.
+*Ten years ago, before Doflamingo ascended to the throne, the Colosseum fights were not to the death.
+*Glimpses of Rebecca's past are seen, in one of which she was seen as a child with the Thunder Soldier.
+
+## Characters
+
+: new introduction
+
+## Characters
+
+Pirate, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Nami, Usopp, Sanji, Tony Tony Chopper, Nico Robin, Franky, Barto Club, Bartolomeo, Beautiful Pirates, Cavendish, Blackbeard Pirates, Marshall D. Teach‎, Jesus Burgess, Caribou Pirates, Caribou, Coribou, Scotch, Dressrosa, Kyros, Kano Country, Chinjao, Sai, Boo, Baburu, Corrida Colosseum, Rebecca, Gatz

@@ -1,0 +1,42 @@
+# Chapter 697: A Deal
+
+Volume: 70  |  Arc: Punk Hazard Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_697 (CC-BY-SA)
+
+## Cover page
+
+Caribou's Kehihihihi in the New World Vol. 19 - "Granny Chases Off the Strange Army".
+
+The old lady who nursed Caribou back to health chases away the mysterious soldiers he encountered by herself.
+
+## Short summary
+
+In a flashback, Law tells Luffy not to underestimate the Four Emperors, as they once had even competed against Whitebeard for territory. Law tells him that with his plan, they have around a 30 percent chance of defeating Kaidou. Back to the present, the Straw Hats and G-5 Marines part ways. The Marines claims to hate pirates and the children are seen crying, unable to say goodbye to the Straw Hats, but the Marines reveal that they badmouth the crew because if they do not, they will come to love them.
+
+Flying over the ocean, Doflamingo approaches a life raft with Baby 5 and Buffalo's heads hanging on it, which were apparently cut off by Law. They tell him that they have failed to obtain Caesar, to which Doflamingo replies it is alright since they were only obeying orders. Law's Den Den Mushi is seen on the raft, when it starts talking to Doflamingo. Law tells him that he needs to quit the Shichibukai to get Caesar back or else Kaidou will wipe him out, infuriating Doflamingo.
+
+## Long summary
+
+In a flashback, Law is surprised by Luffy's plan on taking down all of the Four Emperors, and warns him that he is heavily underestimating them, as they were all powerful enough to challenge Whitebeard for territory before his death. Law continues on saying that Kaidou is said to be the strongest creature alive, and even with their alliance, the probability of succeeding in defeating Kaidou is still only around 30%. Nami says the chances are too low, and they should not agree to the alliance. Despite her protesting, Luffy agrees to the alliance.
+
+Back to the present, Law tells Smoker that he is planning on heading to Green Bit with the Straw Hat Pirates, and remarks that he has his hands full with them. The children are getting ready to leave the island on the tanker with the G-5 Marines. The Marines then draw up a line and tell the Straw Hat Pirates not to cross the line, as they are pirates and therefore, a strain on humanity. The Marines continue to badmouth the pirates, but the pirates largely ignore this, and Nami tells Chopper that Vegapunk is going to help cure the side effects of the drugged candy. As the Marines keep badmouthing the pirates, the children want to thank the pirates for helping them, but cannot do so, as the Marines are trying to prevent the children from doing so. The children are upset since they are the ones who asked the pirates to rescue them but cannot thank them, let alone say goodbye to them. Tashigi stops the Marines, saying that it is disgraceful for them to prevent the children. The Marines explain that they are badmouthing the pirates so they will not grow to admire and respect them, despite the fact that they are pirates. They then break down in tears, as Tashigi laughs and Smoker groans. The children thank the pirates for rescuing them, and say that when they grow up, they will become pirates, to which the Marines protest.
+
+Afterwards, Doflamingo is seen crossing the New World when he notices a raft. The raft holds the decapitated heads of Baby 5 and Buffalo as well as a Den Den Mushi. Baby 5 and Buffalo apologize for their failure in taking back Caesar Clown, but Doflamingo tells them that it is alright, as they were only obeying orders. The Den Den Mushi then speaks up, revealing to be from Law. Law tells Doflamingo that he has Caesar, and wants to discuss business. Doflamingo laughs and tells him that he does not do business with kids, and warns Law not to screw with him. Law ignores that, and says that Kaidou is Doflamingo's principle trading partner. If Kaidou learns that Doflamingo cannot produce any more Smiles, then he will have to suffer the consequences, terrifying him. Becoming increasingly frustrated, Doflamingo asks what Law wants in exchange for Caesar, to which Law responds by ordering him to step down from the Shichibukai, a status he has worked over a decade to maintain. As pointed out by Law, this resignation would also leave him open to the wrath of the admirals. If the next day's newspaper has the news of Doflamingo's resignation, Law shall contact him again, but if the newspaper does not show any news of resignation, then the deal is off and Doflamingo will have to deal with Kaidou. He then hangs up, leaving Doflamingo infuriated.
+
+## Notes & trivia
+
+## Chapter Notes
+
+* According to Law, Kaidou is the strongest creature in the world implying that he is not even human, and the chances of him and Luffy successfully taking him down are only 30%.
+* Law states a desire to go to a place called Green Bit.
+* The Straw Hat Pirates, Law, Kin'emon and Momonosuke leave Punk Hazard. In the meantime, Tashigi and her men take the children with them to return them to their homes. This is the second time Smoker allowed the Straw Hats to go free.
+* Baby 5 and Buffalo's heads are separated from their respective bodies by Law's powers and are found adrift on a lifeboat by Doflamingo.
+* It is revealed that Doflamingo deals the Smiles to Kaidou, who is also his most important business partner.
+* Law presents Doflamingo with a deal through a Den Den Mushi, saying that if Doflamingo resigns from the Shichibukai, Law will sit down at the negotiating table. He gives him until the release of the next newspaper to do so. Doflamingo shows frustration for the first time.
+
+## Characters
+
+## Characters
+
+Pirate, Marines, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Nami, Usopp, Sanji, Tony Tony Chopper, Nico Robin, Franky, Brook, Seven Warlords of the Sea, Trafalgar D. Water Law, Donquixote Pirates, Donquixote Doflamingo, Vergo, Baby 5, Buffalo, Caribou Pirates, Caribou, G-5, Smoker, Tashigi, Punk Hazard, Caesar Clown, Brownbeard, Wano Country, Kin'emon, Kouzuki Momonosuke, Baburu, Mocha, Sind, Doran, Konbu, Uzu, Biyo

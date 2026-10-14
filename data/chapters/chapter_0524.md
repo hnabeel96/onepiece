@@ -1,0 +1,37 @@
+# Chapter 524: No One Can Stop This Now
+
+Volume: 54  |  Arc: Amazon Lily Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_524 (CC-BY-SA)
+
+## Cover page
+
+CP9's Independent Report Vol. 30: "This is Your Former Subordinate, Rob Lucci".
+
+Lucci talks with Spandam on the Den Den Mushi.
+
+## Short summary
+
+The scattered Straw Hat Pirates explore their new terrains while Luffy and Hancock move closer to Impel Down. As Marineford prepares for war, a meeting of the Warlords of the Sea takes place and Garp visits Ace in Impel Down.
+
+## Long summary
+
+On the Boin Archipelago in the Grand Line, Usopp is saved from a giant beetle by Heracles. Usopp then notices a strange fruit and examines it, but a man-eating plant attacks him, forcing Heracles to intervene once more. Heracles then warns him to always keep his guard up if he wants to survive.
+
+Elsewhere in the Grand Line, in the Land of Poverty, Harahettania (on Namakura Island), several dozen priests believed they have summoned a demon, and are prepared to sell their souls to it. As the smoke clears, Brook is seen wondering where he has flown and wanting to find his crewmates again. Noticing a female priest, he asks to see her panties, inciting the priests to bring him some.
+
+In the East Blue, Robin is being told about the construction of the giant bridge, Tequila Wolf. She is told that the workers there are basically slaves, criminals, and former citizens who defied the World Government. When told that the island-spanning bridge has been under construction for 700 years, she questions the man and is put to work.
+
+In the South Blue, Chopper is discovered by large birds whom he believes are monsters. Unable to move, Chopper is rolled around by the birds and thrown off the side of their massive nest. Upon landing, natives discover him and state they want to make him into "tanuki stew." Chopper states that he is a reindeer, so one of the villagers decides to make reindeer stew instead.
+
+On Kuraigana Island in the Grand Line, Perona is depressed over not having servants catering over her on her "trip" given to her by Kuma. Suddenly, another person crashes down, whom Perona recognizes as one of the Straw Hats: Zoro. She brings him inside the castle, wraps him in bandages, and lays him in bed. The next morning, he wakes, angrily yells at the memory of Kuma, and demands that Perona return his swords to him.
+
+Days later, on the way to Impel Down, Boa Hancock berates a soldier for bringing a meal under 100 kilograms. Back in her cabin, Hancock feeds Luffy his food and lets him eat Sea King ham along with Salome. Luffy, satisfied with the feast, exclaims that he is stuffed, making the soldiers suspicious. Hancock, however, covers for Luffy and tells the soldiers that she needs that much food five times a day.
+
+With six days until Ace's execution, powerful soldiers begin to gather at Marineford, such as Smoker, the Admirals, and many others. Marineford is on edge due to the destruction of their ships tailing Whitebeard, while at the land of Mary Geoise, a meeting of the remaining Warlords of the Sea (minus Hancock and Jinbe) is taking place. Despite all of them gathering in one place, the idea of them working together is "unthinkable."
+
+In Ace's cell in Impel Down, Garp comments to Ace that war is inevitable even if Ace dies right now, as they have already angered the "Ruler of the Seas".
+
+## Characters
+
+Pirate, Marines, World Government, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Usopp, Tony Tony Chopper, Nico Robin, Brook, Kuja Pirates, Salome, Thriller Bark Pirates, Perona, Seven Warlords of the Sea, Boa Hancock, Donquixote Doflamingo, Marshall D. Teach, Gecko Moria, Bartholomew Kuma, Dracule Mihawk, Whitebeard Pirates, Portgas D. Ace, Sengoku, Borsalino, Kuzan, Comil, John Giant, Cancer, Stainless, Tsuru, Monkey D. Garp, Smoker, T Bone, Hina, Tashigi, Stalker, Mashikaku, Shine, Jango, Fullbody, CP9, Rob Lucci, Jabra, Spandam, Boin Archipelago, Heracles, Namakura Island, Pekkori, Tequila Wolf, Chief (Tequila Wolf), Torino Kingdom, Shanba

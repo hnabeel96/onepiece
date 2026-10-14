@@ -1,0 +1,37 @@
+# Chapter 407: Monster
+
+Volume: 42  |  Arc: Enies Lobby Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_407 (CC-BY-SA)
+
+## Cover page
+
+Miss Goldenweek's "Operation: Meet Baroque Works", Vol. 37: "Become a Chocolate Lady, a Fireman, an Express Pizza Deliverer, and a Tank".
+
+Four more dreams revealed by the rainbow Colors Trap: Miss Valentine a chocolatier, Mr. 5 a fireman, Mr. 4 a pizza deliveryman, and Lassou a tank.
+
+## Short summary
+
+The CP9 agents fight the Straw Hat Pirates: Tony Tony Chopper eats three Rumble Balls and activates Monster Point.
+
+## Long summary
+
+The chapter starts with Kumadori having just pummeled Chopper using his Life Return. Kumadori tells Chopper that he will not show any mercy as long as he is angry. Chopper considers the risks of eating a second Rumble Ball, and calculates the odds that he has a one in seven chance of being able to use Arm Point. He eats a Rumble Ball as Kumadori attacks him with another Shish Kebab. Chopper calls out his attack but realizes that he is not in Arm Point and that his body is at its limit. He has to get into Arm Point as Kumadori rushes toward him.
+
+By some miracle, he manages to get into Arm Point. He then says that he has to place everything on this next attack. Kumadori hits him with Shigan, but Chopper plants his feet and withstands it. He knows if he retreats now, he will not get another chance to attack. As Kumadori gets ready to attack him with Tekkai Go, Chopper hits him in the chest with a Kokutei Roseo Metel. Kumadori is blasted back, knocking him to his knees, hoof prints covering his chest. Chopper collapses. Kumadori comments on the beauty of Chopper's attack. He then goes into a frenzy, saying he can no longer hold back and starts attacking Chopper. He kicks the weakened reindeer, who realizes his strength is completely drained.
+
+Chopper has a flashback. He is lying in a bed injured. Kureha is asking him what he did to himself and Chopper says he cannot remember. Kureha tells him he will not be able to get out of trouble just because he does not remember, saying he is lucky no one got killed. Everyone in the country is distressed about the night Chopper cannot remember, and Kureha asks him what he is going to do about it. Kureha goes on to say that he almost destroyed an entire village. She tells him that she does not mind if he likes to experiment like Hiriluk, but things need to be done after careful consideration. She then asks him why he had to inherit everything from Hiriluk, including the ability to frighten people. Chopper apologizes to Kureha, promising he will not ever do it again, begging her not to kick him out of the castle. Kureha tells him not to be silly and to rest, as she cannot go shopping if he does not heal. Chopper fades back into reality as Kureha says that last line.
+
+Kumadori binds Chopper with Life Return: Kami Shibari. He then tells him not to cry, for if he does, his manliness would cry also. Chopper realizes Kumadori is going to kill him. Kumadori then recites a poem about cruel fate. He then uses Yana Gin Jo on Chopper. At the last second, Chopper remembers he has to save Robin, transforming from his large form into his normal, small form. He escapes Kumadori's hair binds and avoids getting hit with the staff. Chopper eats a third Rumble Ball, saying if he is going to die, then he might as well do it, hoping no one enters the room. Chopper transform and is now several times larger than Kumadori. Chopper remembers what he told Kureha during the flashback. He ate three Rumble Balls, then he lost consciousness. Kureha interrupts him, saying that one could call it a Devil Fruit going crazy, telling him never to do that again. She tells him that his power can destroy friends and enemies alike and takes a toll on his body. It was as if he had become a real monster.
+
+The scene changes to outside the courthouse, where Franky is lying on the ground. Franky is saying that he took longer than expected with his fight. He shrugs it off because he got Fukurou's key, Key 4. He then remembers that Zoro and Sogeking needed Key 2 and Kumadori has Key 3. He reasons that Kalifa must be the one who has key 2.
+
+The scene changes to a bath, where Kalifa is playing with the bubbles. Nami is lying by a large dent in the wall, having trouble getting up. Kalifa teases her, saying she thought Nami did not have very much time, or maybe she misheard. Nami tells Kalifa not to make fun of her, as she will not her. Kalifa then invites Nami to come and get her, saying there is no need to wait since their battle started a long time ago. Nami tells her that she is amazed to see a Devil Fruit user bathing in front of an enemy, since she should be powerless with half of her body immersed in water. Kalifa asks if Nami is trying to point out a flaw in her defense, saying that Nami is just as powerless as she is. Kalifa then asks Nami to excuse her for a moment. She goes behind a screen to dry herself off and change into her clothes. Nami asks what she did to her.
+
+Kalifa teasingly replies that solving that kind of mystery comes with the fun of fighting Devil Fruit users. Nami remembers how Sanji had become all rounded and shiny, realizing she needs to be careful or else she would have intervened for nothing. She then realizes that she is regaining her strength. Nami tells Kalifa that she will show her the true power of her Clima-Tact and that she should not be dismissed simply as "cute". She realizes she can move her legs again and gets up, using Thunder Charge, forming a ball of electricity on the end of the staff, then using Swing Arm, twirling the staff at a joint, launching the electricity at Kalifa.
+
+Kalifa does not seem hurt by it at all, though she does comment on how amazing the weapon is. Nami then uses Thunder Ball, launching another ball of lightning, this time at the ceiling, where a storm cloud had formed. Kalifa seems confused by the cloud and Nami tells her she wasn't lying around doing nothing. The chapter ends with Nami discharging the cloud, calling it Thunderbolt Tempo, causing a large bolt of lightning to hit the ground near Kalifa.
+
+## Characters
+
+Pirate, World Government, Bounty Hunter, Baroque Works, Straw Hat Pirates, Nami, Sanji, Tony Tony Chopper, Nico Robin, CP9, Kalifa, Fukurou, Kumadori, Franky Family, Franky, Babe, Gem, Mikita, Lassoo, Drum Island, Kureha

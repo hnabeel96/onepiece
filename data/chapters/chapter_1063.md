@@ -1,0 +1,58 @@
+# Chapter 1063: My Only Family
+
+Volume: 105  |  Arc: Egghead Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_1063 (CC-BY-SA)
+
+## Cover page
+
+Germa 66's Ahh... An Emotionless Excursion, Vol. 21: "Pudding's been abducted!!"
+
+Cracker is among those trapped in ice. Brûlée cries over Pudding having been kidnapped.
+
+## Short summary
+
+After finishing their meal, Atlas leaves Luffy's group, and Luffy finds a machine allowing his group to change their clothes. However, when a Pacifista resembling Bartholomew Kuma shows up, Bonney prevents Luffy from attacking, confirming to the others that Kuma is her father due to him being her only family. Meanwhile, the Blackbeard Pirates attack the Heart Pirates to obtain the Road Poneglyph etchings the Heart Pirates have. During the attack, the officers that Blackbeard brought with him are revealed to now have Devil Fruit powers. After landing on a nearby island, Law prepares to face Blackbeard with the etchings as the prize.
+
+## Long summary
+
+Bonney, Luffy, and Chopper finally finish stuffing themselves, with Atlas commenting on how huge everyone is now (though Jinbe points out that he was always rather large). A mechanical dog called the "Recycle-Wan" starts eating up the trash as Atlas goes back to work.
+
+After she leaves, the group notices some other people walking around, and Bonney assumes they are assistants of some kind. Jinbe asks why they are appearing now since the whole place was empty just a minute ago, but his attention is turned to Luffy, whose outfit has now changed into something similar to what Atlas and the others are wearing. Luffy remarks on how good the clothes feel as Bonney asks where he got them, to which Luffy shows her another one of Dr. Vegapunk's inventions, which generates clothes.
+
+Bonney uses it and changes hers to a battle uniform of some kind. Chopper changes into something similar while Jinbe dons a tropical shirt. Just as Bonney is about to part ways with the Straw Hats, Luffy sees what he thinks is Bartholomew Kuma coming towards them wearing a police outfit. The Pacifista charges the group and attacks them, stating that they have actually stolen those clothes. The group gets out of the way as Luffy decides to fight back. Just as he is about to attack the Pacifista, Bonney stops him and tells the three that Kuma is her father and the only family she has left. The Straw Hats are left shocked by this revelation as Bonney continues to plead with them to not hurt her father, but just as the Pacifista is about to fire on her, Luffy charges at her telling her, that that is not the real Kuma, as the Pacifista blows open a hole on the island.
+
+Meanwhile, in a certain sea in the New World, the Blackbeard Pirates have ambushed the Heart Pirates. The Polar Tang starts taking on water as Law tries to find a place for him and his crew to escape. All of a sudden, Law turns into a woman. And soon, the rest of his crew start turning too. As everyone tries to get a grip on the situation, the ship surfaces, and Law turns back to normal, having learned from his fight with Kaidou and Big Mom that any Devil Fruit power can be overwhelmed by a great deal of Haki, which he used on himself.
+
+As the crew reaches land, the doctor of the Blackbeard Pirates, Doc Q, comments on how Law was able to nullify his Feminization Disease he infected the crew with. As it turns out, Doc Q had eaten the Shiku Shiku no Mi, which allows him to craft and spread any kind of sickness. Also, with him were Van Augur and Jesus Burgess, both of whom consumed Devil Fruits as well; the Wapu Wapu no Mi for Augur, which allows him to teleport people, and the Riki Riki no Mi for Burgess, which gives him inhuman levels of strength. Augur warps Burgess to the island, where the latter picks up a mountain to throw at the Heart Pirates. Law manages to destroy it as Blackbeard comes flying in on Doc Q and his horse Stronger, which had consumed the Uma Uma no Mi, Model: Pegasus, a Mythical Zoan fruit that gives Stronger wings.
+
+Blackbeard greets Law as the latter demands to know what the former wants. Blackbeard states that he knew one of the three of them would end up on this particular island after leaving Wano, but he was not sure who. He tells Law that he suspects Law claimed Kaidou's Road Poneglyph and that he plans on claiming Law's Poneglyph copies for himself. Law accepts Blackbeard's challenge, saying the winner takes all.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*Atlas leaves Luffy's group.
+*Luffy finds a machine which allows his group to change their clothes.
+*After exploring the area, Luffy's group is confronted by a Pacifista resembling Kuma, working as law enforcement, which attacks them as it is turned out that the foods and the clothes are not for free.
+**Bonney stops Luffy from fighting due to its resemblance to Kuma, breaking down in tears, as the Pacifista continues its attack.
+***This causes Luffy's group to realize that Kuma is Bonney's father.
+*Elsewhere, the Blackbeard Pirates attack the Heart Pirates, their target is the Road Poneglyph etchings that the Heart Pirates have.
+**The Polar Tang is badly damaged as a result of the attack.
+*Jesus Burgess, Van Augur, Doc Q, and Stronger now have Devil Fruit powers, with the latter three making their first appearance since the timeskip.
+**Burgess now has the Riki Riki no Mi that grants him additional superhuman strength.
+**Augur now has the Wapu Wapu no Mi that gives him teleportation powers.
+**Doc Q now has the Shiku Shiku no Mi that causes him to infect people with diseases.
+***He uses this power to temporarily gender-swap the Heart Pirates.
+****Law reveals that after his fights with Big Mom and Kaidou, he has learned that if one possesses Haki that is powerful enough, then it can reverse the effects of Devil Fruit powers, which is used to nullify the effects of Doc Q's attack.
+**Stronger now has the Uma Uma no Mi, Model: Pegasus, granting him the power of flight.
+*After arriving at a nearby island, Law prepares to face off against Blackbeard, with the Road Poneglyph etchings as the reward.
+
+## Characters
+*Atlas' outfit error from the previous chapter has been fixed.
+*Bartholomew Kuma's hairstyle is incorrectly depicted without his bear ears.
+*Law's appearance under the effect of Doc Q's Feminization Disease is identical to his gender swapped appearance under the effect of Horu Horu no Mi drawing from SBS Volume 72.
+
+## Characters
+
+Pirate, World Government, Straw Hat Pirates, Monkey D. Luffy, Tony Tony Chopper, Jinbe, Bonney Pirates, Jewelry Bonney, Bartholomew Kuma, Big Mom Pirates, Charlotte Brûlée, Charlotte Cracker, Charlotte Pudding, Heart Pirates, Trafalgar D. Water Law, Bepo, Penguin, Shachi, Jean Bart, Ikkaku, Uni, Clione, Blackbeard Pirates, Marshall D. Teach, Jesus Burgess, Van Augur, Doc Q, Stronger, SSG, Vegapunk/Atlas

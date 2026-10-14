@@ -1,0 +1,44 @@
+# Chapter 885: It's Brûlée!!!
+
+Volume: 88  |  Arc: Whole Cake Island Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_885 (CC-BY-SA)
+
+## Cover page
+
+The Stories of the Self-Proclaimed Straw Hat Grand Fleet Vol. 19: Ideo Arc - "Anchoring the Ship on a Deserted Island... Let's Make a Ship Using All of the Parts That Haven't Been Destroyed!!"
+
+The XXX Gym Martial Arts Alliance use the ships' wreckage and crews to customize their own ship.
+
+## Short summary
+
+Luffy runs out of time in Gear 4, so he retreats from his battle with Katakuri and escapes the Mirro-World while holding Brûlée captive. They end up on Nuts Island, where Big Mom is rampaging. Perospero and Amande notice Luffy and Perospero has Big Mom attack him as they pursue the Straw Hat.
+
+Meanwhile, the Big Mom Pirates assemble to go after their enemies. On Cacao Island, Sanji finishes his secret ingredient, whipped simsim cream, which can nearly kill people with deliciousness. With the core pieces of the cake made, the group on Cacao Island prepares to head out.
+
+## Long summary
+
+Luffy is upset that he lost the advantage against Katakuri and launches a Kong Gun at him, but it gets deflected. Katakuri launches an attack of his own which knocks Luffy back and bouncing against the wall. The Sweet Commander proclaims that the only thing he's proved is that as long as he stays calm, Luffy will not be able to defeat him. Angry, Luffy confidently states that he'll find another weakness. When Katakuri notes that Luffy will be shriveling up, Luffy realizes that his Gear 4 will wear out soon. He then retreats from the battle, but Katakuri refuses to let Luffy go and chases after him. Luffy's Gear 4 deactivates, but he continues to flee. Just then, Luffy finds Brûlée sitting close to a nearby mirror. Luffy then grabs her and jumps through a mirror. Katakuri tries to catch Luffy but fails.
+
+Unfortunately, the place where Luffy escapes to is Nuts Island and he stares ahead as Big Mom continues to search for wedding cake. Both Charlotte Perospero and Charlotte Amande try to dissuade her from destroying the island, but both are ignored as she tears the city apart. Perospero then notices Luffy and informs Big Mom, who now shifts her attention to both him and Brûlée. Perospero tries to stop Luffy, who is still holding Brûlée captive, from escaping with a Candy Wall and Luffy tries to break it with a Gigant Pistol, but it has no effect. Amande then tries to attack Luffy, but he dodges the strike and jumps over the wall. Luffy continues to run from Big Mom and Perospero.
+
+Aboard the Thousand Sunny, Nami and Jinbe continue to scout the unnaturally calm sea. Nami theorizes that they must regroup with Sanji and the others to avoid being faced with Big Mom's unbridled fury. Elsewhere on the sea, the Big Mom Pirates have assembled with the Queen Mama Chanter and a fleet of Tarteships. Charlotte Mont-d'Or rallies them to go after the Straw Hats, the Fire Tank Pirates, and the Sun Pirates who are trying to flee the archipelago. He orders them all to be sunk on sight immediately.
+
+At Cacao Island, one of the chefs faints from the sweetness of Sanji's secret ingredient, the whipped simsim cream. Charlotte Pudding wants to try it too, but Sanji says that they will need it for the cake. Chiffon informs them that the cake is finished baking, and both the whipped cream and Pudding's chocolate are ready too. Noting that they are running on schedule, Sanji asks about the preparations to move the cake aboard a ship. After hearing that they are ready to set sail, Sanji tells them that they will add the finishing touches to the cake while rendezvousing with the Thousand Sunny.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*Luffy retreats from his battle with Katakuri to wait for his Haki to recharge.
+**He escapes the Mirro-World with Brûlée as his captive and arrives at Nuts Island where he is pursued by Big Mom.
+*Charlotte Amande is confirmed to be a member of the Charlotte Family, something previously only mentioned in SBS Volume 87.
+*Big Mom’s fleet has assembled to chase after the Straw Hat Pirates, the Fire Tank Pirates, and the Sun Pirates.
+*Sanji and the chefs finish baking the cake.
+**They prepare to set sail and add the finishing touches to the cake while on the way to the Thousand Sunny.
+
+## Characters
+
+## Characters
+
+Pirate, Straw Hat Pirates, Monkey D. Luffy, Nami, Sanji, Sun Pirates, Jinbe, Fire Tank Pirates, Charlotte Chiffon, XXX Gym Martial Arts Alliance, Ideo, Blue Gilly, Abdullah, Jeet, Big Mom Pirates, Charlotte Linlin, Charlotte Katakuri, Charlotte Smoothie, Charlotte Perospero, Charlotte Daifuku, Charlotte Oven, Charlotte Mont-d'Or, Charlotte Compote, Charlotte Amande, Charlotte Brûlée, Charlotte Pudding, Charlotte Saint-Marc, Queen Mama Chanter, Napoleon, Totto Land, Buche

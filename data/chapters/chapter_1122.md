@@ -1,0 +1,44 @@
+# Chapter 1122: Time is Right
+
+Volume: 111  |  Arc: Egghead Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_1122 (CC-BY-SA)
+
+## Cover page
+
+Cover Page Request: "Redraw the artwork of Smoker a boy from Aichi Perfecture submitted 22 years ago".
+
+As a tribute to My Hero Academia's ending, this cover recreates fanart of Smoker made by its mangaka  in 2002, which was featured in the Usopp Gallery Pirates section of One Piece Volume 23. The left side of Smoker's jacket now reads "23 UGP", the smoke reads "My Hero Academia" instead of "One Piece", the text "白猟のスモーカー" is removed, and Smoker's post-timeskip appearance is used instead of pre-timeskip.
+
+## Short summary
+
+As more people react to Dr. Vegapunk's statement of the One Piece, Blackbeard agrees to meet Caribou to hear what he has to say, while the attack on the Iron Giant ends the transmission permanently. As the Iron Giant comments about Joy Boy still being alive, after Luffy corrects him and gives him his name, the Iron Giant asks him not to die as he releases a massive Haki attack which sends the Elders (minus Saturn) back to Mary Geoise, allowing the Thousand Sunny to land safely on the sea. A flashback occurs to when Joy Boy tells Emet to use that Haki he implanted him with when the time is right.
+
+## Long summary
+
+Everyone is shocked by Dr. Vegapunk’s claim that the fate of the world rests on pirates, while several people become worried their country will sink. Pirates across the world, on the other hand, are stoked to hear that the One Piece is real and want to claim it, while the Marines are outraged by Dr. Vegapunk’s words. Koby thinks back to when Luffy first told him his dream and that he wants to find the One Piece, with Koby thinking Luffy would make the entire world bow to him. As such, he declares in the present that he cannot let him achieve his dream. As for Cross Guild, Buggy continues inspiring his men by saying they will make the world “ours”, while Devon contacts Blackbeard asking what to do with Caribou. Blackbeard says he will hear Caribou out and if the information he has does not impress him, he will kill him himself.
+
+On Egghead, Warcury damages Emet again, and this time he destroys the Broadcast Den Den Mushi, ending Dr. Vegapunk’s message for good. The Straw Hats are still falling through the air with Nusjuro, who has fully recovered, hot on their tails. As for Emet, he apologizes to Joy Boy once again and apologizes to Luffy as well for mistaking him for the former earlier. He hopes Joy Boy will forgive him for failing to make him the king as he asks for Luffy’s name. Luffy introduces himself and after hearing his name, Emet undos a knot in his body while thanking Luffy for letting him hear the Drums of Liberation one last time. He declares he will not let him die as a massively powerful blast of Haki is unleashed from Emet's body, knocking out most of the Marines. It was so strong that the Five Elders were forcefully revered to their human forms before Warcury, Nusjuro, and Peter were sent back to the Room of Authority in Mary Geoise, where Mars is shown to be as well. Even Imu nearly collapses from the intensity, while cursing Joy Boy’s name.
+
+The Thousand Sunny finally lands on the water as Saturn, the only Elder left on Egghead, stares at Emet. Emet recalls a conversation he had with Joy Boy centuries ago, where its revealed that the blast of Haki was unleashed from the knot inside Emet's body, which was created and sealed inside him by Joy Boy. Joy Boy told Emet that he knew he would die before him, so when Emet is in mortal danger or there is someone he wants to save, he must untie the knot and release the Haki. Emet is delighted to hear that even after Joy Boy has passed on, a part of Joy Boy would still remain with him. As Emet begins to power down, he reminisces about them laughing over how this "danger" wouldn't happen for ages, ending with him wondering whether he would be lonely by then as he returns to his slumber.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*Blackbeard intends to meet with Caribou and hear the information he has for him.
+*Vegapunk's broadcast is interrupted for good due to the Livestream Den Den Mushi getting destroyed by Warcury.
+*The Thousand Sunny lands at sea.
+*Koby decides he has to stop Luffy from finding the One Piece.
+*Over 800 years ago, Joy Boy gifted Emet with a portion of his own Supreme King Haki, compressed within a knot, to use in case of an emergency.
+**This marks the first time a part of the Void Century being shown.
+**Emet unties the knot to release Joy Boy's Haki, dispelling the Five Elders' transformations and transporting them back to the Room of Authority at Mary Geoise.
+***Mars had somehow returned to the Room of Authority prior to Emet's attack.
+***Saturn is the only Elder to still remain at Egghead.
+**Imu reacts in pain to Joy Boy's Haki.
+
+## Characters
+
+## Characters
+
+Pirate, World Government, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Nami, Usopp, Sanji, Tony Tony Chopper, Jinbe, Giant Warrior Pirates, Dorry, Brogy, Endurance Curry Pirates, Hippie, Scimitarta, Hiro Gomon, Mokuba, Cross Guild, Buggy, Crocodile, Dracule Mihawk, Blackbeard Pirates, Marshall D. Teach, Van Augur, Catarina Devon, Caribou Pirates, Caribou, Nerona Imu, Five Elders, Jaygarcia Saturn, Marcus Mars, Topman Warcury, Ethanbaron V. Nusjuro, Shepherd Ju Peter, Marines, Stainless, Smoker, Doll, Pomsky, SWORD, Prince Grus, Koby, Hibari, Egghead, Vegapunk, Emet, Joy Boy

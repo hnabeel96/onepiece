@@ -1,0 +1,66 @@
+# Chapter 1054: Flame Emperor
+
+Volume: 104  |  Arc: Wano Country Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_1054 (CC-BY-SA)
+
+## Cover page
+
+Color Spread: The new Four Emperors of the Sea.
+
+## Short summary
+
+While the Nine Red Scabbards, Yamato, and Momonosuke work to prevent Ryokugyu from reaching the Straw Hat Pirates, nearby Shanks after reminiscing decides not to reunite with Luffy and decides to go after Bartolomeo. Meanwhile, as Sabo gains a bounty for the alleged recent murder of Nefertari Cobra, Sakazuki discusses the recent events in a meeting and vows to drive all the opposing forces into the depths of the sea.
+
+## Long summary
+
+As Ryokugyu continues walking towards the Flower Capital, he says that having the ability to sway others is not something one can see often. However, he gets stopped by Denjiro, Inuarashi, Nekomamushi, Shinobu, Raizo, and Kawamatsu, all of whom Ryokugyu demands step aside. Raizo and Denjiro deduce that Ryokugyu is a Marine and is therefore Luffy's enemy, but Ryokugyu attacks everyone with his Devil Fruit powers, as he had consumed the Logia-type Mori Mori no Mi, and is therefore, a Forest Man.
+
+While attacking, Ryokugyu tells the samurai that the World Nobles are gods, and a country that has no ties to the World Government, such as Wano, has no rights. He also tells them that humanity has only advanced so far because they enforce hierarchies, and non-affiliated countries have to be put in their place in order to keep the peace, because according to him, prejudice breeds stability. As the six of them try to defend themselves, Ryokugyu announces that he will kill as many citizens of Wano as it takes to capture Luffy, since killing non-affiliated people is not a crime in his book.
+
+Yamato then arrives on the scene and angrily slams Ryokugyu’s head into the ground, telling him that everything he just said makes him sick. Ryokugyu recovers and Yamato tells him that he will not let him spoil the people of Wano’s newfound freedom after two decades. Ryokugyu, however, simply asks who he is, and Yamato introduces himself as Kaidou's son, which shocks the Admiral. Momonosuke then arrives in his dragon form and praises Yamato for his words, and he attempts to strike Ryokugyu by imitating Kaidou’s Bolo Breath, but nothing happens. Nevertheless, Momonosuke runs over to Ryokugyu and bites him, demanding he leave so he can continue to protect Wano from people like him. Ryokugyu, however, wraps his roots around Momonosuke to move him out of his way. Yamato tries to help but Momonosuke demands he stay out of the fight.
+
+Meanwhile, in the seas around Wano, the Red Hair Pirates are sailing outside of the country. Some of Shanks' officers tell him that they should go see Luffy, though Shanks is too busy reminiscing about the last time he saw Kouzuki Oden and his kids. As he looks at Luffy’s new wanted poster, he thinks back to when he and his crew raided the World Government ship that was transporting the Gomu Gomu no Mi, and after that the time he spent in Luffy’s village up to when he lost his left arm trying to save him. After he finishes reminiscing, he tells his crew that he is not going to meet Luffy in Wano, which shocks everyone. He reminds them that Bartolomeo made a mess recently in one of their territories by burning his flag and replacing it with Luffy’s and he wants to handle that situation. He does, though, tell Benn Beckman that it is time they make their move and claim the One Piece.
+
+At the Marine Headquarters in the New World, Fleet Admiral Sakazuki is told the World Government cannot ignore the Revolutionary Army anymore, and while Sakazuki knows this, there are no Marines left to deploy. The person he is talking to, Marine Criminal Affairs unit chief Kurouma (real name Tensei), tells him that Sabo has become legendary, because apparently, he assassinated Nefertari Cobra, the king of Arabasta and one of the descendants of the founding 20 from 800 years ago, which he thinks is a huge boon for the Revolutionary Army. On top of that, before Cobra was killed, he attacked Mary Geoise and destroyed the symbol of the World Nobles, which is practically a declaration of war. Despite Fujitora's and Ryokugyu’s best efforts, Sabo and the other Revolutionary Army leaders were able to rescue Bartholomew Kuma and escape. Kurouma says that the two Admirals were probably restricted from fighting in the Holy Land, but Sakazuki demands that he do not make any excuses for them.
+
+It is also revealed that Cobra’s daughter, Nefertari Vivi, disappeared too, and he is still investigating how Cobra’s death and her disappearance are connected. Sakazuki surmises that Arabasta is in chaos now, while Kizaru, who was also present, asks if they can close the case on the attempted murder of Saint Charlos. Kurouma, however, says that Saint Mjosgard excused the assailants and in the Holy Land, it falls to Knights of God to mediate conflicts, but Sakazuki tells him to leave them to it.
+
+Kurouma says that most of these incidents are linked to Sabo, whose "Flames of Rebellion" are spreading all over the globe, and that eight of the rebelling kingdoms were inspired to stage their coups while the kings were away. Now, people are calling Sabo a "god" or the "Flame Emperor", and whose influence is said to be even greater than Monkey D. Dragon's himself.  Kizaru also pointed out that on top of all that his little brother was now one of the Four Emperors. Sure, enough a revolutionary that was rallying the troops claimed that Sabo's influence could be felt even in the pirate world as his younger brother just upended their status quo and right now times are being forced to change. 
+
+Sakazuki remarks he became Fleet Admiral during a very intense era but asserts that if the Revolutionary Army rears its head at them, he will intend to strike back on all fronts.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*The Scabbards, Shinobu, Yamato and Momonosuke confront Ryokugyu outside the Flower Capital.
+**They have decided to keep this information a secret from the Straw Hat Pirates.
+**Ryokugyu reveals to have consumed the Mori Mori no Mi, a Logia-type Devil Fruit.
+**Ryokugyu attacks the samurai by transforming himself into a large tree-like being.
+**Ryokugyu manages to ensnare Momonosuke in dragon form with his ability.
+*The Red Hair Pirates are sailing around Wano's waters.
+**Shanks reminisces about the time he stole the Gomu Gomu no Mi from Who's-Who and CP9, and the time he spent with Luffy in Foosha Village.
+**It is revealed that Yasopp is aware of his son's involvement in the Straw Hat Pirates.
+**Shanks decides not to reunite with Luffy just yet, but instead decides to go after Bartolomeo, who has been ravaging their territory.
+**Shanks also decides to go after the One Piece.
+*Sakazuki and Borsalino discuss recent events with another marine official Tensei.
+**Nefertari Cobra was apparently assassinated by Sabo.
+**Vivi has disappeared.
+**The Revolutionary Army have successfully freed Bartholomew Kuma from slavery.
+**The Revolutionary Army destroyed the Hoof of the Soaring Dragon at the city's entrance as a declaration of war.
+**Charlos was a victim of a failed assassination attempt from an unknown assailant .
+***Donquixote Mjosgard seemingly assisted Charlos' attacker in escaping.
+***The World Nobles are currently deliberating Mjosgard's actions.
+***Sakazuki mentions a group known as Knights of God have jurisdiction on Mary Geoise to mediate disputes.
+*As a result of the Revolutionary Army's actions in Mary Geoise, Sabo has gained massive global influence and is now known as the "Flame Emperor".
+**Revolutionary soldiers start rallying around a large picture of Sabo's bounty poster.
+
+## Characters
+*This chapter was released with the sixth and final chapter of Shokugeki no Sanji.
+*This is one of the few non-flashback chapters to feature no physical appearance of any Straw Hat Pirate and only features one on images or in a small flashback.
+*In the chapter, Shanks is seen drinking liquor labelled . This may be a reference to Ludwig van Beethoven's Symphony No. 5, Op. 67, named "Fate" or "Destiny".
+
+## Characters
+
+Pirate, Marines, World Government, Revolutionary Army, Straw Hat Pirates, Monkey D. Luffy, Buggy Pirates, Buggy, Blackbeard Pirates, Marshall D. Teach, Red Hair Pirates, Shanks, Benn Beckman, Lucky Roux, Yasopp, Limejuice, Bonk Punch, Monster, Hongo, Gab, Yamato, Sakazuki, Admiral, Borsalino, Issho, Aramaki, Tensei, Wano Country, Kouzuki Momonosuke, Denjiro, Raizo, Kawamatsu, Shinobu, Mokomo Dukedom, Inuarashi, Nekomamushi, Arabasta Kingdom, Nefertari Cobra, Nefertari Vivi, World Noble, Donquixote Mjosgard, CP9, Who's-Who, Sabo, Karasu, Morley, Lindbergh, Bartholomew Kuma, Lord of the Coast

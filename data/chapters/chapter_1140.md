@@ -1,0 +1,47 @@
+# Chapter 1140: Scopper Gaban
+
+Volume: 112  |  Arc: Elbaph Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_1140 (CC-BY-SA)
+
+## Cover page
+
+Oni Child Yamato's Golden Harvest Surrogate Pilgrimage, Vol. 26: "Ulti: 'If anything happens to Pay-Pay, I'll hunt you to the depths of hell and beat you to death'"
+
+## Short summary
+
+Gaban and Luffy engage in battle with each other, but Gaban decides to surrender and let Luffy take the key to Loki's chains. Meanwhile, Shamrock and Gunko arrive near the Walrus School and plan to capture the giant children, with the assistance of two more members of the Knights of God: Sommers and Killingham.
+
+## Long summary
+
+Luffy asks Gaban why he needs to fight him for the key and insists he just give it up, while Road is confused regarding his reason for doing so. Gaban simply taunts Luffy by asking if he cannot do it, and that persuades him to jump off Road's hands to challenge him. He tries to grab the key from Gaban's hands, but Gaban swiftly dodges him multiple times. Luffy tells Gaban he just wants to free Loki so he can return to the feast, but Gaban just tells him to take it then. When Luffy tries to grab it, Gaban jumps into the air and coats the key with Haki before bringing it down on Luffy, which damages him to everyone's shock.
+
+Luffy emerges from the rubble, now enraged, and Gaban notices Luffy's straw hat, which he says looks better on him than the helmet he has. Luffy tells Gaban that the hat is a treasure he is holding onto for Shanks, but hearing that prompts Gaban to call Shanks a cheapskate for not truly giving Luffy the hat. Luffy becomes enraged by that comment and ignorantly tells Gaban not to talk bad about Shanks when he does not even know him. This causes Gaban to shove the key into Luffy's mouth and shove him into a wall. Gaban then bradishes his axes and performs an attack called Yasotakeru, unleashing a flurry of axe strikes. Sensing the danger, Zoro jumps to Luffy's aid, using his swords to block the attack, which destroys part of the castle. Seeing Zoro come to Luffy's aid has Gaban think he found a good crew.
+
+Following that, Luffy goes into Gear Fifth as both he and Zoro prepare to fight him. However, Gaban announces he yields, causing Luffy and Zoro to crash. The both of them angrily demand he take this fight seriously, but Gaban says that the key is now in their possession, since it was now on the ground next to him. Road tries to tell Luffy who Gaban really is, but the latter asks him not to be too hasty. As Gaban leaves, he tells Luffy that if Elbaph is still intact, by the time they leave, they should visit him. However, Luffy and Zoro angrily refuse. As he leaves, Gaban thinks back to when Shanks spoke to him about Luffy, and Gaban asks why he should trust him, prompting Shanks to tell him to do as he pleases then.
+
+At the Walrus School, some of the kids notice a weird-looking bird, but Ange does not see it. What the kids actually saw was the bird-looking construct Gunko made for her and Shamrock to land on the tree's branches. Once they do, Gunko creates the Magic Circle, but instead of summoning one of the Knights of God, she ends up summoning two: Saint Sommers of the Shepherd Family and Saint Killingham of the Rimoshifu Family. Interestingly, neither of them were expecting to be summoned as Sommers was still in his underwear talking about the food shortage, while Killingham was in a rush to be somewhere as he is late. The two finally realize they have been summoned to Elbaph.
+
+While Sommers gets dressed, Shamrock asks why two were summoned when he just asked for one, and Killingham tells him it is because he is being summoned back to Mary Geoise as everything had been falling apart since the Levely. Sommers asks Shamrock what he is even doing here and if he was paying Harald's grave a visit, but Shamrock explains the situation to the both of them. Sommers says that they will not be able to stuff kids they take in a bag, while Killingham says those without the mark cannot travel through the "Abyss", meaning they will need to move them by ship. Shamrock, however, evilly tells the two of them that with their abilities, they can make a game out of kidnapping the children.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*Gaban fights against Luffy but eventually surrenders and lets him take the key to Loki's chains.
+**As Gaban surrenders the key, Road tries to reveal his identity to Luffy's group, but Gaban stops him for now.
+**Gaban invites Luffy to come see him again after Elbaph is "safe".
+**As he leaves, Gaban thinks back to Shanks telling him about Luffy, and encouraging Gaban to trust the boy.
+*Shamrock and Gunko arrive at the Sun World overlooking the Walrus School.
+*Gunko manifests a Magic Circle to summon reinforcements.
+**Saint Shepherd Sommers and Saint Rimoshifu Killingham of the Knights of God appear in Elbaph. Killingham appears to be an Awakened Mythical Zoan user.
+**Killingham informs Shamrock that he has been ordered back to Mary Geoise.
+**Shamrock orders Sommers, Killingham, and Gunko to kidnap as many of the Giant children as possible and return them to Mary Geoise.
+**Killingham laments that without the "mark", they cannot bring the giants through the "Abyss", so they must be transported by boat.
+**Shamrock suggests for them to make a "game" out of it.
+
+## Characters
+
+## Characters
+
+Pirate, World Government, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Nami, New Giant Warrior Pirates, Road, Red Hair Pirates, Shanks, Beasts Pirates, Who's-Who, Ulti, Page One, Elbaph, Scopper Gaban, Colon, Ange, Ylva, Olav, Knights of God, Figarland Shamrock, Manmayer Gunko, Shepherd Sommers, Rimoshifu Killingham

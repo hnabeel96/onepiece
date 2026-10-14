@@ -1,0 +1,60 @@
+# Chapter 1036: Bushido is the Way of Death
+
+Volume: 103  |  Arc: Wano Country Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_1036 (CC-BY-SA)
+
+## Cover page
+
+Color Spread: The Straw Hats on snowy rooftops of a frozen sunken town with a tiger in the background (likely referring to 2022 being the year of the tiger).
+
+## Short summary
+
+As King falls defeated, he recalls a time shortly after meeting Kaidou when the latter learned that King thought he might be Joy Boy. CP0 soon hears that all the All-Stars have been defeated in addition to the Tobiroppo.
+
+Meanwhile, Yamato has Fuga break into the gate to the armory, attacking the guard Rokki in the process, and he rushes in while Fuga fights Rokki. Elsewhere, Izou arrives at the first-floor crawlspace where Usopp is being overwhelmed protecting Kin'emon and Kikunojo, allowing Usopp to take himself and the two samurai to a safer area. Raizo and Fukurokuju have cast "paralysis jutsu" on each other and try to see who will be the first to release it due to the enroaching flames around them. Apoo and Inbi continue to run as the CP0 agents defeat Drake and Zanki, and the agents note that although Kaidou and Big Mom being active still makes the alliance's chance of victory minuscule, they may need to prepare a contingency in case such an event were to happen. As this goes on, Luffy and Kaidou continue battling on equal ground.
+
+## Long summary
+
+As King falls after getting slashed by Zoro, he thinks back to when he told Kaidou he believed he was “Joy Boy” and how he asked him to keep being the strongest while he himself makes sure he never loses until he becomes the Pirate King, though this is before he falls unconscious as he falls off the island. Meanwhile, Zoro reminisces on the moment where he promises to Luffy that he until he defeats Mihawk, he will never lose to anyone again. He also declares that if it is what it takes to keep from losing, he shall become the “King of Hell”. He then uses the force from his swords to launch himself back onto the island before also passing out from exhaustion.
+
+A flying Mary relays the information to the Mary with the CP0 agent Joseph, who reacts with surprise that all three All Stars and all members of the Tobiroppo have fallen, but he says those victories are meaningless unless Kaidou and Big Mom are defeated. As the events unfold though, it is shown that if Luffy does defeat Kaidou, the flame clouds holding up Onigashima will dissipate and the island will crash onto the Flower Capital and blow up from the gunpowder cache. The people are still blissfully unaware of this transpiring as Momonosuke continues to try to pull the island away. The other problem is that Kanjuro's Kazenbo is making its way to the gunpowder cache and threatens to blow the island up in the air. Thankfully, Yamato has finally reached the cache first, but as he expected, the last of the Numbers, Rokki, is standing guard at the gate. Yamato knew he did not have the time to get the key from him, so he tells Fuga to knock him down, which he does, pushing down the gate and allowing Yamato to pass. He thanks Fuga and asks him to keep Rokki busy, which Fuga does.
+
+Up in the attic between the first and second floors, Usopp has found Kin'emon and Kikunojo, but is under heavy assault from the Beasts Pirates. Both samurai plead with Usopp to abandon them, but Usopp refuses. He tells the two of them that he could never understand the samurai's obsession with honor and dying with it, saying that he himself will fight for his life no matter how pathetic he may look, and that it is not just fighting the raid they have to do, it is live too. The samurai are touched and take this to heart, and at that point, Usopp was getting overwhelmed. Thankfully, he is rescued by Izou, who commends his words. He shows off the mark of the Kouzuki Family on his back as he tells the two samurai to keep believing in Luffy and live on. Usopp and Hamlet pick up Kin'emon and Kikunojo and run off to get them medical aid.
+
+On the third floor, both Raizo and Fukurokuju have trapped themselves in each other's binding techniques. Raizo, however, has caught fire, but he refuses to give in. In the Treasure Repository, Orochi continues listening to "Komurasaki"'s song while waiting for Fukurokuju to show up, and in the second basement, Scratchmen Apoo is fleeing with Inbi, as both Zanki and X Drake have been defeated by the CP0 agents. Joseph contacts them and asks for a status update on the capture of Nico Robin before informing them of the All-Star's defeats and that they need to flee the island quickly. The agent also says that while the chances of the alliance winning are still slim, they need to be prepared for if they win, because that will direct where the world goes afterwards. Meanwhile, Sanji is being treated by an unknown person, and Killer and Bepo are continuing to fight off the Beasts Pirates.
+
+On top of the Skull Dome, Luffy and Kaidou continue to fight, and while Luffy is struck by Kaidou's club, he manages to sock him with Gomu Gomu no Roc Gun. Both fall to the ground and get back up laughing, as they both confess they are having a lot of fun.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*Zoro defeats King.
+**King reminisces about how he once thought that Kaidou would become Joy Boy.
+**Zoro pushes himself back onto Onigashima and falls unconscious while King falls from the island.
+**The outcome of the fight is seen by a bird-gifter mary, who reports it to CP0.
+*Law and Kid's fight against Big Mom continues.
+*Momonosuke continues to pull Onigashima away from the Flower Capital.
+*Both Yamato and Kazenbo continue their respective paths to the basement.
+**Yamato reaches the first basement door, which is guarded by Rokki of the Numbers.
+**Fuga attacks Rokki, allowing Yamato to pass.
+*Usopp protects the immobile Kin'emon and Kikunojo from the Beasts Pirates.
+**Usopp is overwhelmed until Izou arrives, allowing him and Hamlet to escape with Kin'emon and Kikunojo.
+*The fight between Raizo and Fukurokuju continues.
+**They are both immobilized by a mutual paralysis Ninjutsu, while Raizo's nio-dasuki catches fire.
+*The fight on the second basement floor continues.
+**Apoo and Inbi escape the battle.
+**Zanki and Drake were defeated by CP0.
+**According to one of the CP0 agents, the world is currently in turmoil and a defeat of the two Emperors would massively aggravate the situation.
+*Sanji is still unconscious, and he is treated by an unknown person.
+**Sanji's left eyebrow seems to have returned to normal.
+*Killer and Bepo continue fighting the Beasts Pirates.
+*The fight between Luffy and Kaidou continues.
+
+## Characters
+*This chapter was released with the fifth chapter of Shokugeki no Sanji.
+
+## Characters
+
+Pirates, Marines, World Government, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Nami, Usopp, Sanji, Tony Tony Chopper, Nico Robin, Franky, Brook, Jinbe, Heart Pirates, Trafalgar D. Water Law, Bepo, Shachi, Kid Pirates, Eustass Kid, Killer, Beasts Pirates, Kaidou, King, Inbi, Fuga, Zanki, Rokki, Hamlet, Big Mom Pirates, Charlotte Linlin, On Air Pirates, Scratchmen Apoo, Whitebeard Pirates, Izou, Yamato, SWORD, X Drake, CP0, Joseph, Maha, Guernika, Wano Country, Kouzuki Momonosuke, Kouzuki Hiyori, Kin'emon, Kikunojo, Raizo, Kurozumi Orochi, Fukurokuju, Kazenbo

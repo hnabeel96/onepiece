@@ -1,0 +1,57 @@
+# Chapter 846: Tamago Security
+
+Arc: Whole Cake Island Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_846 (CC-BY-SA)
+
+## Cover page
+
+Cover page request: O: 'What's your favorite animal?' S: 'I like rabbits.' "Please draw a picture of the rabbits M. S.-san love so much." - Tokyo Metropolis PN. Eiichiro Oda (O: Oda, S: Shimabukuro)
+
+A tribute to Toriko's ending, Oda leaves subtle clues to pay homage to Toriko and its author Mitsutoshi Shimabukuro. The 3 (San) and 9 (Kyu) translates to Thank You; the pig with the black stripes spell out the author's last name when translated; the small bird (kotori) is Toriko spelled backwards; and finally the M. S. is the author's initial.
+
+## Short summary
+
+Luffy and Nami are overwhelmed by the Big Mom Pirates' abilities, with Amande killing Kingbaum. The army discovers Lola's Vivre Card and confiscates it as they take the defeated pirates to Sweet City.
+
+Meanwhile, Sanji reaches an agreement with Big Mom for her to release his crewmates in exchange for him marrying Pudding with no resistance.
+
+Inside the Room of Treasure in the Whole Cake Chateau, Sweet Commander Charlotte Smoothie guards the three poneglyphs contained inside, one of which is the Road Poneglyph. Brook and Pedro are hiding in a storehouse nearby, and they decide for Pedro to provide a distraction in order to acquire the Road Poneglyph, which will be a once-in-a-lifetime chance for them.
+
+## Long summary
+
+In the outskirts of Sweet City, amidst the bodies of the Chess Soldiers, Galette holds Nami in place with a fluid substance. Galette expresses her surprise that Nami was able to summon a large lightning bolt, and Nami said that she could do it because of the thunderclouds made by Big Mom. Meanwhile, Amande pulls out her Famous Blade, Shirauo, on Kingbaum. The tree homie begs her to spare him, as he did not willingly betray Big Mom, but Amande slowly bisects him vertically. Kingbaum cries from the pain, and Amande states that she wants his death to have meaning by being as painful as possible. Meanwhile, Mont-d'Or stands on two levitating books, praising Luffy who can crush the army right after he defeated Cracker. As Luffy fights through more chess soldiers, Opera attacks him with a mass of cream, increasing its "sweetness" to burn Luffy's arm.
+
+Luffy activates Gear 3 and charges at Opera, but he suddenly finds himself inside another location, where nothing is orderly. Mont-d'Or then appears from a wall, revealing that Luffy is in the "World of Books". Luffy then sees Amande approaching Nami inside a cage, and Nami warns him to dodge. Suddenly, a book closes over Luffy's head, returning him to the real world, and Luffy is punched from both the back and the front by Charlotte Counter and Charlotte Cadenza. Luffy falls to the ground, and the two halves of Kingbaum fall as well. Amande then approaches Nami as she tears her dress, removing Lola's Vivre Card from her bra. Galette understands that this card was the reason the Straw Hats overpowered the Chess Soldiers and escaped from the Seducing Woods. Amande sees the word "Lola" on the card, and the Big Mom Pirates start worrying that the Straw Hats killed Lola to get the card. Nami tries to explain that Lola is their friend, but the Big Mom Pirates decide to report this to Big Mom, taking the captive Straw Hats with them. Luffy hangs onto the ground as he is pulled away, refusing to leave his spot, but Counter stomps on his head.
+
+In the Whole Cake Chateau, Big Mom agrees to a request Sanji made, shocking him. She agrees to let the Straw Hat Pirates leave the island alive as long as Sanji goes through the wedding without a fuss, saying that she is a reasonable woman. Sanji thanks Big Mom, and she reminds him of how much the Straw Hats have gone against her, though she is willing to forgive it as her top priority is overseeing the marriage and completing the alliance with Germa 66.
+
+Inside the Room of Treasure in the Whole Cake Chateau, Tamago oversees the three poneglyphs they had in possession, and reflects that of the approximate 30 that exist, there are only nine they need that will allow them to reach Laugh Tale and uncover the secrets of the world. Meanwhile, Sweet Commander Charlotte Smoothie squeezes another person, squeezing juice out of them and drinking it. Smoothie asks why increased protection from her is needed, but is willing to do it regardless. Tamago reveals that Pedro has returned for the first time in five years after Pekoms spared his life, and so now they must do all they can to protect their Road Poneglyph from him. Brook's detached soul listens from afar, and returns to the alcohol room nearby where he and Pedro are hiding. Brook reveals to Pedro that a Sweet Commander is guarding the poneglyphs, causing Pedro to grow worried about their rapidly decreasing chances of success. However, Brook replies that there is no way to leave and come back later with the entire crew, as they would most certainly be fought upon their return. Brook asks who Tamago's target was, and Pedro affirms that it is him. Brook then asks Pedro to be the bait in their operation, which is exactly what Pedro was thinking.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*Nami and Luffy are defeated and captured by Big Mom’s army.
+**Charlotte Galette has an ability that controls a fluid that can be used to bind her adversaries.
+**Charlotte Mont-d'Or has an ability related to books.
+**Charlotte Opera has an ability related to producing cream.
+**Lola's Vivre Card is taken away from Nami.
+*Amande's face is fully shown for the first time.
+**Amande owns a Famous Blade named "Shirauo".
+**She used Shirauo to bisect Kingbaum as a result of his unwilling betrayal to Big Mom.
+*Big Mom accepts Sanji’s request to let his friends leave Whole Cake Island.
+*Tamago has Big Mom's poneglyphs heavily guarded.
+**There are roughly 30 poneglyphs in the world and 9 of them reveal the truths of the world.
+**Big Mom possesses one more poneglyph other than her Road Poneglyph and the one delivered by Jinbe.
+*Sweet Commander Charlotte Smoothie is introduced.
+**She is Big Mom’s 14th daughter and her bounty is 932,000,000.
+*Pedro and Brook have infiltrated Big Mom’s castle.
+**Pedro plans to use himself as a decoy to give Brook a chance to carry out their plan.
+*Pedro used to be a pirate captain in the past.
+
+## Characters
+
+## Characters
+
+Pirate, Straw Hat Pirates, Monkey D. Luffy, Nami, Sanji, Tony Tony Chopper, Brook, Sun Pirates, Jinbe, Wadatsumi, Big Mom Pirates, Charlotte Linlin, Charlotte Smoothie, Charlotte Opera, Charlotte Counter, Charlotte Cadenza, Charlotte Cabaletta, Charlotte Mont-d'Or, Charlotte Raisin, Charlotte Mascarpone, Charlotte Decuplets, Charlotte Amande, Charlotte Galette, Charlotte Joscarpone, Charlotte Myukuru, Bobbin, Tamago, Napoleon, Kingbaum, Zou, Pedro

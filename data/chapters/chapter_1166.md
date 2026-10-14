@@ -1,0 +1,54 @@
+# Chapter 1166: New Stories
+
+Arc: Elbaph Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_1166 (CC-BY-SA)
+
+## Cover page
+
+Color Spread: Based on a request: "Yamato and Otama collecting fallen leaves and baking sweet potatoes with tanukis and foxes" by Naoyama finished the yardwork.
+
+## Short summary
+
+As God Valley begins sinking into the ocean, Garling kills Rocks while Gaban and Rayleigh escape with Roger and Garp. Later, the Roger Pirates discover an infant Shanks inside one of the treasure chests looted from the island. News of the Rocks Pirates' defeat spreads quickly, framing Garp as a hero, much to his frustration. Loki is completely devasted by news of Rocks' death. Garp visits Dragon in his jail cell, where the latter declares that he is quitting the Marines and tells his father he despises him. Harald, overwhelmed with shame and grief for abandoning Rocks to die for the sake of his mission of peace for Elbaph, travels to Marineford and tears off his horns as a symbol of his commitment to a peaceful future.
+
+## Long summary
+
+Roger and Garp's last attack knocks them out from exhaustion, but it did turn Rocks back to normal. Just as he wonders if he will leave this island alive after all, he sees Garling, Sommers and Maffey approaching him, and he realizes he is going to die. He mentally tells Roger and Garp to run because he does not want them to die alongside him, but he does thank them from the bottom of his heart for stopping his rampage. Garling then brings out his sword and stabs Rocks with it, ending his life for good. Fortunately, Rayleigh and Gaban were able to get Roger and Garp out of there, with both of them weakly asking what happened to Rocks, to which Rayleigh solemnly tells Roger that the Knights of God finished him off. God Valley ends up sinking beneath the waves and everyone goes their separate ways, with the narration revealing that the events of the incident were never truly recorded in the pages of history, but it did set off a chain of new stories to tell for years to come.
+
+On the Oro Jackson, Roger finally wakes up, which delights his crew as it means they can now check out all of the treasure they managed to grab. Though Roger was impressed, he started to hear crying sounds coming from one of them. When the crew check out the source, that is when they find baby Shanks. Elsewhere, all over the world, word spread about the Rocks Pirates' downfall and Rocks' death, but the story told by the World Government was heavily censored, mainly featuring the "exploits" of Garp that led to him being labeled "the Hero". Garp, however, was outraged by the news as he knew it was not true. Sengoku tells Garp that the World Government and the Marines are massive organizations with tens of thousands of people, and it is impossible to be aware of what each individual person is doing, but that is why it is so easy for Sengoku to look the other way when the top brass does something they should not. Garp gets into a fight with Sengoku after hearing this, calling him nothing more than a ladder-climber, while Sengoku retorts that he can do nothing just by protecting the rank-and-file. Garp makes it clear that he will not be quitting, as he still has things to protect in his position, but he does tell Sengoku that if he becomes corrupt, he will end him himself, a challenge Sengoku accepts.
+
+On Elbaph, news of Rocks' death reaches Loki, who is completely devastated. He thinks back to when he asked Rocks if he will take him on his ship, to which Rocks once again refused because Loki is a child, while lamenting that he cannot get Harald himself to join. Loki reveals to Rocks that he thinks he is Nika, and that he will destroy the world, but Rocks clarifies to Loki that he just wants to rule it, but if anyone has the power to destroy it, it would be Harald. Rocks explains to Loki that somewhere out in the world are the slumbering Gallelia, and that Harald is the only one who can control them, and with him and that group of giants, plus the cantankerous crew Rocks put together, he believed there was nothing they could not do. When Loki asks Rocks why Harald still will not team up with him, Rocks says he thinks it is because of "love", but he said he would keep coming back to recruit him, no matter how many times.
+
+On a certain island, Harald attacks and beats up a giant who was pillaging the people. Even though the giant apologized for his actions promising not to do it again, Harald continued to beat him, as he blamed giants like him for their people's bad reputation in the eyes of the World Government that prevents them from wanting to forge an alliance, and his desire to not jeopardize it was what kept him from helping Rocks when he felt he needed it most, which he feels he can never forgive himself for. The news would later report this incident in a way that ends up painting Harald in a bad light again.
+
+Garp later visits Dragon, who was arrested for his actions, and he hands him the key to his cell. Dragon told Garp that once he escapes he is quitting the Marines, and that he hates him, all of which Garp accepts. As for Harald, he says goodbye to Ida, Jarul, Hajrudin and Loki, the latter two he asks to work together as his sons. Sailing to Marineford, Harald addresses the people of the Marines and World Government and begs them to let him atone for his people's misdeeds in the past, only wishing that he wants to ensure a peaceful future for his kind and a peaceful life side-by-side with humans. As he says that, he tears out his horns to show his sincerity while also offering to become a slave if that is what it takes to atone.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*Roger and Garp successfully manage to knock out the demonized Rocks, reverting him back to normal.
+**All three combatants are too exhausted to move anymore.
+**Figarland Garling stabs the immobilized Rocks, killing him.
+**Rayleigh and Gaban carry Roger and Garp away.
+*God Valley sinks beneath the waves.
+**The Roger Pirates discover the infant Shanks in one of the treasure chests.
+*The World Economy News Paper reports the Rocks Pirates' end and praises Garp as a hero.
+**While Sengoku is willing to look the other way, Garp remains part of the Marines to root out corruption from the inside.
+*A young Loki learns about Rocks' death and cries.
+**Loki believed that Rocks was Nika, destined to destroy the world.
+**Rocks denies wanting to destroy the world, only change it through ruling it.
+**Rocks told Loki about the Galleila and how Harald was the only one who could bring them back.
+*Harald furiously fights off a giant who is trying to raid a human nation and expresses his self-loathing for allowing Rocks to die.
+**Harald tearfully proclaims he will never forgive any giants who commit evil acts.
+*Dragon was imprisoned, declares his intentions to leave the Marines, and angrily disowns Garp as his father.
+**Garp tosses Dragon the keys to his cell.
+*In Elbaph, Harald tells Ida and Jarul that he has made up his mind, and asks Loki and Hajrudin to get along.
+*At Marineford, Harald rips out his horns and publicly declares his intention to atone for the giants' past by any means necessary.
+
+## Characters
+
+## Characters
+
+Pirate, World Government, Rocks Pirates, Rocks D. Xebec, Edward Newgate, Charlotte Linlin, Napoleon, Kaidou, Gloriosa, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Nami, Usopp, Sanji, Tony Tony Chopper, Roger Pirates, Gol D. Roger, Silvers Rayleigh, Scopper Gaban, Moon Isaac Jr., Donquino, Rowing, Erio, Spencer, Jacksonbanner, Doringo, Mr. Momora, Rangram, Mugren, Nerona Imu, Knights of God, Figarland Garling, Shepherd Sommers, Satchels Maffey, Marines, Monkey D. Garp, Sengoku, Monkey D. Dragon, Fishbonen, Slavery, Bartholomew Kuma, Emporio Ivankov, Ginny, Elbaph, Harald, Jarul, Ida, Hajrudin, Loki, Hachinosu, Shakuyaku, God Valley, Eris, Marshall D. Teach, Shanks, Wano Country, Yamato, Shinobu, Kurozumi Tama

@@ -1,0 +1,56 @@
+# Chapter 996: Island of the Strongest
+
+Volume: 99  |  Arc: Wano Country Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_996 (CC-BY-SA)
+
+## Cover page
+
+Cover Page Request: "Blackbeard and a hippo are brushing their teeth together." - PN Ebi
+
+## Short summary
+
+Tama, alongside Komachiyo and Hihimaru, saves Usopp and Nami from Page One and Ulti. Yamato continues fighting against Sasaki to protect Momonosuke and Shinobu; the fight is about to escalate when Franky rushes in, being chased by Hatcha. Hatcha smashes a hole in the floor, allowing Momonosuke, Shinobu, and Yamato to escape as Yamato launches an attack that takes down Hatcha.
+
+In different parts of the Skull Dome, Law is searching for the Road Poneglyph in hope of learning the truth about the mystery of the Will of D. Kid and Killer are making their way through the building to the roof where Kaidou is, gathering as many weapons as possible along the way. As Kaidou overwhelms the Nine Red Scabbards, Big Mom flies through the crowd towards the roof where he is.
+
+Luffy's group is also making their way to the roof when Sanji hears something.
+
+## Long summary
+
+Inside the bathroom in the forehead of the Skull Dome, Ulti and Page One wonder what it was that attacked them before Tama grabs Nami and Usopp and runs off. Ulti demands Page One tear the komainu apart but he retorts for her to do it herself, which upsets her. Nami asks Usopp if he is okay, and he replies he is despite clearly not being so. She says that on the bright side, she is fine, which annoys him. Nami asks Tama how she and Komachiyo got to Onigashima and she replies that she snuck on board an enemy ship. Suddenly, the baboon Hihimaru appears and clashes with Page One as Tama asks for him to hold them off for three minutes. Nami becomes worried that Hihimaru may not stand a chance against the two Tobiroppo, but Tama tells her not to look down on his strength and that they can as samurai.
+
+In the right-brain central tower, Yamato continues to blow away Sasaki's Armored Division. They in turn continue to strike Yamato. Momonosuke becomes worried for him and Shinobu asks Yamato to take Momonosuke and leave her behind. Yamato refuses, saying that Oden wouldn't do that. Sasaki starts to draw his sword and irritatingly tells Yamato that he finds it insulting he would say something like that to him while protecting 'dead weight'. Seeing this, Yamato's teeth start changing and becoming sharp.
+
+Before the two can start fighting, Franky arrives with Hatcha following him. Yamato recognizes Franky inside the General Franky as Hatcha swings his club near Franky, causing him to bust a hole through the floor. Yamato remembers that there is a floor underneath him and grabs Momonosuke and Shinobu to escape. Franky asks if the two have been captured but they answer that they are being rescued. Yamato asks Franky to take care of Sasaki and that Luffy put him in charge of protecting the two. While Franky doesn't know who Yamato is, he nevertheless accepts. As thanks, Yamato uses a move called Narikabura, and fires a shot of Armament Haki at Hatcha that strikes him in the head, defeating him. Sasaki orders his troops to chase after Yamato, who tells Momonosuke that he must live because he believe he is the one who will lead the world to the dawn.
+
+In the second basement floor, Trafalgar Law defeats several guards and approaches a Poneglyph while thinking about what Donquixote Rosinante said about the name of "D.", and how they are considered the enemies of the gods. He also thought back to when he revealed his full name to Robin at an earlier point, which surprised her. She appreciates the trust he has shown telling her this, but she can not give an answer, as despite her interest in the name, Luffy has no interest in knowing. Law realizes that in order to figure out the meaning, they need to follow the Road Poneglyphs. Sadly, the Poneglyph he finds isn't red, so he chooses to keep looking. He says to Rosinante that now he seeks to find the meaning of the "checkered life" he is meant to lead. 
+
+On the third floor, Eustass Kid uses his Devil Fruit to gather metal objects and asks Killer if he gathered enough. Killer answers that since they are fighting the world's strongest pirate, it can't hurt to have too much, which elates Kid. At the roof of the Skull Dome, Kaidou continues his battle with the Scabbards and is starting to overwhelm them. At the Live Stage, Big Mom returns, but she says that she only plans on joining Kaidou up on the roof.  
+
+Luffy, Jinbe, and Sanji manage to reach the second floor of the castle with Jinbe telling Luffy that the roof is above the fifth floor. Suddenly, Sanji asks the two of them if they can hear that sound from the third floor. He focuses and hears someone speaking in a seductive voice.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*Tama and Komachiyo take Nami and Usopp away from Ulti and Page One.
+**Hihimaru engages the two Tobiroppo.
+**Tama snuck on board an enemy ship to help fight in the war.
+*Franky and Hatcha arrive at the Right-Brain Tower, where Yamato and Sasaki are, just before Yamato is overwhelmed by Sasaki's Armored Division.
+**Yamato began what appeared to be a transformation, gaining sharp fangs, before being interrupted.
+**Yamato can use Armament Haki. He defeats Hatcha and escapes with Shinobu and Momonosuke down the hole Hatcha made.
+**Yamato is also aware of the concept known as the Dawn of the World.
+*Law finds a poneglyph in the second basement floor of the castle.
+**He revealed his full name to Robin at an earlier point.
+**He also reveals his intent to learn the truth about the Will of D.
+*Kid and Killer are at the third level of the castle.
+*Kaidou is overwhelming the Red Scabbards.
+*Big Mom reenters the Skull Dome and plans to head to the roof where Kaidou is.
+*Luffy, Jinbe, and Sanji reach the second level of the castle.
+
+## Characters
+
+## Characters
+
+Pirates, Marines, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Nami, Usopp, Sanji, Tony Tony Chopper, Nico Robin, Franky, Brook, Jinbe, Kid Pirates, Eustass Kid, Killer, Heart Pirates, Trafalgar D. Water Law, Big Mom Pirates, Charlotte Linlin, Zeus, Prometheus, Napoleon, Beasts Pirates, Kaidou, Page One, Ulti, Sasaki, Hatcha, Scorpionlady, Nokokuwa Police, Saitank, On Air Pirates, Scratchmen Apoo, Yamato, Blackbeard Pirates, Marshall D. Teach, SWORD, X Drake, Donquixote Rosinante, Wano Country, Kouzuki Momonosuke, Kin'emon, Raizo, Denjiro, Kawamatsu, Shinobu, Tama, Komachiyo, Hihimaru

@@ -1,0 +1,61 @@
+# Chapter 722: Royal Bloodlines
+
+Volume: 73  |  Arc: Dressrosa Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_722 (CC-BY-SA)
+
+## Cover page
+
+Caribou's Kehihihihi in the New World Vol. 39 - "Swallow Up the Factory, Destroy the Workplace!".
+
+Caribou destroys the factory on Kaidou's island.
+
+## Short summary
+
+At the Corrida Colosseum, the crowd continues to taunt Rebecca until Cavendish shouts at them to stop their shameful jeers. Rebecca thanks him but he reminds her that in the ring, they are enemies. When the gong rings, the Battle Royale officially starts.
+
+At the Flower Field secret base, Leo and Thunder Soldier deliver their speech to the assembled army to prepare for the upcoming battle. Meanwhile in Dressrosa, Zoro is trying to find his way to Nami but runs into Kin'emon and Sanji, who were on their way to inform Luffy of the situation. Violet then shows up in disguise and informs them of their ship being already taken towards Green Bit.
+
+On the deformed Thousand Sunny, Brook is apparently aiding Giolla in making abstract art whilst subduing Nami, Chopper and Momonosuke. However, Brook tricks Giolla to returning his sword back to normal and swiftly defeats her. With Giolla defeated, her spell is broken and everyone including the ship are returned to normal.
+
+At Green Bit, Donquixote Doflamingo reveals a bit of history that the 19 of the twenty kings who united to form the World Government moved to live in Mary Geoise with their families, leaving their old countries to elect new royalty. He then reveals to a defeated Trafalgar Law that the royal family that ruled Dressrosa before the Riku family was none other than the Donquixote Family.
+
+## Long summary
+
+The audience is still shouting hateful slurs at Rebecca while talking poorly of her grandfather. Luffy says that her being the former king's granddaughter is a moot point, thinking about Chinjao and his own grandfather. The convict gladiators agree with him. One of the competitors gives Rebecca a backhanded compliment, calling her beautiful but an even bigger nuisance than Bartolomeo while another one muses that killing her would make him a local hero. A voice calls out to stop. Cavendish enters the arena, sword drawn, mounted on his horse, Farul. Gatz enthusiastically announces his arrival as women in the audience begin to swoon from his presence. Gatz commenting saying that Cavendish has not lost his touch from three years ago as a spectator calls for Cavendish to make Rebecca suffer. Cavendish waves Durandal at the audience and tells them to shut up. He does not know why the audience hates Rebecca, but she still has the resolve to fight for her life in the ring, which the audience does not. Cavendish tells the audience that they who are not fighting have no right to speak ill of her and anyone who wants to back up their threats should pick up a weapon and step into the ring, adding that the words of those with no resolve fall only as noise against his ears. Cavendish goes on to say that even though he has his reasons to compete this time, he hates contests such as this, believing that a warrior's life is not something that should be used for entertainment. The crowd is visibly moved by Cavendish's speech as he dismisses his horse. Even Luffy was impressed by what Cavendish said, but not enough to start liking him.
+
+The audience's mood has changed and they start cheering for Cavendish as Gatz comments that Cavendish's charisma is palpable. Another gladiator tries to compliment him, saying even though he did not predict the audience would not react this way and that their behavior is quite fickle, however, he does not get to finish his compliment. Cavendish suddenly realizes he suddenly has popularity for the first time in three years, catching the gladiator off guard. Rebecca comes up to Cavendish and thanks him for what he just did. Cavendish tells her he only did it because they irritated him and that she should ignore it because they are now enemies. His imagination then runs away with him, and he asks if there are any reporters nearby, saying it would be "tragic" if this event made it into the papers and the press got an interview with him. Gatz announces that everyone in block D has assembled, a total of 137 people, only one competitor having been dropped prior to the start of the round as the starting bell goes off. The gladiators start fighting as seven of the favored fighters from earlier are shown: Cavendish, Suleiman, Mummy, Rolling Logan, Damask, Orlumbus, and Rebecca.
+
+The scene changes to the Flower Field where Kabu and Bian's squads have just arrived. Leo declares that the day of reckoning is upon them. Thunder Soldier is trying to inspire the troops, stirring their sense of loyalty to the former king. The plan has taken over a year to come together, and they can win even against a Shichibukai. Usopp is listening to the plan so he can find out the best time to run away.
+
+Back in Acacia, Wicca is trying to guide Zoro, telling him that left is the side where his swords are not. She explains that Giolla is attacking the Thousand Sunny and gives him a rundown of her powers. She tells Zoro that she cannot forget the names, faces, and abilities of the three people who defeated the entire Dressrosa army ten years ago: Diamante, Trebol, and Pica. Sanji and Kin'emon see Zoro nearby and get his attention. Zoro introduces them to Wicca as Curlyland and Top-knotland. Sanji and Kin'emon are quickly brought up to speed on the situation back on the ship, and decide to go with Zoro to save them. Violet peeks out from behind a corner and tells Sanji that their ship was taken by Giolla and is en route to Green Bit.
+
+On the Thousand Sunny, Giolla has turned the waves into musical staffs. Brook is happy to have her art, and Giolla is glad to have found someone with taste. Nami asks if they are really going to Green Bit, and Giolla tells them to imagine the look on Law's face when she shows up instead of them. Chopper proclaims Brook to have gone crazy and asks if he really is betraying them while Momonosuke says Brook has no right to call himself a swordsman. Brook tells them that a musician is just another kind of artist, and he exists to make art. Giolla tells Brook his friends will never understand their passion. The shot changes to show that Nami, Chopper, and Momonosuke are trapped in a sort of mural that Giolla has named Dying Art, saying it perfectly portrays the tragedy of Dressrosa, and that those inside the mural will stop breathing in ten minutes. Brook proclaims he must write a song for this momentous occasion, and asks Giolla to restore his violin and sword to their original state so he may play. She obliges as Chopper starts to lose consciousness. Brook shows Giolla how his bow is also a cane, and says he already cut her, walking away from her as his Ekaki Uta Hitoyogiri takes effect. Chopper is relieved that Brook helped them as he starts to return to normal.
+
+On Green Bit, Doflamingo is telling Law about how the twenty kings created the World Government. Nineteen of the twenty families decided to move to Mary Geoise, the Nefertari family being the only one who did not go. The descendants of the kings, the World Nobles, still live there today. This meant nineteen countries had to elect new royalty and new families were established. He says that the new ruling family in Dressrosa was the Riku Family, while the family that left for Mary Geoise was the Donquixote Family.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*Cavendish enters the arena of the Colosseum and gives a speech about the audience's behavior toward Rebecca.
+*Cavendish has a horse named Farul.
+*The Block D battle royale begins.
+*The dwarves from Green Bit have all gathered at the Riku Royal Army headquarters.
+*Wicca is 27 years old.
+*Zoro reunites with Kin'emon and Sanji.
+*Pica is the name of the occupant of Doflamingo's Spade chair.
+*Violet tells Sanji that the Thousand Sunny was taken by Giolla.
+*Brook manages to trick and defeat Giolla, causing her power to wear off.
+*Doflamingo and Issho have defeated Law.
+*Doflamingo appears to be in possession of Caesar's heart.
+*Doflamingo reveals more information about the history of the World Government.
+**The Donquixote Family and the Nefertari Family are two of the twenty founding royal families of the World Government.
+**After founding the World Government, all the royal families except the Nefertari family moved to and lived in Mary Geoise.
+*The Donquixote Family was the original royal family of Dressrosa before the founding of the World Government. The Riku Family was chosen to lead Dressrosa after the Donquixote family left.
+
+## Characters
+
+## Characters
+
+Pirate, Marines, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Nami, Usopp, Sanji, Tony Tony Chopper, Nico Robin, Franky, Brook, Heart Pirates, Trafalgar D. Water Law, Donquixote Pirates, Donquixote Doflamingo, Trebol, Diamante, Pica, Giolla, Viola, Beautiful Pirates, Cavendish, Farul, Caribou Pirates, Caribou, Coribou, Admiral, Issho, Vice-Admiral, Monkey D. Garp, Wano Country, Kin'emon, Kouzuki Momonosuke, Dressrosa, Kyros, Tontatta Kingdom, Gancho, Leo, Bomba, Rampo, Kabu, Bian, Flapper, Bobomba, Nubon, Wicca, Inhel, Cotton, Baxcon, Eikon, Kano Country, Chinjao, Baburu, Corrida Colosseum, Rebecca, Mummy, Rolling Logan, Suleiman, Orlumbus, Damask, Gatz

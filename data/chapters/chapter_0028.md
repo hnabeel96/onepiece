@@ -1,0 +1,35 @@
+# Chapter 28: Crescent Moon
+
+Volume: 4  |  Arc: Syrup Village Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_28 (CC-BY-SA)
+
+## Cover page
+
+Color Spread: After a long day's harvest, fieldhands Luffy, Zoro, and Nami ride home on Farmer Shanks' cart; on the way, they find the vegetables they've picked have assumed their own faces.
+
+## Short summary
+
+Preparing for the oncoming pirate attack, Luffy, Zoro, Nami, and Usopp take upon themselves to protect the village and identify the path the pirates would have to take in order to get onto the island. At the mansion during a discussion between Merry and Klahadore, the latter grows impatient and reveals his true nature and attacks Merry. As morning arrives, the Black Cat Pirates begin their charge on the island where it is revealed Usopp guessed the wrong path and they were actually attacking from the north. Panicking, Luffy, Usopp and Nami rush off in to the right location direction, while Zoro is left behind as Nami caused him to slide down the oil trap they had set. Usopp is the first to arrive, knocking back several pirates with his slingshot. Luffy on the other hand has become lost, and Zoro still trapped in the slippery oil.
+
+## Long summary
+
+Usopp, Nami, Zoro, and Luffy all agree to protect the village against Kuro and the Black Cat Pirates. Usopp is scared and his knees shake despite claiming he is not. Usopp begins to make a plan, he asks Zoro, Luffy and Nami what they can do and they reply Slicing, Stretching and stealing respectively, Usopp adds his skill is "hide".
+
+Inside the mansion Klahadore and Kaya's other servant discuss Usopp's actions of the day while Kaya sleeps soundly in her bed. Klahadore finds the glasses that were supposed to be a present for him in the morning on their 3rd anniversary, they were specially made for him so he did not have to keep pushing his back up. As the other servant continues to talk, Klahadore suddenly begins to talk strangely. He looks to the crescent moon and states it makes him wild. Before his eyes, Klahadore smashes the glasses and looks devilishly at the other servant stating his present will be the mansion. Klahadore states that he no longer has to pretend as there is only a few hours left. He pulls out his cat claws from a bag he is carrying and turns them on the servant.
+
+On board the ship of the Black Cat Pirates, Jango is awaken from his sleep to be told in a few hours they will have to go to work on the plan. Jango leaves his quarters walking backwards out of his cabin. Back at the coastline, Usopp and the others have now laid oil down the slope towards the village.
+
+As morning breaks everyone readies for action. Both on the coast and the pirate ship. At the mansion, Klahadore enters the room where Kaya is sleeping. Jango and the crew arrive at the coastline leading to the village. At where Usopp and the others are there are no pirates, suddenly Usopp remembers there is more than one port along the coast line and they are at the wrong one. As panic breaks out, Usopp states the layout is the same and the coast is only three minutes away from this one. Nami realizes their boats are parked at that one. As Luffy rushes off, Nami tries to follow but her foot slides as she steps on the oil, as she slides she grabs hold of Zoro and uses him to get off the oil. Leaving him behind she rushes off to save her treasure. Zoro swears he will kill her, while everyone else rushes to the correct coast.
+
+Usopp arrives there quickly and shoots some of the pirates down. Zoro is still trapped on the slope and Luffy is back at the village after going the wrong way.
+
+## Notes & trivia
+
+*According to Eiichiro Oda's note in Color Walk 1, the Color Spread's concept came from a Weekly Shonen Jump contest challenging readers to submit their own ideas and sketches; the winning entry (tagged as "Tonight's dinner is curry") was personally redrawn by Oda.
+*The stage the moon is at is the Waning Crescent. Throughout the series Oda draws the moon at different stages. The moon can actually be used to measure the time the Straw Hats have been at sea since the beginning.
+*In the chapter's initial publishing in Weekly Shonen Jump, the first two story pages were printed in full color.
+
+## Characters
+
+Pirate, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Nami, Red Hair Pirates, Shanks, Black Cat Pirates, Kuro, Jango, Syrup Village, Kaya, Merry, Usopp Pirates, Usopp

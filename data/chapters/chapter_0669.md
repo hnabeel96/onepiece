@@ -1,0 +1,49 @@
+# Chapter 669: Commence Operation
+
+Volume: 68  |  Arc: Punk Hazard Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_669 (CC-BY-SA)
+
+## Cover page
+
+Straw Hats and Animals: "Vivi is tending to a frog with a cold, while Luffy is playing with Karoo in the rain". A request by Yusaku Shibata (芝田優作) in Saitama Prefecture.
+
+## Short summary
+
+Zoro, Sanji and Brook are shown to have survived their encounter with the Yeti Cool Brothers. They find the samurai lying immobile in the snow after his torso was submerged in seawater. Caesar Clown reveals that the Slime creature was formed from the chemical weapon explosion four years ago, as well as the gaseous byproduct. The G-5 Marines attempt to break into Caesar's laboratory from the front, while Law and Chopper sneak in from behind. Luffy, Franky, and Robin fly in from above and land near the Marines, Luffy then yells out for Caesar to come out, so they can beat him up and kidnap him.
+
+## Long summary
+
+Sanji's group is recovering from the fall and the effects of the KYP gas. Sanji wonders if the samurai is alright. Zoro argues that Sanji wanted to take the shortcut, but the cook fires back that they all agreed to go. Brook remembers the shadows he saw before they fell unconscious. Zoro argues that no one was there while Sanji disagrees. There is a flashback to an hour ago, when the group finds the footprints. Brook calls Zoro and Sanji over to look at the giant footprints. He thinks they might belong to the legendary yeti. Zoro and Sanji tell him to not be ridiculous. Brook gets excited, stating that beyond here lies the dream of man as all three imagine what the yeti looks like. They follow the footprints to the edge of a cliff, turn around, and see two large shadows and hear the sound of guns getting cocked. The Yeti Cool Brothers shoot them with the KYP bullets. Rock explains that the gas can put even the heaviest drinker into a complete stupor. He also tells them about section F-16, home of the icicle pincushion. They blast the tip of the cliff off with their rifles, sending the inebriated pirates with it. Zoro, in his last moments of consciousness, manages to cut the plateau containing the icicles, saving himself and the others.
+
+In area F-16, a collection team discovers the three unconscious bodies. Sanji grabs the leg of one of the soldiers, surprising him. He surprises the soldiers even further by completely defeating the whole group. He realizes that he has to be careful, as Nami's body is far more delicate than his own. He then punches Zoro and Brook in the head to wake them up. Sanji asks Brook if he thinks the samurai is nearby. Brook says he remembers seeing the torso around here. The crew steps on a body unconscious in the snow; first Sanji, then Brook, and then Zoro notices the body and realizes it is the samurai. He is completely frozen. Sanji stomps on the Samurai's head, breaking the ice. The samurai gasps for air. He tells them that he suddenly became paralyzed. He says he is not cold, but Sanji calls him out on his lie. He explains that his ability prevents him from swimming and right now it feels like his torso is under water. Zoro and Brook reason that the torso fell in the salt water lake. Zoro concludes that if he can still feel it, then the sharks have not eaten the torso yet. Sanji realizes they do not have much time and they need to recover the samurai's torso. The samurai is surprised by this kind of kindness coming from pirates. Sanji tells him it is strictly out of responsibility and the second their body issues are taken care of, he is going to fight and beat the samurai to a pulp. The samurai then thanks Sanji. Sanji remarks that he is finally showing some gratitude and maybe everyone should get frozen once.
+
+They then see a group in the distance. It is the Centaur Patrol Unit. They are running from the monster that appeared at the lake. Zoro asks what they are talking about. The centaurs then notice the pirates, angry that they lost, but keep moving. Zoro then looks toward the lake, and does not seem to remember the enormous mountain currently there.
+
+The scene changes to inside the lab. Caesar Clown is talking about how Slime is the same thing that caused the massive explosion four years ago. Everyone thinks Caesar purified the toxic gas, but Caesar reveals that he simply condensed it and, not wanting to be wasteful, compressed it into Slime. He goes on to say that just because people forget a tragedy does not mean it is gone. In fact, it was sitting in the palm of Caesar's hand all this time.
+
+Outside the front of the lab, the G-5 Marines are stealing a ship. Tashigi tries to hold off some enemies, but accidentally transforms into smoke and cannot control it. Smoker tells her to get out of the way and asks if the door barring their escape is open. A soldier responds that the enemy is in the lab and the door will not move. This irritates Smoker, as it would all be easier if he were in his own body.
+
+Behind the lab, Law and Chopper warp into one of Law's Rooms. Law explains where they are and where Caesar and Monet are. He tells Chopper to investigate the drugs while he works on a way to get Caesar and Monet out of the building. Chopper asks why Law could not just capture them since they trust Law so much, making infiltration easy for him. Law tells Chopper he has a certain problem that prevents him from capturing them so easily. The Straw Hats need to capture Caesar as quickly as possible and Law will do the rest. Law then hears screaming. Tashigi looks up to see something flying toward them, thinking it to be a huge bomb. It turns out to be Luffy, Robin, and Franky. Luffy and Franky crash into the bow of the destroyed Marine ship. Robin avoids the impact by using Wing. Robin lands delicately while Franky punches his way out of the wrecked ship. Luffy then shouts for "Master" to get outside so they can beat him up and kidnap him. Franky comments on how good of a shortcut they took while Robin reminds them they are supposed to be secretive. Law is irritated by Luffy's conspicuous entrance, while Smoker and the rest of G-5 are surprised to see him.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*As explained by Rock in Chapter 667, the KYP bullets are the reason why Zoro, Sanji, and Brook were unconscious in the snow.
+*Sanji is shown fighting in Nami's body without any problems.
+*Zoro, Sanji, and Brook find Kin'emon, still without his torso, frozen in the snow.
+*Kin'emon's torso has fallen in the lake and because of this he cannot move or use his powers.
+*The Slime creature is revealed to be the result of the failed experiment that happened on Punk Hazard four years ago. Some time after the incident, Caesar did not absorb the poison gas that was covering the island, but condensed it and converted it into Slime.
+*Tashigi uses Smoker's Devil Fruit powers, but is unable to control the transformation. This is the first time a person has been shown having difficulties controlling a Logia fruit.
+*Law and Chopper sneak through to the back of the research facility, where Caesar and Monet are currently located.
+*Tashigi's sword is revealed to be somehow fixed as she is seen using it against Punk Hazard residents.
+*Robin is shown using her Wing technique for the first time after the timeskip.
+*Luffy, Robin, and Franky begin their assault to kidnap Caesar and recklessly land in the middle of the entirety of the G-5 Marines.
+*Pandaman can be seen on the last page of the chapter, fighting with the G-5 Marines.
+
+## Characters
+
+## Characters
+
+Pirates, Marines, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Sanji, Tony Tony Chopper, Nico Robin, Franky, Brook, Shichibukai, Trafalgar D. Water Law, G-5, Smoker, Tashigi, Punk Hazard, Caesar Clown, Monet, Yeti Cool Brothers, Slime, Wano Country, Kin'emon, Arabasta, Nefertari Vivi, Karoo

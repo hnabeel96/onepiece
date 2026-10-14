@@ -1,0 +1,46 @@
+# Chapter 769: Bellamy the Pirate
+
+Volume: 77  |  Arc: Dressrosa Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_769 (CC-BY-SA)
+
+## Cover page
+
+Solo Journey of Jinbe, Knight of the Sea Vol. 16 - "The Shadow That Vanished Into the Depths of the Ocean! The culprit's in the Water!".
+
+Jinbe spots a shadow underwater so he goes and gives chase to the culprit.
+
+## Short summary
+
+Law and Doflamingo are still fighting, with Law using his powers to throw part of the castle. Doflamingo blocks it with his Kumo no Sugaki attack and grabs Law. He states that if Law wanted him dead, he should have pitted him against Kaido, rather than let his emotions get in the way. Law states that everything he's done and will do has been to avenge Corazon. After cutting off Law's arm, Doflamingo sends him hurtling into the building below. Doflamingo says he'll "forgive" Law in the same way he forgave his father and brother, by killing them.
+
+Suddenly, a string clone bursts out of the ground having been defeated by Luffy, who is still fighting Bellamy. Luffy tells Doflamingo to release Bellamy, and he obliges. Bellamy starts to reminisce about his past, including asking to join Doflamingo, fighting Luffy in Mock Town, and meeting him again in the Colosseum. Luffy promises to beat up Doflamingo and Trebol for him, but Bellamy stops him.
+
+Bellamy uses his Spring Hopper move and darts around the room, despite Luffy telling him that he'll die if he keeps moving. Bellamy states that he's not going to attack Doflamingo, despite the fact that he no longer admires him, and asks Luffy for a fight, proclaiming it to be his last.
+
+## Long summary
+
+The chapter begins with Law continuing to fight Doflamingo, with Law using Tact to throw part of the castle to Doflamingo, only to be blocked by Doflmingo's Kumo no Sugaki. Law then tries to launch another Shambles, but this time, Doflamingo grabbed his right hand and commented that he should not launch ineffective attacks to him. He states that if Law wanted him dead, he should have pitted him against Kaido and that there are millions of methods to kill someone stronger than yourself, rather than let his emotions get in the way. Law states that everything he's done and will do has been to avenge Corazon. After Doflamingo has cut Law's right arm off with Itonoko, Doflamingo says he will "forgive" Law, while pulling out his gun, in the same way he forgave his father and brother, by killing them; and that the best method is to use a lead bullet.
+
+Suddenly, a string clone bursts out of the ground having been defeated by Luffy after Luffy performed his Jet Gatling. Trebol was surprised to see Clone Doflamingo to be beaten into pieces. Still fighting Bellamy, Luffy demands Doflamingo to release Bellamy. Doflamingo was surprised that Bellamy was not finished off yet, and releases him from his control.
+
+Bellamy starts to reminisce about his past, including asking to join Doflamingo thinking that Doflamingo is pride of the North Blue and that he is not a pirate who day dreams. Then he thinks of fighting Luffy in Mock Town, and meeting him again in the Colosseum. Luffy promises to beat up Doflamingo and Trebol for him, but Bellamy stops him.
+
+Bellamy uses his Spring Hopper move and darts around the room, despite Luffy telling him that he'll die if he keeps moving. Bellamy states that it is not only Luffy who has become stronger, but his Spring Hopper has become so as well. He tells Luffy that he's not going to attack Doflamingo, despite the fact that he no longer admires him, and asks Luffy to join him in his last fight.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*Trebol appears to have pieced himself back together.
+*Doflamingo severs Law's right arm with his Devil Fruit abilities.
+*Luffy defeats Doflamingo's string clone.
+*It is revealed how Bellamy first met Doflamingo and how Doflamingo permitted him to use his flag.
+*Bellamy says that the Donquixote Pirates are the pride of the North Blue.
+*Bellamy is released from Doflamingo's control. However, Bellamy chooses to continue fighting Luffy.
+
+## Characters
+
+## Characters
+
+Pirate, Marines, Straw Hat Pirates, Monkey D. Luffy, Heart Pirates, Trafalgar D. Water Law, Donquixote Pirates, Donquixote Doflamingo, Vergo, Trebol, Diamante, Dellinger, Bellamy, Bellamy Pirates, Sarquiss, Rivers, Sun Pirates, Jinbe, Marine Ranks, Donquixote Rosinante, Dressrosa, Riku Doldo III, Kyros, Rebecca

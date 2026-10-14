@@ -1,0 +1,55 @@
+# Chapter 734: The Kamaitachi of Rommel
+
+Volume: 74  |  Arc: Dressrosa Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_734 (CC-BY-SA)
+
+## Cover page
+
+"I'd like you to do a picture of Usopp riding a giraffe and painting patterns on those without any" - A request by P.N. Korokke from Aichi Prefecture.
+
+## Short summary
+
+As the dust clears, the last fighter standing turns out to be Rebecca making her the winner much to the dissatisfaction of the announcer and the crowd. Speculations of Rebecca cheating were thrown throughout the crowd but Rebecca was the only one who saw what really happened.
+
+During the fight, Rebecca saw Cavendish fall asleep in the middle of the battle. Before the other fighters would capitalize on their sleeping target, Cavendish promptly woke up with a sinister face that promised torment for his enemies. In that instant, Cavendish moved like the wind, cutting down every fighter in his way. Rebecca however saw this and barely manages to avoid a fatal strike from Cavendish, who then fell asleep again.
+
+Outside, Vice Admiral Bastille finished explaining to an officer about what happened in the colosseum as this was the work of not Cavendish, but his alter ego Hakuba, a dangerous man who eluded the marines years ago for his dangerous technique.
+
+At the Palace, Doflamingo is standing before King Riku who is chained up. Doflamingo gloated that Viola's hope of the Straw Hats defeating him and freeing Law is worthless, as he had full confidence that his men will prevent them from breaching his operations and believes that Luffy is still trapped in the colosseum.
+
+At that moment, Robin and Usopp have successfully infiltrated the basement harbor, and Luffy's group ran into Viola who wants to help them in entering the palace.
+
+## Long summary
+
+In the D block battle, after 20 contestants are knocked out, Gatz sees that someone is attempting to stand in the middle of the block, and that person is Rebecca. As it is announced that Rebecca is the block winner, the crowd begins booing her, claiming that she must have cheated. Meanwhile, at the prisoner gladiator quarters, Rebecca's friends cheer for her victory.
+
+Outside the Colosseum, Vice Admiral Bastille tells a marine about the Kamaitachi of Rommel. He says that some time ago in the kingdom of Rommel a strange wind was blowing during the night, that had the power to cut people up. After a series of mysterious events, the Marines decided to send a battle ship to investigate the matter. Many Marines lost their lives to that "wind" but they finally managed to find out that the culprit behind the wind was actually a man named Hakuba. Despite not being able to capture him, they deduced that Hakuba appears in the towns where a certain pirate stops.
+
+In the Colosseum, Rebecca sees Cavendish unconscious before her and she remembers that as she was fighting Suleiman in the battle, suddenly Cavendish fell asleep. The other gladiators noticed this and took the opportunity to take him out. As they were about to attack him, Cavendish woke up with a sinister expression and slashed all the other gladiators so fast, that they didn't even see him coming. However, Rebecca was able to see through his movements and barely managed to avoid his strike, which hit her helmet instead. Cavendish then fell asleep again returning to his normal form.
+
+Back outside the Colosseum, Bastille continues with his explanation about Hakuba, telling the soldiers that Cavendish turns into Hakuba when he falls asleep and that Hakuba was the one who went out to sea after committing various crimes. The other Marines start sympathizing with Cavendish, but Bastille corrects them, saying that Cavendish actually enjoys the popularity his alter ego offers him. Finally, Bastille notes that while Cavendish is a strong swordsman, Hakuba is even better than him in terms of strength and speed and it's just unfortunate for him that Cavendish's ability doesn't work well in a match-style fight.
+
+In the Colosseum the crowd accuses Rebecca of secretly carrying a gun. Lucy who was watching this, next to Bartolomeo, says that it probably wasn't just luck that allowed Rebecca to avoid those attacks, but anyways he wouldn't let anyone touch the Mera Mera no Mi.
+
+In the palace, Doflamingo and the captured Riku Doldo III are observing the outcome of the battles. Doflamingo is certain that Luffy won't make it out of the Colosseum and that Franky, who is causing a ruckus at the moment, will be defeated by his associates. He states that their only pieces left are Zoro, Kin'emon, Robin and Sogeking. An unconscious Law is shown chained to the heart seat.
+
+Luffy, Zoro and Kin'emon reach the palace's entrance, as Wicca revealed that it was one of the ways to enter the factory. There, they met Viola who claimed that she was waiting for them to lead them inside the palace.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*It is revealed that Cavendish suffers from an unusual combination of narcolepsy, sleepwalking and multiple personality disorder. The alternate personality is named Hakuba, which appears whenever Cavendish falls asleep.
+*Cavendish's alternate personality, Hakuba defeats all the contestants apart from Rebecca and then falls asleep.
+*Rebecca managed to evade Hakuba's attack and becomes the winner of Block D.
+*Riku Doldo III is now a prisoner inside the palace, alongside the still unconscious Law, who is chained to the heart seat.
+*It is revealed that Doflamingo still doesn't know of the Straw Hat crew's exact plans and the secret tunnel.
+*Senor Pink has engaged Franky in battle.
+*Luffy, Zoro, and Kin'emon meet Viola, who offers to lead them inside the palace.
+
+## Characters
+
+## Characters
+
+Pirate, Marines, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Usopp, Nico Robin, Franky, Heart Pirates, Trafalgar D. Water Law, Donquixote Pirates, Donquixote Doflamingo, Senor Pink, Barto Club, Bartolomeo, Beautiful Pirates, Cavendish, Blackbeard Pirates, Jesus Burgess, Vice Admiral, Bastille, Wano Country, Kin'emon, Dressrosa, Riku Doldo III, Viola, Tontatta Kingdom, Leo, Flapper, Wicca, Corrida Colosseum, Rebecca, Suleiman, Orlumbus, Mummy, Meadows, Agyo, Damask, Rolling Logan, Acilia, Gatz, Revolutionary Army, Sabo

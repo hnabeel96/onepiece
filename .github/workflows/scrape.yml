@@ -1,0 +1,50 @@
+name: Update One Piece knowledge base
+
+on:
+  workflow_dispatch:
+    inputs:
+      full:
+        description: "Re-download everything (otherwise only new pages)"
+        type: boolean
+        default: false
+  schedule:
+    # Every Monday 06:17 UTC — after the weekly chapter's wiki page is usually filled in
+    - cron: "17 6 * * 1"
+
+permissions:
+  contents: write
+
+concurrency:
+  group: scrape
+  cancel-in-progress: false
+
+jobs:
+  scrape:
+    runs-on: ubuntu-latest
+    timeout-minutes: 90
+    steps:
+      - uses: actions/checkout@v4
+
+      - uses: actions/setup-python@v5
+        with:
+          python-version: "3.12"
+
+      - name: Download chapter and SBS pages from the One Piece Wiki
+        run: |
+          if [ "${{ inputs.full }}" = "true" ] || [ ! -f data/onepiece.db ]; then
+            python3 scripts/op_scrape.py
+          else
+            python3 scripts/op_scrape.py --update
+          fi
+
+      - name: Commit new data
+        run: |
+          git config user.name  "github-actions[bot]"
+          git config user.email "41898282+github-actions[bot]@users.noreply.github.com"
+          git add data
+          if git diff --cached --quiet; then
+            echo "No new pages."
+          else
+            git commit -m "Update knowledge base ($(date -u +%Y-%m-%d))"
+            git push
+          fi

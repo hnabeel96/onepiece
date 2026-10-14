@@ -1,0 +1,39 @@
+# Chapter 666: Yeti Cool Brothers
+
+Arc: Punk Hazard Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_666 (CC-BY-SA)
+
+## Cover page
+
+From the Decks of the World Vol. 46 - "Impel Down Level 5.5 Newkama Land, New Queen Bon-sama".
+
+## Short summary
+
+The Yeti Cool Brothers report that they have successfully killed Zoro, Nami, and Brook. Caesar Clown discusses the Straw Hats with Monet and Law, and recalls the time Law arrived on Punk Hazard. Nami and Chopper learn about the Yeti Cool Brothers from Brownbeard, just before they appear and shoot him on Caesar's orders. The brothers attack the remaining Straw Hats when they return, and kidnap Nami in the confusion. Law sets off on his own, slicing up one of Caesar's subordinates in the process.
+
+## Long summary
+
+The Yeti Cool Brothers radio in to Caesar, saying they successfully killed Nami, Zoro, and Brook, and ask that they be collected. In the research facility, Clown is talking to Monet having just received the news that some of the Straw Hats were killed. Monet is surprised that they died so easily, after reading all the newspapers that were written about them, and mentions that Law had encountered them twice before. Clown pulls out a gun, points it at Law, and asks him if he called the Straw Hats to the island. Law reiterates that he did not even know they were on the island until they ran into him at the front door. Law adds that if the place gets found out it would be bad for him as well.
+
+Clown remembers when Law first came to the island. He and Law were talking indoors, and Law said that he wanted to stay on the island since it could not be caught by a Log Pose. It also remains of government research that he seemed to be interested in. All he asked for was free roam of the island, and that neither of them ask the other too personal questions. Law also made it very clear that no one was to know that he is on the island, not even Caesar Clown's employer: "Joker". Clown says that he sees no harm in trusting Law, and asks Monet if she agrees. She looks up from copying notes about Law and asks if he could heal the prisoners on the island who were paralyzed by the poisonous gas, ending the flashback. Clown tells Law that if he calls the kids back he will do even better and he doubts someone who sucked up to the government in order to become a Shichibukai would make things too difficult for them. Clown turns to leave, but Law asks what he meant by the kids coming back. Clown explains about the drugged candy, holding up a piece to show Law. Law comments that Clown's nastiness reminds him of someone else. Monet asks about a fight as Law turns to leave. Law tells them to call him if they need anything. Clown comments that people who think too much can be difficult.
+
+At the remains of one of the research labs, there is an explosion. Nami gets scared and Chopper realizes they are under attack. He is worried about the children, as the roof might collapse on them. Chopper peeks out and tells Nami he cannot see who is attacking them. Outside, Luffy and the others hear the explosion and notice the huge footprints in the snow. Luffy senses two huge animal-like beings near Nami and Chopper. Brownbeard hears the explosion and gets hopeful that someone is coming to save him. He then realizes that it must be the Yeti Cool Brothers. Nami asks him what he's talking about. He tells her that no one has seen them, but for the right price they will kill anyone they are asked to. They are hairy twenty five year olds named Rock and Scotch. Just then, one of the brothers appears from behind Nami and Chopper, frightening the daylights out of them. The yeti has his gun pointed at Brownbeard, saying he is on Clown's kill list. Brownbeard asks if the yeti pointing the gun at him is Rock, and he replies that he is Scotch. He tells Scotch there must have been a mistake and he is assigned to take out the Straw Hats. Scotch plays a recording of Clown calling Brownbeard a useless idiot and giving the order to kill him. Brownbeard is crushed by the fact that the man he believed so much in betrayed him. His last thought is of when Clown once called him a good leader. Scotch then shoots him and Brownbeard goes up in flames. Rock then warns Scotch not to shoot too much or else the roof will collapse on the kids. Luffy then comes back, angry at what he just saw. The yetis shoot at him but miss. He comes at them with a flying kick, but they suddenly vanish. Luffy then rebounds off the facility and lands in a snow drift. Chopper runs up, saying that they took Nami.
+
+The Yeti Cool Brothers are seen somewhere else, one of them holding Nami in his hand. Franky's body was the only one that they were ordered to bring back alive, since it had Vegapunk's laser. In the back of the research facility, Law is going out. A guard warns him about the Marines. Law tells him that he does not care and that he can go anywhere he wants, cutting the guard up before leaving.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*Bentham is seen for the first time since the timeskip, albeit from behind. Having survived his fight against Magellan, he is now the new "queen" of Newkama Land.
+*The Yeti Cool Brothers claim to have killed Brook, Nami, and Zoro.
+*In a flashback to when Law first arrived at Punk Hazard, Monet is seen with normal human arms and legs.
+*More details about the Yeti Cool Brothers are explained, including their names, Rock and Scotch, and age.
+*On Caesar Clown's orders, the Yeti Cool Brothers gun down Brownbeard and kidnap Nami, due to her current body housing one of Vegapunk's lasers.
+
+## Characters
+
+## Characters
+
+Pirate, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Nami, Usopp, Sanji, Tony Tony Chopper, Nico Robin, Franky, Brook, Shichibukai, Trafalgar D. Water Law, Impel Down, Bentham‎, Punk Hazard, Caesar Clown, Monet, Brownbeard, Yeti Cool Brothers, Sind, Mocha, Doran

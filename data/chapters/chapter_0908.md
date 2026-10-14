@@ -1,0 +1,47 @@
+# Chapter 908: The Levely Begins
+
+Volume: 90  |  Arc: Levely Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_908 (CC-BY-SA)
+
+## Cover page
+
+The Stories of the Self-Proclaimed Straw Hat Grand Fleet Vol. 38: Orlumbus Arc - "At 3:00PM - Drafting a piracy plan".
+
+Orlumbus writes a piracy plan in his quarters.
+
+## Short summary
+
+After Rosward Charlos was taken away, Mjosgard promises to protect Shirahoshi during the Levely. Meanwhile, Jewelry Bonney infiltrates the World Nobles' domain, where she discovers Bartholomew Kuma being used as Rosward's slave. The infiltrating revolutionaries have seen this as well and they plan to rescue Kuma.
+
+The Levely begins, and the royals begin their conference. Meanwhile, the Five Elders talk about the necessity of a cleansing of the world as they head to the Empty Throne, upon which sits Imu. The elders request that Imu reveals the "light" that needs to be extinguished from history.
+
+## Long summary
+
+The Socializing Plaza has quieted down after Charlos' attempt to kidnap Shirahoshi. Mansherry heals the bruises that Shirahoshi received and Neptune thanks Mjosgard for his actions, and Mjosgard promises to protect Shirahoshi for the duration of the Levely. Leo asks if they can beat up anyone who threatens the princess, and Mjosgard agrees to take responsibility if that happens. Pell apologizes to Vivi for not being at her side during the incident, and she asks him where her father is. He replies that he is currently meeting with Fujitora and Riku Doldo III after receiving a letter from the Marine admiral.
+
+Connie, the queen dowager of the Sorbet Kingdom, goes to the Celestial Dragon Gate which leads to the World Nobles' domain. She is stopped by the guards at the gate when the injured Charlos is carried in. Rosward waits for his son on the other side, and when the guards open the gate to let Charlos through, Connie dashes through it without anyone noticing. Rosward remarks about how unusual Mjosgard's lifestyle is, and Charlos notices with excitement that his father got to rent the Warlord and former king of the Sorbet Kingdom Bartholomew Kuma as his slave steed. Rosward demonstrates how he can do whatever he likes to Kuma without the Warlord ever weakening, and a short distance away, Connie is shocked to see Kuma already as she transforms into her real self, Jewelry Bonney. Bonney sheds a tear for Kuma, calling the World Nobles' treatment of him unforgivable. Meanwhile, Morley, Lindbergh, and Karasu try to prevent Sabo from getting worked up about Kuma as they hide in a cave created by Morley under the World Nobles' domain. Karasu points out that Kuma would not return to his old self even if they do rescue him, and Lindbergh reflects that Kuma being enslaved despite formerly being a king of a nation affiliated with the World Government is a message that the power of a person is irrelevant when they defy the World Noble "gods". Sabo says that if they are going to rescue him, then there will only be two possible outcomes: success or death.
+
+In Pangaea Castle, the royals gather in the conference room to begin the Levely. They file in and chatter about Luffy's actions towards Big Mom and Kaidou. Ham Burger, who has been appointed the chairman of the Levely for this year, calls everyone to order as they prepare to discuss the matters of the world. Elsewhere, the Five Elders walk down a hall. They say that Cobra has requested a meeting with them during Levely, noting that his family are traitors for remaining on the surface world during the founding of the World Government and hoping that he would not bring up a complicated matter. With many big things happening in the past two years, the elders state that the balance cannot be maintained forever and that a great cleansing may be needed. Inside the Room of Flowers, an attendant tells Imu that everyone has arrived. Imu heads out, leaving behind the torn-up bounty posters of Luffy and Blackbeard as well as a picture of Shirahoshi with a sword plunged into it. Carrying a picture of Vivi, Imu heads to the Empty Throne, which this individual sits on. The Five Elders kneel before Imu, requesting that the figure share with them the name of the "light" that needs to be extinguished from history.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*Mjosgard promises to protect Shirahoshi during the Levely.
+*Bartholomew Kuma is currently a slave-to-rent for the World Nobles and he is currently being rented by Saint Rosward, who appears for the first time since the Sabaody Archipelago Arc.
+**Kuma is revealed to be the former king of the Sorbet Kingdom.
+*Jewelry Bonney infiltrates Mary Geoise alone (as "Connie", the queen dowager of the Sorbet Kingdom).
+*Nefertari Cobra discusses something with Riku Doldo III and Admiral Fujitora.
+**Cobra also requests to meet with the Five Elders.
+*Sabo, Morley, Lindbergh, and Karasu plan to rescue Kuma.
+*The Levely begins and Ham Burger is appointed the chairman for this meeting.
+*Imu, the mysterious person first seen in Chapter 906, appears again. Imu sits on the Empty Throne and the Five Elders bow before him and ask this individual about a "light" to extinguish.
+**Blackbeard's wanted portrait is seen for the first time, though the bounty is not shown.
+*This is the last chapter of the Levely Arc and the Whole Cake Island Saga.
+
+## Characters
+
+## Characters
+
+Pirate, Straw Hat Pirates, Monkey D. Luffy, Bonney Pirates, Jewelry Bonney, Happo Navy, Sai, Tontatta Pirates, Leo, Seven Warlords of the Sea, Bartholomew Kuma, Blackbeard Pirates, Marshall D. Teach, Yonta Maria Grand Fleet, Orlumbus, Columbus, Arabasta Kingdom, Nefertari Cobra, Nefertari Vivi, Igaram, Pell, Karoo, Dressrosa, Riku Doldo III, Viola, Rebecca, Tontatta Kingdom, Mansherry, Goa Kingdom, Sterry, Lulusia Kingdom, Seki, Roshwan Kingdom, Beer VI, Ryugu Kingdom, Neptune, Fukaboshi, Ryuboshi, Manboshi, Shirahoshi, Sakura Kingdom, Dalton, Kureha, Evil Black Drum Kingdom, Wapol, Tajine Kingdom, Mororon, Ballywood Kingdom, Ham Burger, Eigis Kingdom, Tea IV, Prodence Kingdom, Elizabello II, Kano Country, Ramen, Ilisia Kingdom, Cezar, Shishano Kingdom, Tacos, Lemoncheese, Stroganoff, Ban Dedessinée, Chap, Furrari, Jeep, Iwatobi, Moqueca, Neggy, Sauce, Couran, Potaufeu, Samosa, World Government, Nerona Imu, Five Elders, Jaygarcia Saturn, Marcus Mars, Topman Warcury, Ethanbaron V. Nusjuro, Shepherd Ju Peter, World Noble, Rosward Rosward, Rosward Charlos, Donquixote Mjosgard, Revolutionary Army, Sabo, Karasu, Lindbergh, Morley

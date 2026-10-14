@@ -1,0 +1,43 @@
+# Chapter 877: Not Sweet
+
+Volume: 87  |  Arc: Whole Cake Island Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_877 (CC-BY-SA)
+
+## Cover page
+
+The Stories of the Self-Proclaimed Straw Hat Grand Fleet Vol. 12: Sai Arc - Fiancée Uholisia: "Hey, I decided on the date for the wedding ceremony." Sai: "I have something important to tell you, Uholisia."
+
+Sai reunites with Uholisia and prepares to tell her something important.
+
+## Short summary
+
+Perospero traps Brook and Chopper in candy and prepares to kill them by turning their whole bodies into candy. The Straw Hats then emerge onto the coast while still being chased by Big Mom, and Luffy attacks Katakuri to get him off the Thousand Sunny. As a naval blockade is called to converge on the Straw Hats, Katakuri knocks Luffy down while Perospero subdues Pedro after the mink tries to attack him. However, Pedro then lights up the bombs in his jacket, causing a massive explosion that engulfs him and Perospero.
+
+## Long summary
+
+The Big Mom Pirates remark about how many soldiers Brook and Chopper managed to bring down, but the two Straw Hats are now immobilized as Perospero covers them in candy. The candy rapidly progresses up Chopper's body, and Perospero reveals that once he is covered, he will be unable to breathe and the candy will seep into his body, turning the reindeer's entire body into candy and killing him within three minutes. Chopper cannot do anything more than cry out, and Perospero laughs at his agony, reminding them that he gave the two of them a chance to escape. Chopper's body is then completely covered in candy, and there is a clock atop his head ticking down until his death. Perospero then begins covering Brook in candy as Brook cries out, and Katakuri warns Perospero that they will have company soon. Perospero thinks Big Mom will be here soon and prepares to divert her to Pudding and Chiffon on Cacao Island, only to stare in shock as the Straw Hats arrive, still being chased by Big Mom. Katakuri realizes that it was their soldiers who got wiped out by the lightning bolt, and orders the soldiers on the Sunny to get back in the Mirro-World, as they would soon be knocked out by Luffy's Supreme King Haki. The soldiers obey Katakuri and quickly retreat into the mirror.
+
+Perospero commends the Straw Hats on getting this far, and attacks them with a giant candy iron maiden that is covered in spikes. Luffy prepares to attack it, and Perospero warns about the danger of doing so as he flaunts the spikes. Jinbe tells Luffy to go around it, but Luffy decides to go through it instead. To Perospero's shock, Luffy breaks through the Candy Maiden with Gomu Gomu no Red Hawk. Luffy then extends the punch to Katakuri, and Katakuri stretches his arm with mochi to parry it. With Big Mom on one side and Perospero and Katakuri on the other, Jinbe tells Luffy to get Katakuri off the ship so they can get out to sea, and Luffy barrages Katakuri with punches, but they do not inflict any damage as Katakuri turns his body into mochi. As the rest of the team gets onto the Sunny, Pedro tells Carrot not to be flustered by this turn of events as he believes that the Straw Hats are the people that the Kouzuki Family has waited for hundred of years as well as the ones who will bring dawn to the world.
+
+Perospero tells Mont-d'Or through Den Den Mushi to surround the coast with tarte ships, and Mont-d'Or complies. On the Sunny, Nami tells Jinbe about the Coup de Burst, and how it can fly them a kilometer away. The team prepares to use it to get away from the encroaching Big Mom, and Jinbe notices the candyfied Brook and Chopper before he sees a blockade of Candy Island and Nuts Island Tarte Ships surrounding them from the other side. Katakuri knocks Luffy down, and the Sunny suddenly becomes trapped in candy as Perospero laughs from the coast, causing the Straw Hats to become angry and frightened as they can no longer use Coup de Burst. Perospero waits for the Straw Hats' incoming doom from all sides, but is suddenly attacked by Pedro. Perospero manages to quickly block the mink's strike and subdue him, pinning him to the ground with his candy cane staff. He boasts in his fighting strength and bounty of 700,000,000, but to his surprise, Pedro reveals a collection of bombs in his jacket and lights them up. The Straw Hats watch in shock at the scene as the bombs go off, engulfing Pedro and Perospero in a massive explosion.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*Sai's former fiancée, Uholisia, appears for the first time.
+*Perospero restrains Brook and Chopper with his abilities.
+**The process in which Perospero turns his victims into candy is explained.
+*Luffy and his group return to the Thousand Sunny.
+**Katakuri orders his subordinates onboard to retreat.
+**Luffy battles Katakuri.
+*Amande is revealed to be Totto Land's Minister of Nuts.
+*Perospero's bounty is revealed to be 700,000,000.
+*After Perospero traps the Sunny in candy, Pedro attempts to take him out with a suicide attack, which frees the ship as well.
+
+## Characters
+
+## Characters
+
+Pirate, Straw Hat Pirates, Monkey D. Luffy, Nami, Tony Tony Chopper, Brook, Sun Pirates, Jinbe, Happo Navy, Sai, Chinjao, Baby 5, Big Mom Pirates, Charlotte Linlin, Charlotte Katakuri, Charlotte Perospero, Charlotte Mont-d'Or, Charlotte Amande, Tamago, Napoleon, Niho Navy, Uholisia, Zou, Pedro, Carrot

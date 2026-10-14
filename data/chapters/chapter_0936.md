@@ -1,0 +1,52 @@
+# Chapter 936: The Grand Sumo Inferno
+
+Volume: 93  |  Arc: Wano Country Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_936 (CC-BY-SA)
+
+## Cover page
+
+Cover Page Request: "Aokiji was supposed to eat Wanze's noodles, but he accidentally froze them instead." -PN Misato.
+
+## Short summary
+
+Queen puts Luffy and Hyougoro into a sumo death match against him and his subordinates, and the two of them will be instantly killed by special collars if they get knocked out of the ring.
+
+Meanwhile, Drake and Hawkins' platoon raids the Flower Capital bathhouse to arrest anyone with a crescent moon symbol on their ankle. Sanji inadvertently reveals his presence in his Raid Suit, and escapes with Nami, Robin, and Shinobu. He reveals to them that the Heart Pirates were captured, and that they need to tell Law before he is lured to his crewmates.
+
+Meanwhile, Zoro chases the man who stole Shusui to Ringo, and the man reveals that he returned it to Ryuma's grave as the two prepare to fight for the weapons in each other's possession.
+
+## Long summary
+
+Raizo is amazed to learn his friend Kawamatsu is still alive. He asks to see his friend's face, but Kawamatsu can't since he is chained up. Kawamatsu inquires as to the date of the big battle and Raizo informs him about the Fire Festival. This pleases Kawamatsu, who asks Raizo to free him, the ninja happily agrees and Kawamatsu tells him to get the key to the cell. One of the jailers sees them talking and informs Solitaire. Raizo escapes using a smoke bomb, much to the guards' surprise, after which the guards start looking for him. 
+
+Elsewhere, Queen is leaving Raizo's apprehension to the guards while some of his henchmen set up an elevated sumo ring while Queen gleefully talks about executing two people. The event is ostentatiously titled "Queen's Contraception Concert: Sumo Inferno". This excites the guards. Luffy and Hyougoro are fitted with large collars. Using a pillar to demonstrate, Queen explains that if either of them leave the ring, claws will shoot out of the collar and decapitate them. Luffy likens them to the bomb collars that the Celestial Dragons use on their slaves. Queen further explains that the pair of them will be fighting a series of sumo matches. They will be fine as long as they keep winning, but will die if they step out of the ring and thus the execution will be over. However, Luffy can opt out of the execution right now if he chooses to join Kaidou's crew. There is no limit to the number of fighters Queen can put in a match, or the weapons they can use. As an act of mercy, Queen removes their seastone handcuffs, prompting Raizo to realize he grabbed the wrong key. 
+
+Luffy is elated to be free from the cuffs, and tells Queen he is actually a good person for basically letting them go free, prompting a baffled Queen to remind Luffy about the collars, saying they are worse than the handcuffs. Hyougoro asks Queen if they can go one at a time, saying he'll get in Luffy's way. Luffy asks Queen, addressing him as Balloon, if beating him would set him free. Queen berates Luffy for his rudeness and asks if he was paying attention. Queen's men are eager to start fighting. The crowd starts cheering as Queen begins the match. A female Beast Pirates member gives the signal to start and the fighters charge at Luffy, weapons drawn. Luffy only grins as he unleashes a burst of Supreme King Haki, knocking out every fighter. Unimpressed, Luffy calls for the next round. Everyone is stunned, while Queen is amused by Luffy's ability to use Supreme King Haki. In his cell, Kawamatsu muses about how noisy things have gotten since Luffy showed up and prays that he makes sure Hyougoro doesn't die. 
+
+At the Flower Capital bath house, Drake and Hawkins have raided the place, much to the surprise of everyone bathing. Hawkins asks Drake what he is doing there, and Drake tells him about his mission to kill Soba Mask. Nami asks Shinobu what they should do, adding how cowardly it is to attack someone in such a defenseless setting. Shinobu tells Nami and Robin to hide behind them and Robin wonders if they should fight. Hawkins commands all the bathers to line up and show him their ankles. Anyone with the reverse crescent moon tattoo will be taken in for questioning. Nami wonders how they know about the tattoo and Shinobu wonders if their plan was leaked. 
+
+Hawkins sees Nami hiding in the corner and orders her to come out, shooting his sword toward her. Robin gets ready to fight if necessary. Nami steps out and tries to act innocent. Hawkins's sword catches Nami's towel, making it fall to the ground and exposing her naked body for all to see, which causes several patrons to break out in nosebleeds. Nami picks up her towel when suddenly, a previously invisible Sanji in his raid suit gets a nosebleed as well and throws himself backwards from the force of the hemorrhage. The other women in the bath recognize him as Soba Mask. Nami and Robin are shocked to see him and his outfit. A henchman informs Drake of Soba Mask's presence, Drake enters the bath and immediately faints. Hawkins is stunned by this revelation, saying Drake should have said something ahead of time if he could not handle the sight of naked women, and a flustered Drake tries to deny it. Nami, Robin, and Shinobu see this as their chance to escape.
+
+Hawkins asks Drake if he is from the North Blue, to which Drake confirms and is aware that Hawkins hails from there as well. Hawkins and Drake both realize that they are looking at the Germa 66's Stealth Black. Sanji manages to grab Nami, Robin, and Shinobu and escape using his raid suit. Robin asks if Sanji's nose is okay, and Sanji says he would be okay with dying right now. He then informs them that Kaidou knows about the ankle tattoos and that Law's crew has been captured while trying to break out Luffy, and are going to use them to lure him out. If they don't get to Law first, the capital will turn into pandemonium. 
+
+In the Ringo region to the northeast, Zoro is facing off against a large samurai on a snowy bridge. The man informs Zoro that he has returned Shusui to its proper resting place, saying it must have been stolen from Ryuma's grave, to which Zoro says he is aware. The man orders Zoro to leave or he will take the rest of Zoro's swords. Unfazed, Zoro reasons the man must be a weapons collector, and tells him they need a lot of weapons right now and that he is taking the samurai's weapon's collection. A battle between the two on the bridge begins.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*Raizo plans to free Kawamatsu.
+*Luffy and Hyougoro are forced to fight in death matches, but they are allowed to have their handcuffs removed for combat.
+**Raizo realizes he stole the wrong key. 
+*The Beasts Pirates are aware of the mark Kin'emon's allies have on their ankles.
+*Drake and Hawkins briefly encounter Sanji and Nami's group.
+**Just like Law, both Drake and Hawkins know of Stealth Black from Sora, Warrior of the Sea.
+*It is revealed that Law's crew are captured and will be used to lure him out.
+*Zoro confronts the man who stole his sword.
+
+## Characters
+
+## Characters
+
+Pirates, World Government, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Nami, Sanji, Nico Robin, Heart Pirates, Bepo, Shachi, Penguin, Beasts Pirates, Queen, Nokotti, Uwattsura, Drake Pirates, X Drake, Hawkins Pirates, Basil Hawkins, Blackbeard Pirates, Kuzan, Camel, Wano Country, Raizo, Kawamatsu, Shinobu, Hyougoro, Onimaru, CP7, Wanze

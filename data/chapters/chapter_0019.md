@@ -1,0 +1,35 @@
+# Chapter 19: Devil Fruit
+
+Arc: Orange Town Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_19 (CC-BY-SA)
+
+## Cover page
+
+Animal Theater: Sitting atop a crate labeled "DANGER", Luffy prepares to brush a hippo's teeth.
+
+## Short summary
+
+Luffy, angry with Buggy's treatment of his hat and that he was calling himself a comrade of Shanks, begins to fight again. Back at the encampment outside the town, the villagers grow worried for their mayor, and decide to go and help. Buggy finally loses his temper with Luffy, and has a flashback about his relationship with Shanks. He remembers how different their opinion on treasure was, and he blames Shanks for causing him to accidentally eat a Devil Fruit. Back in the present, Buggy prepares to attack, but notices Nami has stolen his treasure and instead lunges at her.
+
+## Long summary
+
+Luffy is still mad that Buggy said Shanks was his friend, but Buggy insists he can say what he wants about the pirate. Buggy begins to separate his body, but Luffy hits him to stop him. The Buggy Pirates lying on the ground cannot believe their captain is losing. Nami suddenly realizes she is caught up in watching the fight.
+
+Back at the camp outside the village, the villagers are now worried about their mayor. When Poro decides to head into town to find him, he is supported by the others, and they all go.
+
+Buggy claims Shanks is the one person who has angered him the most over the years. He has a flashback about their time as fellow pirates. Shanks and Buggy are fighting on a pirate ship about whether the North Pole or South Pole is colder. An unnamed senior member of the crew steps in and stops their fight by banging their heads together, telling them if they really want to find to prove which is colder, then they should go and find out themselves.
+
+A lookout tells the crew that there is an approaching vessel, and they prepare themselves for a fight. Buggy is delighted by the thought of getting some treasure from the ship, but Shanks replies there is more to being a pirate than treasure, despite what Buggy thinks. During the fight, Buggy finds a treasure map to an underwater treasure horde. Buggy hides the map, so he can claim the treasure himself.
+
+Later that night, Shanks leaves a wild party on the ship to ask Buggy why he is not joining in, and explains they found a rare treasure on the enemy ship. Buggy shows signs of guilt, leaving Shanks wondering what Buggy is concealing. Since Buggy is convinced his plan will succeed, he discusses his future with Shanks and talks about leaving the ship. Shanks says he might also leave, find a crew and travel around the world as a pirate. Buggy mocks his ideas, telling Shanks he's too naïve and innocent to ever make it as a pirate, and that if it wasn't for his crazy ideas, he would have him on his crew. Shanks declines on the grounds that their views are too different, and they agree if they ever meet on the sea they will fight to the end.
+
+Shanks reveals that the party was because they had found a Devil Fruit; after telling Buggy the powers and value of the fruit, Buggy makes up his mind to eat it the next day. In front of the entire crew, he swallows the Devil Fruit whole. He tells the others the fruit had no effect on him, and they all dismiss the stories they've heard about the Devil Fruits. Unknown to them, Buggy had already switched the fruit with a fake, and plans to sell it. That night, Buggy plans to leave the crew and begin his dream of becoming a pirate. Shanks surprises him by appearing suddenly; in desperation he hides the Devil Fruit in his mouth and the map in his jacket. Buggy manages to get Shanks to leave, but as he lets out a sigh of relief, Shanks once again pops up behind him, startling Buggy and causing him to swallow the Devil Fruit.
+
+Buggy is in complete shock at what he has done, but before he could finish yelling at Shanks, Shanks points out a fluttering piece of paper heading over the side of the ship. Buggy realizes this is his map and leaps after it; as he lands in the water, he discovers the story about the sea turning against Devil Fruit users is true, and he is unable to swim. Up on the ship, the crew gathers wondering why Buggy has not come up yet since he is a good swimmer, and Shanks eventually dives into the water after him.
+
+After hearing Buggy's story, Luffy is relieved to hear Shanks saved Buggy's life. This infuriates Buggy, as his plans were set back ten years due to losing the Devil Fruit. Buggy notices Nami with the stolen treasure, and launches the upper half of his body at her.
+
+## Characters
+
+Pirate, Straw Hat Pirates, Monkey D. Luffy, Nami, Buggy Pirates, Buggy, Roger Pirates, Silvers Rayleigh, Scopper Gaban, Shanks, Orange Town, Boodle, Poro

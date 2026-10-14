@@ -1,0 +1,43 @@
+# Chapter 814: Let's Go See Master Nekomamushi
+
+Arc: Zou Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_814 (CC-BY-SA)
+
+## Cover page
+
+From the Decks of the World: The 500,000,000 Man Arc: Vol 8: Sakura Kingdom - A design change for the soldiers' helmets.
+
+The people of Sakura Kingdom receive the news of the Straw Hats' accomplishment at Dressrosa.
+
+## Short summary
+
+The Straw Hat Pirates debate whether or not to rescue Sanji, but Zoro reminds them that they have angered Kaidou and it would be unwise to anger another Emperor. The Straw Hats meet the recovering Nekomamushi and Pekoms as Chopper struggles to get Nekomamushi to wear his bandages. Luffy asks Pekoms about Sanji's marriage, and Pekoms reveals that Big Mom and Sanji's father arranged the wedding and that Sanji's father is an infamous man in the Underworld and the Vinsmoke Family is a family of killers.
+
+## Long summary
+
+In the present, Brook sings a song about going to meet Nekomamushi as he remembers Nekomamushi asking Nami what happened to Sanji and Caesar two days ago. Nami said that Sanji chose to leave, and Nekomamushi understood what she wanted and told Wanda and Carrot to not tell anyone what just happened. In the present, Brook continues singing about Nekomamushi, and Robin asks if Nekomamushi is like Brook describes, but Brook replies that he is singing about how he imagines the ruler. Luffy asks if Sanji was going to get married based on what his note said, and Nami replies that she is not sure, but knows that Sanji promised to be back. Luffy gets excited, thinking that Sanji would bring his bride back with him, meaning their crew would have a new member. However, Brook reveals that the bride is Big Mom's daughter, meaning they would become Big Mom's underlings after Sanji's marriage. Brook says that Sanji was against the idea and wonders if there was no way he could escape it, therefore he cut himself off from the crew in order to prevent them from having to serve under Big Mom, which Luffy says is even worse than being Big Mom's underlings.
+
+Usopp wonders what Sanji's family was like, and Robin vaguely remembers the name Vinsmoke. Nami apologizes for not holding him back before the rest of the crew arrived, but Robin replies that they had no choice in the matter. Chopper, however, wonders if they will never get to see Sanji again, but Zoro expresses apathy for the situation. He says that Sanji never apologized for his actions and reminds his crew that their actions on Dressrosa had angered Kaidou of the Four Emperors, and Kin'emon and the samurai were being targeted by Kaidou as well. They would soon battle Kaidou himself, and Sanji has now become involved with Big Mom, another Emperor. Nami shouts that Sanji had nothing to do with this, and she and Zoro argue. Luffy breaks up their argument by saying they would ask Sanji himself. His crew reminds him that they cannot invade Big Mom's domain without a strategy, and Robin says that as an Emperor, Big Mom was on a completely different level than any of their past opponents. However, Chopper says that Pekoms was left behind, so they could ask him some questions.
+
+The Straw Hats reach the Guardians' residential district, and the Guardians cheer upon seeing them. Roddy and Blackback apologize to Luffy for attacking him earlier, and Pedro, the captain of the Guardians, expresses his thanks and apologizes to Luffy on top of a tree. Pedro leaps down and tells Luffy that the Heart Pirates were waiting for him, but Luffy wants to see Nekomamushi and Pekoms first. Pedro then gets close to Luffy and reveals that Pekoms has just awoken in the building in the back, and that the Guardians would be willing to help find Sanji. Chopper is told by a reindeer mink, whom he is entranced with, that Nekomamushi is inside taking a bath, which shocks him.
+
+Inside, Nekomamushi eats lasagna while taking a bath, and Chopper yells at him that he was not allowed to take baths, as his wounds would reopen, and was supposed to eat light foods and not use his left hand. Nekomamushi replies that he loved freedom as he walks out of the bath, and Chopper yells at him for ignoring his orders. Nekomamushi hugs Robin and Usopp and thanks them for saving his tribe, promising to pay them back one day. He then starts playing with a ball, causing his wounds to reopen. Nekomamushi ends up in bed, which he claims is because he wants to be. He tells Robin to grab a foxtail, playing with it as Chopper gives him his injection, and Usopp realizes Nekomamushi is scared of injections. Nekomamushi claims that he feels better already, but Chopper smacks him and tells him to lie down. Meanwhile, Luffy converses with Pekoms, who curses Bege for shooting him and leaving him behind. Luffy asks him who arranged Sanji's marriage, and he replies that Big Mom and the father of the Vinsmoke Family did. Nami asks what kind of person Sanji's father is, and Pekoms replies that he is an infamous man in the Underworld, revealing that the Vinsmoke Family is a family of killers.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*Nekomamushi took in Pekoms after the Big Mom Pirates left him.
+*Luffy decides to meet Big Mom.
+*Luffy's group meets Nekomamushi.
+*Luffy visits Pekoms to question him about the arranged marriage.
+**Pekoms reveals that Sanji’s father and Big Mom were the ones who arranged the wedding.
+***Sanji's father is famous in the Underworld.
+***The Vinsmoke Family is a family of killers.
+
+## Characters
+
+## Characters
+
+Pirate, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Nami, Usopp, Sanji, Tony Tony Chopper, Nico Robin, Franky, Brook, Big Mom Pirates, Pekoms, Donquixote Pirates, Donquixote Doflamingo, Zou, Nekomamushi, Wanda, Carrot, Pedro, Roddy, Blackback, Wany, Milky, Sakura Kingdom, Kureha, Dalton, Isshi-100

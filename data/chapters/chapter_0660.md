@@ -1,0 +1,40 @@
+# Chapter 660: Trafalgar Law, Warlord of the Sea
+
+Volume: 67  |  Arc: Punk Hazard Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_660 (CC-BY-SA)
+
+## Cover page
+
+Color Spread: The Straw Hats enjoy resting on a flowerbed that covers the ground between some large trees and are surrounded by small flying orange elephants that resemble Dumbo. One fell out of a nest that gave way and hurt its head, which Chopper has bandaged, and now Nami is helping it get back up to its siblings. Another is mad at Luffy and has butted him on the head. Franky and Usopp are building a house for the young elephants while Robin and Brook play with and entertain some of them. Zoro and Sanji are fast asleep.
+
+## Short summary
+
+Nami and Chopper continue to escort the children out of the building, while the children explain how they got here. They encounter a room encased in ice with corpses frozen inside all around them, making the children afraid to go in. Back at the Biscuits Room, Sanji and Franky manage to defeat their pursuers, but Sanji gets aggravated by the samurai head. Meanwhile, Smoker interrogates Law, demanding him to let them pass. Nami, Sanji, Chopper and Franky then emerge out of the door, surprising both the Marines and Law. The Marines start the pursuit, but are stopped by Law's improved "Room". Smoker and Law then prepare to fight.
+
+## Long summary
+
+While running, the children are telling Nami about how they were brought to the island to be cured of diseases. They were taken from their homes, since their diseases might infect their parents, without even getting a chance to say goodbye to their families. Nami realizes that this screams of abduction. Chopper thinks their diseases are pretty serious, and Nami slaps him for not realizing the obvious truth. She then tells Chopper to give the kids checkups later, in order to know if they really were cured. They reach the end of the hall and see a door; Nami thinks it is a dead end, but Chopper breaks down the door. The room they are in now is dark and cold, making Nami wonder if they are in a freezer or outside. Nami sees a door on the other side of the room and starts running. One of the children tells Nami that the room scares her. The children explain that they went through this room when they first arrived at the facility. Nami tells them that that means it leads to an exit. The girl tells Nami to look around her, showing the room is full of frozen people. Nami and Chopper then realize in horror that the room they are in is used to store giant corpses.
+
+Back in Biscuit's Room, Sanji "hears" Nami scream out in terror. He tells Franky they need to hurry. Franky wonders why the people they defeated have the lower bodies of goats, having only heard about them from legend. Kin'emon asks to stay in the room, since he did not see his son amongst the kids there, saying he would look for other rooms. Sanji yells at him, asking how he would move as just a head. He then asks Kin'emon to be honest, and ask them to help him look for the rest of his body. Kin'emon stubbornly declares that he will not be indebted to pirates, but on the off-chance they want to find his body, he is not complaining. Sanji is about to slam the head into the floor in a fit of rage, but Franky grabs it out of his hand, telling Sanji he lost the moment he took the head with them. Sanji throws a fit for recognizing the head's resolve, then beats it up before carrying it again.
+
+Outside the facility, Tashigi is playing a recording of the transmission between Luffy and the person who sent the distress signal from the island for Trafalgar Law. Tashigi tells him that based on what was said in the transmission, the call was without a doubt sent from Punk Hazard. Smoker recalls Law's past encounters with Luffy, both at Sabaody after the Celestial Dragon Hit-and-Run Incident and at Marineford when he was chased by Akainu. Law does not believe Smoker since the Marines are known for forging transmission signals to trap pirates. Smoker tells him it is real, and Law says they can end the conversation since he does not know anything. Smoker asks to see the inside of the facility, and Law refuses. He asks what is so bad about being at an island that was disposed of by the government. He then tells Smoker if the Straw Hats do show up, then he will take care of them, so the Marines can go. They then hear a noise from behind the door, a voice saying how scary the frozen people were, and then another voice pointing out the door. Nami, Chopper, and the children burst through the door. Nami is surprised by how cold it is, Tashigi is surprised to see the Straw Hat Pirates, and the children are overjoyed to be outside. Franky is then seen carrying two additional children on his knees. He has tank treads on his calves and several more behind him, with Sanji and the head riding on his back. Everyone (but Nami) does Franky's "SUPER" pose, stunning everyone speechless. Nami and Chopper then recognize Law from Sabaody, and ask if he was the one who locked the kids away, saying they will not give them back. Sanji recognizes Smoker and Tashigi, the latter of whom asks why there are children on the island.
+
+Sanji orders all the children back inside, which confuses them since the Marines should be good people. Smoker asks Law why he said he was alone. Law cannot give a straight answer other than he is surprised. The Straw Hats and the children run back inside, and Tashigi gives orders to pursue them. Law stops them by using Room. He then uses Tact to lift the G-5 ship as well as some of the water around it, into the air. Law says that he cannot let them leave the island, and shouldn't have said that he was alone. Smoker orders his troops to stay back saying people like them will just be disassembled if they fight Law and pulls out his jitte ready to fight him.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*The inhabitants wearing the gas masks are shown to have goat legs, giving them the appearance of  or .
+*A room full of giant frozen corpses is shown. All of them are dressed in prison outfits.
+*Franky is shown to have tank treads stored in his calves.
+*The kidnapped children and the abducted Straw Hats manage to make it outside, but quickly run back in after seeing Trafalgar Law, Smoker, Tashigi, and the Marines of G-5.
+*Law's powers are shown for the first time after the timeskip and his "Room" can cover a much larger area.
+*Smoker and Law decide to fight each other.
+
+## Characters
+
+## Characters
+
+Pirates, Marines, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Nami, Usopp, Sanji, Tony Tony Chopper, Nico Robin, Franky, Brook, Seven Warlords of the Sea, Trafalgar D. Water Law, G-5, Smoker, Tashigi, Wano Country, Kin'emon, Sind, Mocha, Doran, Uzu, Konbu, Biyo

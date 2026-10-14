@@ -1,0 +1,42 @@
+# Chapter 867: Happy Birthday
+
+Volume: 86  |  Arc: Whole Cake Island Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_867 (CC-BY-SA)
+
+## Cover page
+
+The Stories of the Self-Proclaimed Straw Hat Grand Fleet: Vol 4, Cavendish Arc: Cavendish, who ran out of his own country for the crime of being too popular, has just 74 underlings and just 500 million in tow and feels like he's really in trouble.
+
+## Short summary
+
+Sixty-three years ago, Linlin ended up fatally injuring Jorul during her rampage, and as she was satiated with semla, Carmel created a sun homie to act as a god to appease the giants. However, this was not enough to atone Linlin, and Carmel was forced to move the Sheep's House to another island. Life in the orphanage resumed as normal, but Carmel, who was actually a child trafficker who sold the orphans to the Marines and Cipher Pol, prepared to sell Linlin. In the meantime, the Sheep's House celebrated Linlin's sixth birthday with a great feast, but as Linlin ate, Carmel and all her housemates suddenly disappeared. This caused her to enter a crisis, and in the present, Big Mom continues crying out as she remembers this sad time.
+
+## Long summary
+
+Sixty-three years ago, Jorul swung his sword at Charlotte Linlin, but she blocked it with her bare forearm and caused it to snap in half. Grabbing Jorul by the beard despite Carmel's desperate orders, Linlin threw the giant hero to the ground, severely injuring him. Linlin then continued looking for semla, and Carmel asked a giant woman if there was any around. The woman reluctantly said there was some in the storehouse for the festival, and as some giants held Linlin down, Carmel stepped toward the flames caused by her ward and summoned a little bit of her soul from her hand. Carmel sent the soul fragment into the flames, creating a sun homie in a flash of light that she named Pandora. As Linlin was fed some semla and satiated, the giants stared in awe at Pandora, and Carmel claimed that it was the Sun God and had made all things right. However, an enraged Jarul prepared to thrust his sword into the now-sleeping Linlin, and Carmel tried to stop him. Jarul replied that Jorul was beyond saving from his wounds at his age, and he could not forgive Linlin for having him die in such a manner. Carmel understood but could not leave a lost child like Linlin to die, and promised to go out of the country with her. Hajrudin was angry at Jarul's hesitation, but Jarul tearfully turned around and angrily ordered the two to disappear from his sight. Later, Linlin woke up and did not remember anything she had done, causing the giants to become even angrier, and she was soon hated by the entire giant race once word spread to the other giant kingdoms.
+
+The other Sheep's House children accompanied Carmel and Linlin to another island, where a new Sheep's House was set up by giants and life resumed as normal. In the Sheep's House, the children were raised with the goal of finding good foster parents. However, Carmel later went to a World Government building, where she told surprised CP0 agents that she indeed left Elbaph in order to keep Linlin, as she was now prepared to sell the girl to them for a high price. The agents balked at the price, but Carmel called Linlin her greatest product yet, saying she was strong enough to eventually become an Admiral or Fleet Admiral. She reminded the agents of how she sold them high-caliber orphans every two years to serve as intelligence agents, and the agents reluctantly agreed. Mother Carmel, an orphan trafficker known in the Underworld as "Mountain Witch", was satisfied and decided to make this her last deal, as it took a lot of work to act as a loving mother. After the meeting, she continued to nurture her children, but always knew her true purpose in raising them. The Sheep's House later celebrated Linlin's sixth birthday, and Linlin was presented with a giant pile of semla, arranged like a croquembouche. The Sheep's House decided to have a tea party to celebrate, and Linlin gorged on the semla with tears of joy fogging her vision. She had the greatest birthday of her life, surrounded by Carmel and her friends, but when she finally finished the semla and thanked her housemates, she saw that they had all disappeared. Linlin fretted as she searched for them to no avail, and in the present day she continues crying out for her mother as she recalls being left alone forever that day.
+
+## Notes & trivia
+
+## Chapter Notes
+
+*Cavendish was forced to flee from his country because he was too popular for the public. When he left, all he had were 74 followers and 500 million in tow.
+*Carmel is revealed to be the previous user of the Soru Soru no Mi.
+**This confirms her death at the present time.
+**It is also revealed how a homie in the form of a miniature sun can be created.
+*Jorul died after Linlin injured him during her craving rampage throughout the village.
+**These events are what caused Linlin to be hated by all giants of the world.
+*Carmel and the children of the Sheep's House were exiled from Elbaph.
+*It is revealed that Carmel was pretending to be a Holy Mother and was actually a child slaver and dealer.
+**She was active in the Underworld and went by the code name "Mountain Witch".
+**It is also revealed that she was responsible for making John Giant the first Marine giant.
+**She planned on selling Linlin to the World Government, who she claims to be just as powerful as a Marine Admiral or Fleet Admiral.
+*While celebrating Linlin's sixth birthday, Carmel and the Sheep's House children disappeared.
+
+## Characters
+
+## Characters
+
+Pirate, Straw Hat Pirates, Monkey D. Luffy, Big Mom Pirates, Charlotte Linlin, Napoleon, Giant Warrior Pirates, Kashii, Elbaph, Carmel, Pandora, Jorul, Jarul, Raideen, Hajrudin, Gerd, Bourgeois Kingdom, Cavendish

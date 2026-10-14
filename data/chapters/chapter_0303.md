@@ -1,0 +1,27 @@
+# Chapter 303: Rich Pirates
+
+Volume: 32  |  Arc: Long Ring Long Land Arc
+
+Source: https://onepiece.fandom.com/wiki/Chapter_303 (CC-BY-SA)
+
+## Cover page
+
+Ace's Great Blackbeard Search, Vol. 28: "Coffee With Milk Makes For Happy Meetings."
+
+With their new-and-improved coffee, G-2's Marines see morale soaring.
+
+## Short summary
+
+While Donquixote Doflamingo punishes Bellamy for being defeated by Luffy, the Straw Hat Pirates continues their journey on the Octopus Balloon.
+
+## Long summary
+
+At the home of Mont Blanc Cricket on Jaya, he informs Shoujou and Masira that they are no longer searching beneath the sea for his ancestor's Noland's claim. But instead, they are now pursuing a new dream at their request. Meanwhile on Mock Town on the same island, Bellamy and Sarquiss are having an unexpected fight against one another. The reason behind the fight is the unexpected return of their true leader: Seven Warlords of the Sea member Donquixote Doflamingo. Feeling upset that his "symbol" was being used in shame to fight against foolish dreams such as the existence of a city of gold in the sky. Although Bellamy begs for forgiveness and states he will never shame the sign ever again, Doflamingo still uses his powers to have Sarquiss attack him. As Bellamy screams, Doflamingo touts the beginning of a "New Age" where only worthy pirates exist and the trash are abandoned.
+
+Elsewhere, the Straw Hat Pirates have a successful landing back in the Blue Sea as the Octopus Balloon shrinks down to a smaller size upon landing. Everyone on the crew believes as if a dream has ended and that maybe some day they would return to Skypiea once again. But before they can speak for too long, a massive tsunami approaches the ship with bizarre faces of sea monkeys staring right at them, forcing them to move Going Merry out of the way. Checking out their merchandise they brought from Skypiea, they discover Nami's Waver as well as nearly all collected Dials (except the Cloud Dial) work in the Blue Sea. However, Nami is more interested in the distribution of the gold collected from their journey, claiming 80% of all profits even as the rest of the crew ask for various things themselves. But even with what they want, they all soon realize what they need: due to all the damage the Merry took on their journey, they need someplace where they could fix it. Though they know Usopp had been protecting it since leaving Syrup Village, he considers himself a sniper and thus not worthy of keeping up all maintenance. Thus allowing Luffy to make an intelligent decision: the next crewmate will be a shipwright to protect and maintain their home, followed by a musician.
+
+At the same moment at Marine Headquarters, the officials note that one of their most powerful members has gone missing. When the Five Elders get word, they do note that he usually does what he wants regardless of what other say. "He" turns out to be Admiral Aokiji, seen riding his bike innocently across the ocean while looking at Luffy's wanted poster.
+
+## Characters
+
+Pirate, Marines, World Government, Straw Hat Pirates, Monkey D. Luffy, Roronoa Zoro, Nami, Usopp, Sanji, Tony Tony Chopper, Nico Robin, Saruyama Alliance, Mont Blanc Cricket, Shoujou, Masira, Utan Divers, Seven Warlords of the Sea, Donquixote Doflamingo, Bellamy Pirates, Bellamy, Sarquiss, Rivers, Lily, Ross, Muret, Eddy, Hewitt, Admiral, Kuzan, Vice Admiral, Comil, Five Elders, Jaygarcia Saturn, Marcus Mars, Topman Warcury, Ethanbaron V. Nusjuro, Lulusia Kingdom, Moda
