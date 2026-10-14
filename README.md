@@ -45,7 +45,7 @@ SELECT kind, ref, title FROM search WHERE search MATCH 'Joy NEAR/5 Boy' ORDER BY
 scripts/op_scrape.py      downloader, parser, search CLI (stdlib only)
 .github/workflows/        scheduled updater
 data/                     generated — don't edit by hand
-theories/                 theory write-ups (to come)
+theories/                 theory write-ups, method and template
 ```
 
 ## License
