@@ -6,6 +6,7 @@ Each theory is one file, built from `data/` and re-checked as new chapters land.
 |---|---|---|
 | [Why Devil Fruit users can't swim](devil-fruit-sea-weakness.md) | Open, partly canon | High (core) / low (Void Century) |
 | [Backtest: Kanjuro is the traitor](backtest-kanjuro-traitor.md) | Confirmed, method check | — |
+| [Was Nefertari D. Lili the first Nidhöggr?](lili-first-nidhoggr.md) | Open | Low–medium |
 
 ## Method
 
