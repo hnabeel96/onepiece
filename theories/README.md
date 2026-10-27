@@ -8,6 +8,7 @@ Each theory is one file, built from `data/` and re-checked as new chapters land.
 | [Backtest: Kanjuro is the traitor](backtest-kanjuro-traitor.md) | Confirmed, method check | — |
 | [Was Nefertari D. Lili the first Nidhöggr?](lili-first-nidhoggr.md) | Open | Low–medium |
 | [Is the Heavenly Tribute a way to harvest people?](heavenly-tribute-harvest.md) | Open | Medium (pattern) / low (leaps) |
+| [Were the Empty Throne weapons the first Covenant?](empty-throne-first-covenant.md) | Open | Low–medium |
 
 ## Method
 
