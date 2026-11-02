@@ -1,6 +1,6 @@
 # Chapter 1164: Davy Blood
 
-Arc: Elbaph Arc
+Volume: 114  |  Arc: Elbaph Arc
 
 Source: https://onepiece.fandom.com/wiki/Chapter_1164 (CC-BY-SA)
 

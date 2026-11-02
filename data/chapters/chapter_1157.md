@@ -1,6 +1,6 @@
 # Chapter 1157: Legendary Bar
 
-Arc: Elbaph Arc
+Volume: 114  |  Arc: Elbaph Arc
 
 Source: https://onepiece.fandom.com/wiki/Chapter_1157 (CC-BY-SA)
 

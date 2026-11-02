@@ -1,6 +1,6 @@
 # Chapter 1169: My Death Cannot Come Soon Enough
 
-Arc: Elbaph Arc
+Volume: 115  |  Arc: Elbaph Arc
 
 Source: https://onepiece.fandom.com/wiki/Chapter_1169 (CC-BY-SA)
 

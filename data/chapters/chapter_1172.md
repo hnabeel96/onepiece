@@ -1,6 +1,6 @@
 # Chapter 1172: The Elbaph I Dreamed Of
 
-Arc: Elbaph Arc
+Volume: 115  |  Arc: Elbaph Arc
 
 Source: https://onepiece.fandom.com/wiki/Chapter_1172 (CC-BY-SA)
 

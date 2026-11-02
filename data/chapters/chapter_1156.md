@@ -1,6 +1,6 @@
 # Chapter 1156: Idols
 
-Arc: Elbaph Arc
+Volume: 114  |  Arc: Elbaph Arc
 
 Source: https://onepiece.fandom.com/wiki/Chapter_1156 (CC-BY-SA)
 

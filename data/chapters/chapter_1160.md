@@ -1,6 +1,6 @@
 # Chapter 1160: The God Valley Incident
 
-Arc: Elbaph Arc
+Volume: 114  |  Arc: Elbaph Arc
 
 Source: https://onepiece.fandom.com/wiki/Chapter_1160 (CC-BY-SA)
 

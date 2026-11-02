@@ -1,6 +1,6 @@
 # Chapter 1158: Rocks vs. Harald
 
-Arc: Elbaph Arc
+Volume: 114  |  Arc: Elbaph Arc
 
 Source: https://onepiece.fandom.com/wiki/Chapter_1158 (CC-BY-SA)
 

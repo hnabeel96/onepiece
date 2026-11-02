@@ -1,6 +1,6 @@
 # Chapter 1171: Ragnir
 
-Arc: Elbaph Arc
+Volume: 115  |  Arc: Elbaph Arc
 
 Source: https://onepiece.fandom.com/wiki/Chapter_1171 (CC-BY-SA)
 

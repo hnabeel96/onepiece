@@ -1,6 +1,6 @@
 # Chapter 1162: God Valley Battle Royale
 
-Arc: Elbaph Arc  |  Release: October 3, 2025
+Volume: 114  |  Arc: Elbaph Arc  |  Release: October 3, 2025
 
 Source: https://onepiece.fandom.com/wiki/Chapter_1162 (CC-BY-SA)
 

@@ -1,6 +1,6 @@
 # Chapter 1159: The Island of Fate
 
-Arc: Elbaph Arc
+Volume: 114  |  Arc: Elbaph Arc
 
 Source: https://onepiece.fandom.com/wiki/Chapter_1159 (CC-BY-SA)
 

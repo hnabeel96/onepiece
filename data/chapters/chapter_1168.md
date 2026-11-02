@@ -1,6 +1,6 @@
 # Chapter 1168: The Snows of Elbaph
 
-Arc: Elbaph Arc
+Volume: 115  |  Arc: Elbaph Arc
 
 Source: https://onepiece.fandom.com/wiki/Chapter_1168 (CC-BY-SA)
 

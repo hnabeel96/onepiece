@@ -1,6 +1,6 @@
 # Chapter 1170: Contrary
 
-Arc: Elbaph Arc
+Volume: 115  |  Arc: Elbaph Arc
 
 Source: https://onepiece.fandom.com/wiki/Chapter_1170 (CC-BY-SA)
 

@@ -1,6 +1,6 @@
 # Chapter 1167: Ida's Sons
 
-Arc: Elbaph Arc
+Volume: 115  |  Arc: Elbaph Arc
 
 Source: https://onepiece.fandom.com/wiki/Chapter_1167 (CC-BY-SA)
 

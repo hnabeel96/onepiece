@@ -1,6 +1,6 @@
 # Chapter 1161: A Song of Love Bound Under a Hail of Arrows
 
-Arc: Elbaph Arc
+Volume: 114  |  Arc: Elbaph Arc
 
 Source: https://onepiece.fandom.com/wiki/Chapter_1161 (CC-BY-SA)
 
